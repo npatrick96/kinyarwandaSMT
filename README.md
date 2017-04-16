@@ -7,4 +7,4 @@ Full Paper: http://patrickniyongabo.com/pdf/senior-thesis-paper-final.pdf
 
 Rule-Based MT Model: https://github.com/npatrick96/kinyarwandaRBMT 
 
-Kinyarwanda Translation Project Website: http://kinyarwanda.online/
+English - Translation Project: http://kinyarwanda.online/
