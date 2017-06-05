@@ -1,5 +1,5 @@
 1:1 In the beginning God created the heavens and the earth. 
-1:2 Now the earth was chaos and waste, darkness was on the surface of the deep, and the </span><span class="it"><span class="content">Ruach Elohim
+1:2 Now the earth was chaos and waste, darkness was on the surface of the deep, and the and the Ruach Elohim was hovering upon the surface of the water.
 1:3 Then God said, “Let there be light!” and there was light. 
 1:4 God saw that the light was good. So God distinguished the light from the darkness. 
 1:5 God called the light “day,” and the darkness He called “night.” So there was evening and there was morning—one day. 
@@ -35,18 +35,18 @@
 2:4 These are the genealogical records of the heavens and the earth when they were created, at the time when </span><span class="it"><span class="sc"><span class="content">Adonai
 2:5 Now no shrub of the field was in the land yet, and no green plants of the field had sprouted yet. For </span><span class="it"><span class="sc"><span class="content">Adonai
 2:6 But a mist came up from the land and watered the whole surface of the ground. 
-2:7 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-2:8 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-2:9 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+2:7 Then Adonai Elohim formed the man out of the dust from the ground and He breathed into his nostrils a breath of life—so the man became a living being.
+2:8 Then Adonai Elohim planted a garden in Eden in the east, and there He put the man whom He had formed.
+2:9 Then Adonai Elohim caused to sprout from the ground every tree that was desirable to look at and good for food. Now the Tree of Life was in the middle of the garden, and also the Tree of Knowledge of Good and Evil.
 2:10 A river flowed out of Eden to water the garden. From there it divided and became four riverheads. 
 2:11 The name of the first is Pishon, the one that winds around the whole land of the Havilah, where there is gold. 
 2:12 The gold of that land is good—bdellium and lapis lazuli stones are also there. 
 2:13 The name of the second river is Gihon—it winds around the whole land of Cush. 
 2:14 The name of the third river is Tigris—it runs east of Assyria. And the fourth river is Euphrates. 
-2:15 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-2:16 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-2:17 But of the Tree of the Knowledge of Good and Evil you must not eat. For when you eat from it, you most assuredly will die! 
-2:18 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+2:15 Then Adonai Elohim took the man and gave him rest in the Garden of Eden in order to cultivate and watch over it.
+2:16 Then Adonai Elohim commanded the man saying, “From all the trees of the garden you are most welcome to eat.
+2:17 But of the Tree of the Knowledge of Good and Evil you must not eat. For when you eat from it, you most assuredly will die!
+2:18 Then Adonai Elohim said, “It is not good for the man to be alone. Let Me make a well-matched helper for him.”
 2:19  had formed from the ground every animal of the field and every flying creature of the sky, so He brought them to the man to see what he would call them. Whatever the man called them—each living creature—that was its name. 
 2:20 So the man gave names to all of the livestock, and to the flying creatures of the sky, and to all the animals of the field; but for the man He did not find a well-matched helper for him. 
 2:21  caused a deep sleep to fall on the man and he slept; and He took one of his ribs and closed up the flesh in its place. 
@@ -54,15 +54,15 @@
 2:23 Then the man said, “This one, at last, is bone of my bones and flesh from my flesh. This one is called woman, for from man was taken this one.” 
 2:24 This is why a man leaves his father and his mother and clings to his wife; and they become one flesh. 
 2:25 Now both of them were naked, the man and his wife, and they were not ashamed.
-3:1 But the serpent was shrewder than any animal of the field that </span><span class="it"><span class="sc"><span class="content">Adonai
+3:1 But the serpent was shrewder than any animal of the field that Adonai Elohim made. So it said to the woman, “Did God really say, ‘You must not eat from all the trees of the garden’?”
 3:2 The woman said to the serpent, “Of the fruit of the trees, we may eat. 
 3:3 But of the fruit of the tree which is in the middle of the garden, God said, ‘You must not eat of it and you must not touch it, or you will die.’” 
 3:4 The serpent said to the woman, “You most assuredly won’t die! 
 3:5 For God knows that when you eat of it, your eyes will be opened and you will be like God, knowing good and evil.” 
 3:6 Now the woman saw that the tree was good for food, and that it was a thing of lust for the eyes, and that the tree was desirable for imparting wisdom. So she took of its fruit and she ate. She also gave to her husband who was with her and he ate. 
 3:7 Then the eyes of both of them were opened and they knew that they were naked; so they sewed fig leaves together and made for themselves loin-coverings. 
-3:8 And they heard the sound of </span><span class="it"><span class="sc"><span class="content">Adonai
-3:9 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+3:8 And they heard the sound of Adonai Elohim going to and fro in the garden in the wind of the day. So the man and his wife hid themselves from the presence of Adonai Elohim in the midst of the Tree of the garden.
+3:9 Then Adonai Elohim called to the man and He said to him, “Where are you?”
 3:10 Then he said, “Your sound—I heard it in the garden and I was afraid. Because I am naked, I hid myself.” 
 3:11 Then He said, “Who told you that you are naked? Have you eaten from the Tree from which I commanded you not to eat?” 
 3:12 Then the man said, “The woman whom You gave to be with me—she gave me of the Tree, and I ate.” 
@@ -75,25 +75,25 @@
 3:19 By the sweat of your brow will you eat food, until you return to the ground, since from it were you taken. For you are dust, and to dust will you return.” 
 3:20 Now Adam named his wife Eve because she was the mother of all the living. 
 3:21  made Adam and his wife tunics of skin and He clothed them. 
-3:22 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+3:22 Then Adonai Elohim said, “Behold, the man has become like one of Us, knowing good and evil. So now, in case he stretches out his hand and takes also from the Tree of Life and eats and lives forever,”
 3:23  sent him away from the Garden of Eden, to work the ground from which he had been taken. 
 3:24 And He expelled the man; and at the east of the Garden of Eden He had </span><span class="it"><span class="content">cheruvim
-4:1 Now the man had relations with Eve his wife and she became pregnant and gave birth to Cain. She said, “I produced a man with </span><span class="it"><span class="sc"><span class="content">Adonai
+4:1 Now the man had relations with Eve his wife and she became pregnant and gave birth to Cain. She said, “I produced a man with Adonai.”
 4:2 Then she gave birth again, to his brother Abel. Abel became a shepherd of flocks while Cain became a worker of the ground. 
-4:3 So it happened after some time that Cain brought an offering of the fruit of the ground to </span><span class="it"><span class="sc"><span class="content">Adonai
+4:3 So it happened after some time that Cain brought an offering of the fruit of the ground to Adonai,
 4:4 while Abel—he also brought of the firstborn of his flock and their fat portions. Now </span><span class="it"><span class="sc"><span class="content">Adonai
 4:5 but upon Cain and his offering He did not look favorably. Cain became very angry, and his countenance fell. 
-4:6 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+4:6 Then Adonai said to Cain, “Why are you angry? And why has your countenance fallen?
 4:7 If you do well, it will lift. But if you do not do well, sin is crouching at the doorway. Its desire is for you, but you must master it.” 
 4:8 Cain spoke to Abel his brother. While they were in the field, Cain rose up against Abel his brother and killed him. 
-4:9 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+4:9 Then Adonai said to Cain, “Where is Abel, your brother?” “I don’t know,” he said. “Am I my brother’s keeper?”
 4:10 Then He said, “What have you done? The voice of your brother’s blood is crying out to Me from the ground. 
 4:11 So now, cursed are you from the ground which opened its mouth to receive your brother’s blood from your hand. 
 4:12 As often as you work the ground, it will not yield its crops to you again. You will be a restless wanderer on the earth.” 
-4:13 Cain said to </span><span class="it"><span class="sc"><span class="content">Adonai
+4:13 Cain said to Adonai, “My iniquity is too great to bear!
 4:14 Since You expelled me today from the face of the ground and I must be hidden from Your presence, then I will be a restless wanderer on the earth—anyone who finds me will kill me!” 
-4:15 But </span><span class="it"><span class="sc"><span class="content">Adonai
-4:16 Then Cain left </span><span class="it"><span class="sc"><span class="content">Adonai
+4:15 But Adonai said to him, “In that case, anyone who kills Cain is to be avenged seven times over.” So Adonai put a mark on Cain, so that anyone who found him would not strike him down.
+4:16 Then Cain left Adonai’s presence and dwelled in the Land of Wandering, east of Eden.
 4:17 Cain was intimate with his wife and she became pregnant and gave birth to Enoch. And he was building a city, and he named the city after the name of his son, Enoch. 
 4:18 And to Enoch was born Irad. Irad fathered Mehujael, and Mehujael fathered Methushael, and Methushael fathered Lamech. 
 4:19 Now Lamech took for himself two wives. The name of the first one was Adah, and the name of the second one was Zillah. 
@@ -132,18 +132,18 @@
 5:26 And Methuselah lived 782 years after he fathered Lamech, and he fathered other sons and daughters. 
 5:27 So all of Methuselah’s days were 969 years, and then he died. 
 5:28 Lamech lived 182 years and he fathered a son. 
-5:29 And he named him Noah saying, “This one will comfort us from our work and from the pain of our hands because of the ground which </span><span class="it"><span class="sc"><span class="content">Adonai
+5:29 And he named him Noah saying, “This one will comfort us from our work and from the pain of our hands because of the ground which Adonai cursed.”
 5:30 Lamech lived 595 years after he fathered Noah, and he fathered sons and daughters. 
 5:31 So all of Lamech’s days were 777 years, and then he died. 
 5:32 And Noah was 500 years old when he fathered Shem, Ham and Japheth.
 6:1 Now when humankind began to multiply on the face of the ground and daughters were born to them, 
 6:2 then the sons of God saw that the daughters of men were good and they took for themselves wives, any they chose. 
-6:3 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-6:4 The </span><span class="it"><span class="content">Nephilim
-6:5 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-6:6 So </span><span class="it"><span class="sc"><span class="content">Adonai
-6:7 So </span><span class="it"><span class="sc"><span class="content">Adonai
-6:8 But Noah found favor in </span><span class="it"><span class="sc"><span class="content">Adonai
+6:3 Then Adonai said, “My Spirit will not remain with humankind forever, since they are flesh. So their days will be 120 years.
+6:4 The Nephilim were on the earth in those days, and also afterward, whenever the sons of God came to the daughters of men, and gave birth to them. Those were the mighty men of old, men of renown.
+6:5 Then Adonai saw that the wickedness of humankind was great on the earth, and that every inclination of the thoughts of their heart was only evil all the time.
+6:6 So Adonai regretted that He made humankind on the earth, and His heart was deeply pained.
+6:7 So Adonai said, “I will wipe out humankind, whom I have created, from the face of the ground, from humankind to livestock, crawling things and the flying creatures of the sky, because I regret that I made them.”
+6:8 But Noah found favor in Adonai’s eyes.
 6:9 These are the genealogies of Noah. Noah was a righteous man. He was blameless among his generation. Noah continually walked with God. 
 6:10 Noah fathered three sons: Shem, Ham and Japheth. 
 6:11 Now the earth was ruined before God, and the earth was filled with violence. 
@@ -158,11 +158,11 @@
 6:20 Of the flying creatures according to their kind, of the livestock according to their kind, of all the crawling creatures of the ground according to their kind—two of everything will come to you to keep them alive. 
 6:21 As for you: take for yourself every kind of edible food and gather it to yourself. It will be food for you and for them.” 
 6:22 So Noah did according to all that God commanded him; he did so exactly.
-7:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+7:1 Then Adonai said to Noah, “Come—you and all your household—into the ark. For you only do I perceive as righteous before Me in this generation.
 7:2 Of every clean animal you shall take with you seven of each kind, male and female; and of the animals which themselves are not clean two, male and female; 
 7:3 also of the flying creatures of the sky seven of every kind, male and female, to keep offspring alive on the face of the whole land. 
 7:4 For in seven more days, I am going to make it rain upon the land forty days and forty nights, and I will wipe out all existence that I made from the face of the ground. 
-7:5 So Noah did all just as </span><span class="it"><span class="sc"><span class="content">Adonai
+7:5 So Noah did all just as Adonai commanded him.
 7:6 Now Noah was 600 years old when the flood came—water upon the land. 
 7:7 So Noah, his sons, his wife, and his sons’ wives, entered the ark because of the floodwaters. 
 7:8 Of the clean animals and unclean animals, the flying creatures and everything that crawls on the ground, 
@@ -201,8 +201,8 @@
 8:17 Every animal that is with you of all flesh, including the flying creatures, livestock and every crawling creature that crawls on the land, bring out with you, and let them swarm in the land and be fruitful and multiply upon the land.” 
 8:18 So Noah came out, with his sons, his wife, and his sons’ wives. 
 8:19 Every animal—every crawling creature, every flying creature, everything that crawls upon the land—came out from the ark in their families. 
-8:20 Then Noah built an altar to </span><span class="it"><span class="sc"><span class="content">Adonai
-8:21 When </span><span class="it"><span class="sc"><span class="content">Adonai
+8:20 Then Noah built an altar to Adonai and he took of every clean domestic animal and of every clean flying creature and he offered burnt offerings on the altar.
+8:21 When Adonai smelled the soothing aroma, Adonai said in His heart, “I will never again curse the ground on account of man, even though the inclination of the heart of humankind is evil from youth. Nor will I ever again smite all living creatures, as I have done.
 8:22 While all the days of the land remain, seedtime and harvest, cold and heat, summer and winter, day and night will not cease.”
 9:1 God blessed Noah and his sons, and He said to them, “Be fruitful and multiply and fill the land. 
 9:2 The fear and terror of you will be on every wild animal, and on every flying creature of the sky, with everything that crawls on the ground and with all the fish of the sea—into your hand they are given. 
@@ -229,7 +229,7 @@
 9:23 So Shem and Japheth took the cloak and laid it over both their shoulders and walked backwards and with it covered their father’s private parts. But their faces were turned away, so they did not see their father’s private parts. 
 9:24 When Noah woke up from his wine, he learned what his youngest son had done to him. 
 9:25 So he said, “Cursed is Canaan: the lowest slave will he be to his brothers.” 
-9:26 He also said, “Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
+9:26 He also said, “Blessed be Adonai, God of Shem, and let Canaan be his servant.
 9:27 May God enlarge Japheth, may he dwell in the tents of Shem, and may Canaan be his slave.” 
 9:28 Now Noah lived 350 years after the flood. 
 9:29 So all Noah’s days were 950 years. Then he died.
@@ -241,7 +241,7 @@
 10:6 Ham’s sons were Cush, Mizraim, Put and Canaan. 
 10:7 Cush’s sons were Seba, Havilah, Sabtah, Raamah, and Sabteca. And Raamah’s sons were Sheba, and Dedan. 
 10:8 Now Cush fathered Nimrod. He started to become mighty in the land. 
-10:9 He was a mighty hunter before </span><span class="it"><span class="sc"><span class="content">Adonai
+10:9 He was a mighty hunter before Adonai. This is why it is said, “Like Nimrod, a mighty hunter before Adonai.”
 10:10 The beginning of his kingdom included Babel, Erech, Accad and Calneh, in the land of Shinar. 
 10:11 From that land he went out to Assyria and built Nineveh, Rechovot-ir, Calah 
 10:12 and Resen, between Nineveh and Calah—it is the great city. 
@@ -269,11 +269,11 @@
 11:2 When they traveled eastward, they found a valley-plain in the land of Shinar and settled there. 
 11:3 They said to one another, “Come! Let’s make bricks and bake them until they’re hard.” So they used bricks for stone, and tar for mortar. 
 11:4 Then they said, “Come! Let’s build ourselves a city, with a tower whose top reaches into heaven. So let’s make a name for ourselves, or else we will be scattered over the face of the whole land.” 
-11:5 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+11:5 Then Adonai came down to see the city and the tower that the sons of man had built.
 11:6  said, “Look, the people are one and all of them have the same language. So this is what they have begun to do. Now, nothing they plan to do will be impossible. 
 11:7 Come! Let Us go down and confuse their language there, so that they will not understand each other’s language.” 
-11:8 So </span><span class="it"><span class="sc"><span class="content">Adonai
-11:9 This is why it is named Babel, because </span><span class="it"><span class="sc"><span class="content">Adonai
+11:8 So Adonai scattered them from there over the face of the entire land, and they stopped building the city.
+11:9 This is why it is named Babel, because Adonai confused the languages of the entire world there, and from there Adonai scattered them over the face of the entire world.
 11:10 These are the genealogical records of Shem: Shem was 100 years old when he fathered Arpachshad—two years after the flood. 
 11:11 Shem lived 500 years after he fathered Arpachshad, and he fathered sons and daughters. 
 11:12 Arpachshad lived 35 years when he fathered Shelah. 
@@ -297,14 +297,14 @@
 11:30 Sarai was barren; she did not have a child. 
 11:31 Terah took Abram his son and Lot, Haran’s son, his grandson, and Sarai his daughter-in-law, his son Abram’s wife, and he took them out of Ur of the Chaldeans to go to the land of Canaan. But when they came to Haran, they settled there. 
 11:32 Terah’s days were 205 years, and Terah died in Haran.
-12:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+12:1 Then Adonai said to Abram, “Get going out from your land, and from your relatives, and from your father’s house, to the land that I will show you.
 12:2 My heart’s desire is to make you into a great nation, to bless you, to make your name great so that you may be a blessing. 
 12:3 My desire is to bless those who bless you, but whoever curses you I will curse, and in you all the families of the earth will be blessed. 
-12:4 So Abram went, just as </span><span class="it"><span class="sc"><span class="content">Adonai
+12:4 So Abram went, just as Adonai had spoken to him. Also Lot went with him. (Now Abram was 75 years old when he departed from Haran.)
 12:5 Abram took Sarai his wife, and Lot his nephew, and all their possessions that they had acquired, and the people that they acquired in Haran, and they left to go to the land of Canaan, and they entered the land of Canaan. 
 12:6 Abram passed through the land as far as the place of Shechem, as far as Moreh’s big tree. (The Canaanites were in the land then.) 
-12:7 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-12:8 From there he moved to the mountain to the east of Beth-El and erected his tent (with Beth-El to the west and Ai to the east). There he built an altar to </span><span class="it"><span class="sc"><span class="content">Adonai
+12:7 Then Adonai appeared to Abram, and said, “I will give this land to your seed.” So there he built an altar to Adonai, who had appeared to him.
+12:8 From there he moved to the mountain to the east of Beth-El and erected his tent (with Beth-El to the west and Ai to the east). There he built an altar to Adonai and called on the Name of Adonai.
 12:9 So Abram kept on journeying southward. 
 12:10 Now there was a famine in the land. So Abram went down to Egypt to live as an outsider there, because the famine was severe in the land. 
 12:11 Just as he was about to enter Egypt he said to Sarai his wife, “Look, please, I know that you are an attractive woman. 
@@ -313,28 +313,28 @@
 12:14 When Abram came to Egypt, the Egyptians did see that the woman was very beautiful. 
 12:15 Indeed, Pharaoh’s officials saw her and they raved about her to Pharaoh. Then the woman was taken into Pharaoh’s house. 
 12:16 But Abram was treated well for her sake, and he got sheep, cattle, male donkeys, male and female slaves, female donkeys and camels. 
-12:17 But </span><span class="it"><span class="sc"><span class="content">Adonai
+12:17 But Adonai struck Pharaoh and his household with great plagues because of Sarai, Abram’s wife.
 12:18 So Pharaoh called Abram and said, “What’s this that you did to me? Why didn’t you tell me that she is your wife? 
 12:19 Why did you say, ‘She is my sister,’ so that I took her to be my wife? Now, here is your wife. Take—and go!” 
 12:20 Then Pharaoh instructed men concerning him, and they expelled him, with his wife, and everything that belonged to him.
 13:1 So Abram went up from Egypt—he and his wife and everything that belonged to him, and Lot with him—to the Negev. 
 13:2 Now Abram was very rich in livestock, silver and gold. 
 13:3 He proceeded by stages from the Negev as far as Beth-El—to the place where his tent had been at the beginning, between Beth-El and Ai, 
-13:4 to the place of the altar that he had made there at first, and there Abram called on the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:4 to the place of the altar that he had made there at first, and there Abram called on the Name of Adonai.
 13:5 Now Lot, who was going with Abram, also had sheep and cattle and tents, 
 13:6 so that the land could not support them living together, because their possessions were many, and they were not able to stay together. 
 13:7 So there was a quarrel between the shepherds of Abram’s livestock and the shepherds of Lot’s livestock. (Now the Canaanites and the Perizzites were living in the land then.) 
 13:8 So Abram said to Lot, “Please, let there be no strife between me and you, or between my shepherds and yours, since we are relatives. 
 13:9 Isn’t the whole land before you? Please separate yourself from me. If to the left, then I’ll go to the right, and if to the right, then I’ll go to the left.” 
-13:10 Lot lifted up his eyes and saw that the whole area surrounding the Jordan was well watered in its entirety (before </span><span class="it"><span class="sc"><span class="content">Adonai
+13:10 Lot lifted up his eyes and saw that the whole area surrounding the Jordan was well watered in its entirety (before Adonai destroyed Sodom and Gomorrah)—like Adonai’s garden, like the land of Egypt—till you come to Zoar.
 13:11 So Lot chose for himself the whole area surrounding the Jordan. Lot journeyed to the east, and they separated from each other. 
 13:12 Abram dwelled in the land of Canaan, and Lot dwelled in the cities of the valley. And he moved his tent from place to place near Sodom. 
-13:13 But the people of Sodom were evil—very great sinners against </span><span class="it"><span class="sc"><span class="content">Adonai
-13:14 After Lot separated himself from him, </span><span class="it"><span class="sc"><span class="content">Adonai
+13:13 But the people of Sodom were evil—very great sinners against Adonai.
+13:14 After Lot separated himself from him, Adonai had said to Abram, “lift up your eyes, now, and look from the place where you are, to the north, south, east and west.
 13:15 For all the land that you are looking at, I will give to you and to your seed forever. 
 13:16 I will make your seed like the dust of the earth so that if one could count the dust of the earth, then your seed could also be counted. 
 13:17 Get up! Walk about the land through its length and width—for I will give it to you.” 
-13:18 So Abram moved his tent from place to place, and came and dwelt by Mamre’s large trees, which are in Hebron, and there built an altar to </span><span class="it"><span class="sc"><span class="content">Adonai
+13:18 So Abram moved his tent from place to place, and came and dwelt by Mamre’s large trees, which are in Hebron, and there built an altar to Adonai.
 14:1 Now it came about in the days of Amraphel king of Shinar, Arioch king of Ellasar, Chedorlaomer king of Elam, and Tidal king of Goiim, 
 14:2 that they made war with Bera king of Sodom, Birsha king of Gomorrah, Shinab king of Admah, Shemeber king of Zeboiim, and the king of Bela (this is Zoar). 
 14:3 All of these kings joined forces in the Valley of the Siddim (this is the Salt Sea). 
@@ -352,21 +352,21 @@
 14:15 Then he divided his servants against them at night, and he defeated them and pursued them as far as Hovah, which is north of Damascus. 
 14:16 He brought back all the possessions, and also brought back his kinsman Lot and his possessions, as well as the women and the other people. 
 14:17 Now after he returned from defeating Chedorlaomer and the kings who were with him, the king of Sodom went out to meet him in the Valley of Shaveh (this is the King’s Valley). 
-14:18 Then </span><span class="it"><span class="content">Melechizedek
-14:19 He blessed him and said, “Blessed be Abram by </span><span class="it"><span class="content">El Elyon
-14:20 and blessed be </span><span class="it"><span class="content">El Elyon
+14:18 Then Melechizedek , king of Salem, brought out bread and wine—he was a priest of El Elyon.
+14:19 He blessed him and said, “Blessed be Abram by El Elyon, Creator of heaven and earth,
+14:20 and blessed be El Elyon, Who gave over your enemies Into your hand.” Then Abram gave him a tenth of everything.
 14:21 Then the king of Sodom said to Abram, “Give me the people—the possessions take for yourself.” 
-14:22 But Abram said to the king of Sodom, “I raise my hand in oath to </span><span class="it"><span class="sc"><span class="content">Adonai
+14:22 But Abram said to the king of Sodom, “I raise my hand in oath to Adonai, El Elyon, Creator of heaven and earth.
 14:23 Not a thread or even a sandal strap of all that is yours will I take, so you will not say, ‘I’ve made Abram rich!’ 
 14:24 I claim nothing but what the young men have eaten, and the share of the men who went with me—Aner, Eschol, and Mamre—let them take their share.”
-15:1 After these things the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-15:2 But Abram said, “My Lord </span><span class="it"><span class="sc"><span class="content">Adonai
+15:1 After these things the word of Adonai came to Abram in a vision saying, “Do not fear, Abram. I am your shield, your very great reward.”
+15:2 But Abram said, “My Lord Adonai, what will You give me, since I am living without children, and the heir of my household is Eliezer of Damascus?”
 15:3 Then Abram said, “Look! You have given me no seed, so a house-born servant is my heir.” 
-15:4 Then behold, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+15:4 Then behold, the word of Adonai came to him saying, “This one will not be your heir, but in fact, one who will come from your own body will be your heir.
 15:5 He took him outside and said, “Look up now, at the sky, and count the stars—if you are able to count them.” Then He said to him, “So shall your seed be.” 
-15:6 Then he believed in </span><span class="it"><span class="sc"><span class="content">Adonai
-15:7 Then He said to him, “I am </span><span class="it"><span class="sc"><span class="content">Adonai
-15:8 So he said, “My Lord </span><span class="it"><span class="sc"><span class="content">Adonai
+15:6 Then he believed in Adonai and He reckoned it to him as righteousness.
+15:7 Then He said to him, “I am Adonai who brought you out from Ur of the Chaldeans, in order to give you this land to inherit it.”
+15:8 So he said, “My Lord Adonai, how will I know that I will inherit it?”
 15:9 Then He said to him, “Bring Me a three year old young cow, a three year old she-goat, a three year old ram, a turtle-dove and a young bird.” 
 15:10 So he brought all these to Him and cut them in half, and put each piece opposite the other; but he did not cut the birds. 
 15:11 Then birds of prey came down upon the carcasses, but Abram drove them away. 
@@ -376,27 +376,27 @@
 15:15 But you, you will come to your fathers in peace. You will be buried at a good old age. 
 15:16 Then in the fourth generation they will return here—for the iniquity of the Amorites is not yet complete.” 
 15:17 When the sun set and it became dark, behold, there was a smoking oven and a fiery torch that passed between these pieces. 
-15:18 On that day </span><span class="it"><span class="sc"><span class="content">Adonai
+15:18 On that day Adonai cut a covenant with Abram, saying, “I give this land to your seed, from the river of Egypt to the great river, the Euphrates River:
 15:19 the Kenite, the Kenizzites, the Kadmonites, 
 15:20 the Hittites, the Perizzites, the Raphaites, 
 15:21 the Amorites, the Canaanites, the Girgashites, and the Jebusites.”
 16:1 Now Sarai, Abram’s wife, had not borne him children. But she had an Egyptian slave-girl—her name was Hagar. 
-16:2 So Sarai said to Abram, “Look now, </span><span class="it"><span class="sc"><span class="content">Adonai
+16:2 So Sarai said to Abram, “Look now, Adonai has prevented me from having children. Go, please, to my slave-girl. Perhaps I’ll get a son by her.” Abram listened to Sarai’s voice.
 16:3 So Sarai, Abram’s wife, took her slave-girl Hagar the Egyptian—after Abram had lived ten years in the land of Canaan—and gave her to Abram her husband to be his wife. 
 16:4 Then he went to Hagar and she became pregnant. When she saw that she was pregnant, in her eyes her mistress was belittled. 
-16:5 So Sarai said to Abram, “The wrong done to me is because of you! I myself placed my slave-girl in your embrace. Now that she saw that she became pregnant, so in her eyes I am belittled. May </span><span class="it"><span class="sc"><span class="content">Adonai
+16:5 So Sarai said to Abram, “The wrong done to me is because of you! I myself placed my slave-girl in your embrace. Now that she saw that she became pregnant, so in her eyes I am belittled. May Adonai judge between you and me!”
 16:6 Abram said to Sarai, “Look! Your slave-girl is in your hand. Do to her what is good in your eyes.” So Sarai afflicted her, and she fled from her presence. 
-16:7 Then the angel of </span><span class="it"><span class="sc"><span class="content">Adonai
+16:7 Then the angel of Adonai found her by the spring of water in the wilderness, next to the spring on the way to Shur.
 16:8 He said, “Hagar, Sarai’s slave-girl, where have you come from and where are you going?” She said, “I am fleeing from the presence of my mistress Sarai.” 
-16:9 The angel of </span><span class="it"><span class="sc"><span class="content">Adonai
-16:10 Then the angel of </span><span class="it"><span class="sc"><span class="content">Adonai
-16:11 Then the angel of </span><span class="it"><span class="sc"><span class="content">Adonai
+16:9 The angel of Adonai said, “Return to your mistress and humble yourself under her hand.”
+16:10 Then the angel of Adonai said to her, “I will bountifully multiply your seed, and they will be too many to count.”
+16:11 Then the angel of Adonai said to her, Behold, you are pregnant and about to bear a son, and you shall name him Ishmael— for Adonai has heard your affliction.
 16:12 He will be a wild donkey of a man. His hand will be against everyone, and everyone’s hand against him, and away from all his brothers will he dwell. 
-16:13 So she called </span><span class="it"><span class="sc"><span class="content">Adonai
+16:13 So she called Adonai who was speaking to her, “You are the God who sees me.” For she said, “Would I have gone here indeed looking for Him who looks after me?”
 16:14 That is why the well is named, the Well of the Living One Who Sees Me. (Behold, it is between Kadesh and Bered.) 
 16:15 Then Hagar gave birth to a son for Abram, and Abram named his son, whom Hagar bore, Ishmael. 
 16:16 Abram was 86 years old when Hagar gave birth to Ishmael for Abram.
-17:1 When Abram was 99 years old, </span><span class="it"><span class="sc"><span class="content">Adonai
+17:1 When Abram was 99 years old, Adonai appeared to Abram, and He said to him, “I am El Shaddai. Continually walk before Me and you will be blameless.
 17:2 My heart’s desire is to make My covenant between Me and you, and then I will multiply you exceedingly much.” 
 17:3 Abram fell on his face, and God spoke with him, saying, 
 17:4 “For My part, because My covenant is with you, you will be the father of a multitude of nations. 
@@ -423,7 +423,7 @@
 17:25 and his son Ishmael was 13 years old when he was circumcised in the flesh of his foreskin. 
 17:26 On this very same day Abraham and Ishmael his son were circumcised. 
 17:27 Also all the men of his house, house-born slaves and slaves purchased from a foreigner, were circumcised with him.
-18:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+18:1 Then Adonai appeared to him at Mamre’s large trees while he was sitting in the entrance of his tent during the heat of the day.
 18:2 When he lifted up his eyes to see, suddenly, three men were standing right by him. When he saw them, he ran from the entrance of his tent to meet them and bowed down to the ground. 
 18:3 Then he said, “My Lord, if now I have found favor in your eyes, please do not pass by your servant. 
 18:4 Please let a little water be brought so you can wash your feet, and make yourselves comfortable under the tree. 
@@ -435,30 +435,30 @@
 18:10 Then He said, “I will most surely return to you in about a year’s time, surprisingly, Sarah your wife will have a son.” Sarah was listening at the entrance of the tent, which was behind Him. 
 18:11 Now Abraham and Sarah were old, advanced in years—Sarah had stopped having the way of women. 
 18:12 So Sarah laughed to herself, saying, “After I’ve grown decrepit, can I have desire—and my lord so old?” 
-18:13 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+18:13 Then Adonai said to Abraham, “Why is it that Sarah laughed, saying, ‘Can I really give birth when I am so old?’
 18:14 Is anything too difficult for </span><span class="it"><span class="sc"><span class="content">Adonai
 18:15 Sarah denied it saying, “I didn’t laugh!” For she was afraid. But He said, “No—for you did laugh.”
 18:16 Then the men got up from there and looked down over Sodom. Abraham was walking with them to send them off, 
-18:17 when </span><span class="it"><span class="sc"><span class="content">Adonai
+18:17 when Adonai said, “Should I keep secret from Abraham what I am about to do,
 18:18 seeing that Abraham will most certainly become a great and mighty nation and in him all the nations of the earth will be blessed? 
-18:19 For I have made myself known to him so that he will command his sons and his household after him to keep the way of </span><span class="it"><span class="sc"><span class="content">Adonai
-18:20 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+18:19 For I have made myself known to him so that he will command his sons and his household after him to keep the way of Adonai by doing righteousness and justice, so that Adonai may bring upon Abraham what He has spoken about him.”
+18:20 Then Adonai said, “The outcry against Sodom and Gomorrah is great indeed, and their sin is very grievous indeed.
 18:21 I want to go down now, and see if they deserve destruction, as its outcry has come to Me. And if not, I will know.” 
-18:22 Then the men turned from there and went toward Sodom, but Abraham was still standing before </span><span class="it"><span class="sc"><span class="content">Adonai
+18:22 Then the men turned from there and went toward Sodom, but Abraham was still standing before Adonai.
 18:23 Abraham drew near and said, “Will you really sweep away the righteous with the wicked? 
 18:24 Suppose there are fifty righteous within the city. Will you really sweep away and not spare the place for the sake of fifty righteous who are in it? 
 18:25 Far be it from You to do such a thing—to cause the righteous to die with the wicked, so that the righteous and the wicked share the same fate! Far be it from You! Shall the Judge of the whole world not exercise justice?” 
-18:26 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+18:26 Then Adonai said, “If I find in Sodom fifty righteous people within the city, I will spare the whole place for their sake.”
 18:27 Then Abraham answered and said, “Look, pray, I have decided to speak to my Lord, though I am dust and ashes. 
 18:28 Suppose the fifty righteous people are lacking five. Will You destroy the whole city for lack of five?” And He said, “I will not destroy it if I find forty-five there.” 
 18:29 So he spoke to Him yet again and said, “Perhaps forty will be found there?” And He said, “I will not do it for the sake of the forty.” 
 18:30 Then he said, “Please, let my Lord not be angry, so I may speak. Perhaps thirty will be found there?” And He said, “I will not do it if I find thirty there.” 
 18:31 Then he said, “Look, pray, I have decided to speak to my Lord: Perhaps twenty will be found there?” And He said, “I will not destroy it for the sake of the twenty.” 
 18:32 Then he said, “Please, let not my Lord be angry, so I may speak once more. Perhaps ten will be found there?” And He said, “I will not destroy it for the sake of the ten.” 
-18:33 Now when He had finished speaking to Abraham, </span><span class="it"><span class="sc"><span class="content">Adonai
+18:33 Now when He had finished speaking to Abraham, Adonai left, and Abraham returned to his place.
 19:1 Now the two angels came to Sodom in the evening, while Lot was sitting at the gate of Sodom. When Lot saw them, he got up to meet them, and bowed down with his face to the ground. 
 19:2 Then he said, “Here, please my lords, please turn aside to your servant’s house, spend the night and wash your feet. Then you can get up early and go on your way.” But they said, “No. We will spend the night in the open plaza.” 
-19:3 But he urged them strongly, so they turned aside to him and they came into his house. He prepared a feast for them and baked </span><span class="it"><span class="content">matzot
+19:3 But he urged them strongly, so they turned aside to him and they came into his house. He prepared a feast for them and baked matzot , and they ate.
 19:4 They had not yet lain down when the men of the city (the men of Sodom) surrounded the house—from youth to elderly, all the people without exception. 
 19:5 And they called out to Lot and said to him, “Where are the men who came to you tonight? Bring them out to us so that we can have relations with them!” 
 19:6 But Lot went out to them at the doorway and shut the door behind him, 
@@ -468,10 +468,10 @@
 19:10 But the men reached out their hands, brought Lot into the house with them, and shut the door. 
 19:11 Then they struck the men at the doorway of the house with blindness—from youth to elderly—so that they gave up trying to find the doorway. 
 19:12 Then the men said to Lot, “Who else related to you is still here? A son-in-law, your sons and your daughters, whoever else is related to you in the city—bring them out of the place! 
-19:13 For we are about to destroy this place, because their outcry has become so great before </span><span class="it"><span class="sc"><span class="content">Adonai
-19:14 So Lot went out and spoke to his sons-in-law who were going to marry his daughters, “Get up!” he said, “Get out of this place! For </span><span class="it"><span class="sc"><span class="content">Adonai
+19:13 For we are about to destroy this place, because their outcry has become so great before Adonai that Adonai has sent us to destroy it.”
+19:14 So Lot went out and spoke to his sons-in-law who were going to marry his daughters, “Get up!” he said, “Get out of this place! For Adonai is about to destroy the city!” But in the eyes of his sons-in-law, he was like a joker.
 19:15 So when morning dawned the angels rushed Lot, saying, “Get up! Take your wife and your two daughters who are here, or else you will be swept away with the city’s iniquity!” 
-19:16 But he hesitated. So the men grabbed his hand, his wife’s hand and his two daughters’ hands—because of </span><span class="it"><span class="sc"><span class="content">Adonai
+19:16 But he hesitated. So the men grabbed his hand, his wife’s hand and his two daughters’ hands—because of Adonai’s compassion for him—and they brought him out and left him outside the city.
 19:17 When they brought them outside, one said, “Flee for your life! Do not look behind you, and do not stop anywhere in the surrounding area! Escape to the hills, or else you’ll be swept away!” 
 19:18 But Lot said to them, “No, my Lord, please! 
 19:19 Look, please, your servant has found favor in Your eyes and You have magnified Your merciful loyalty, which You have shown me by letting me live. But I can’t escape to the hill country—for the disaster will overtake me and I’ll die! 
@@ -479,10 +479,10 @@
 19:21 So He said to him, “Behold, I will grant your request concerning this matter too—not to demolish the city of which you have spoken. 
 19:22 Hurry! Flee to safety there, because I cannot do anything until you arrive there.” (This is why the town is named Zoar.) 
 19:23 The moment the sun rose upon the land, Lot entered Zoar, 
-19:24 and </span><span class="it"><span class="sc"><span class="content">Adonai
+19:24 and Adonai rained sulfur and fire upon Sodom and Gomorrah from Adonai out of the sky.
 19:25 So He demolished these cities and the whole surrounding area, all the inhabitants of the cities and the vegetation of the ground. 
 19:26 But his wife looked behind him and she turned into a pillar of salt. 
-19:27 Now Abraham rose early in the morning to the place where he had stood before </span><span class="it"><span class="sc"><span class="content">Adonai
+19:27 Now Abraham rose early in the morning to the place where he had stood before Adonai,
 19:28 and he looked down toward Sodom and Gomorrah, and toward the entire land of the surrounding area, and saw, behold, the smoke of the land ascended like smoke from a furnace. 
 19:29 So it was, as God destroyed the cities of the surrounding area, that God remembered Abraham, and sent Lot out of the midst of the upheaval, when He demolished the cities where Lot had dwelt. 
 19:30 Then Lot went up from Zoar and dwelled on the mountain, his two daughters with him, because he was afraid to dwell in Zoar. So he lived in a cave—he and his two daughters. 
@@ -511,8 +511,8 @@
 20:15 Then Abimelech said, “Look, my land is before you. Dwell wherever it pleases you.” 
 20:16 At the same time he said to Sarah, “Look, I’ve given a thousand shekels to your brother. Look, it is compensation for everything that happened—so to everyone with you, you are vindicated.” 
 20:17 Then Abraham prayed to God and God healed Abimelech, his wife and his female slaves so that they could bear children. 
-20:18 For </span><span class="it"><span class="sc"><span class="content">Adonai
-21:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+20:18 For Adonai had completely locked up every womb in Abimelech’s household because of Sarah, Abraham’s wife.
+21:1 Then Adonai visited Sarah just as He had said, and Adonai did for Sarah just as He had spoken.
 21:2 So Sarah became pregnant and gave birth to a son for Abraham in his old age, at the appointed time that God had told him. 
 21:3 Abraham named his son who was born to him—whom Sarah bore for him—Isaac. 
 21:4 Then Abraham circumcised Isaac, his eight-day-old son, just as God had commanded him. 
@@ -544,9 +544,9 @@
 21:30 He said, “You are to accept the seven ewe-lambs from my hand, so that they may be a witness for me that I dug this well.” 
 21:31 That is why that place is named Beer-sheba, because there both of them made a pledge, 
 21:32 and they made a covenant in Beer-sheba. Then Abimelech got up, with Phicol the commander of his army, and they returned to the land of the Philistines. 
-21:33 Then he planted a tamarisk tree in Beer-sheba and called there on the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+21:33 Then he planted a tamarisk tree in Beer-sheba and called there on the Name of Adonai, the Everlasting God.
 21:34 He lived as an outsider in the land of the Philistines for many days.
-22:1 Now it was after these things that God tested Abraham. He said to him, “Abraham.” “</span><span class="it"><span class="content">Hineni
+22:1 Now it was after these things that God tested Abraham. He said to him, “Abraham.” “Hineni,” he said.
 22:2 Then He said, “Take your son, your only son whom you love —Isaac—and go to the land of Moriah, and offer him there as a burnt offering on one of the mountains about which I will tell you.” 
 22:3 So Abraham got up early in the morning, saddled his donkey and took two of his young men with him, and Isaac his son. He split wood for the burnt offering, and got up and went to the place about which God had told him. 
 22:4 On the third day, Abraham lifted up his eyes and saw the place from a distance. 
@@ -556,12 +556,12 @@
 22:8 Abraham said, “God will provide for Himself a lamb for a burnt offering, my son.” The two of them walked on together. 
 22:9 Then they came to the place about which God had told him, and Abraham built the altar there, laid out the wood, bound up Isaac his son, and laid him on the altar, on top of the wood. 
 22:10 Then Abraham reached out his hand and took the knife to slaughter his son. 
-22:11 But the angel of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:11 But the angel of Adonai called to him from heaven and said, “Abraham! Abraham!” He said, “Hineni!”
 22:12 Then He said, “Do not reach out your hand against the young man—do nothing to him at all. For now I know that you are one who fears God—you did not withhold your son, your only son, from Me.” 
 22:13 Then Abraham lifted up his eyes and behold, there was a ram, just caught in the thick bushes by its horns. So Abraham went and took the ram, and offered it up as a burnt offering instead of his son. 
-22:14 Abraham named that place, </span><span class="it"><span class="sc"><span class="content">Adonai
-22:15 The angel of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:16 and said, “By myself I swear—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:14 Abraham named that place, Adonai Yireh,—as it is said today, “On the mountain, Adonai will provide.”
+22:15 The angel of Adonai called to Abraham a second time from heaven
+22:16 and said, “By myself I swear—it is a declaration of Adonai—because you have done this thing, and you did not withhold your son, your only son,
 22:17 I will richly bless you and bountifully multiply your seed like the stars of heaven, and like the sand that is on the seashore, and your seed will possess the gate of his enemies. 
 22:18 In your seed all the nations of the earth will be blessed—because you obeyed My voice.” 
 22:19 Then Abraham returned to his young men and they got up and went together to Beer-sheba. Then Abraham dwelled in Beer- sheba. 
@@ -590,9 +590,9 @@
 23:18 to Abraham as a purchased possession in the eyes of the sons of Heth, before all those who enter the gate of his city. 
 23:19 Afterward, Abraham buried Sarah his wife in the cave of the field of Machpelah next to Mamre (that is, Hebron), in the land of Canaan. 
 23:20 So the field and the cave that was in it were handed over to Abraham as a gravesite from the sons of Heth.
-24:1 Now Abraham was old, advanced in years, and </span><span class="it"><span class="sc"><span class="content">Adonai
+24:1 Now Abraham was old, advanced in years, and Adonai blessed Abraham in everything.
 24:2 Then Abraham said to his servant, the oldest of his household who managed everything that belonged to him, “Now put your hand under my thigh, 
-24:3 so that I may make you take an oath by </span><span class="it"><span class="sc"><span class="content">Adonai
+24:3 so that I may make you take an oath by Adonai, the God of heaven and the God of earth, that you will not take a wife for my son from among the daughters of the Canaanites among whom I am dwelling.
 24:4 On the contrary, to my land and to my relatives you must go and get a wife for my son Isaac. 
 24:5 But the servant said to him, “Suppose the woman were unwilling to follow after me to this land? Should I then have your son go back to the land you came from? 
 24:6 Abraham said to him, “See to it that you don’t return my son there. 
@@ -601,7 +601,7 @@
 24:9 So the servant put his hand under the thigh of Abraham his master, and he made a pledge to him concerning this matter. 
 24:10 Then the servant took ten of his master’s camels and left with all the best of his master’s things in his hand. Then he arose and went to Aram-Naharaim, to Nahor’s city. 
 24:11 Then he made the camels kneel down outside the city by the well of water at evening time, the time for the going out to draw water. 
-24:12 “</span><span class="it"><span class="sc"><span class="content">Adonai
+24:12 “Adonai, the God of Abraham my master,” he said, “please make something happen before me today, and show loyalty to Abraham my master.
 24:13 Look, I am standing by the spring of water, and the daughters of the men of the city are going out to draw water. 
 24:14 Now let it be that the young woman to whom I say, ‘Please tip your jar so that I may drink,’ and she will say, ‘Drink—and I’ll also water your camels’—let her be the one You have appointed for your servant Isaac. So by this I’ll know that You have shown graciousness to my master.” 
 24:15 Now before he had finished speaking, behold there was Rebekah (who was born to Bethuel son of Milcah, the wife of Nahor, Abraham’s brother) going out with her jar on her shoulder. 
@@ -610,17 +610,17 @@
 24:18 So she said, “Drink, my lord,” and she quickly lowered her jar onto her hand and gave him a drink. 
 24:19 Now when she finished giving him a drink, she said, “I’ll also draw water for your camels until they’ve finished drinking.” 
 24:20 So she quickly poured out her jug into the trough, ran back to the well to draw water, and drew water for all his camels, 
-24:21 while the man continued to pay close attention to her, keeping silent in order to know whether or not </span><span class="it"><span class="sc"><span class="content">Adonai
+24:21 while the man continued to pay close attention to her, keeping silent in order to know whether or not Adonai had made his way successful.
 24:22 Now after the camels had finished drinking, the man took out a nose ring of gold weighing a half-shekel and two bracelets on her hands weighing ten shekels of gold. 
 24:23 “Whose daughter are you?” he said. “Please tell me. Is there room in your father’s house for us to spend the night?” 
 24:24 She said to him, “I’m the daughter of Bethuel, son of Milcah, whom she bore to Nahor.” 
 24:25 She also said to him, “There’s both straw and plenty of feed with us, as well as room to spend the night.” 
-24:26 Then the man bowed down and worshipped </span><span class="it"><span class="sc"><span class="content">Adonai
-24:27 and he said, “Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
+24:26 Then the man bowed down and worshipped Adonai,
+24:27 and he said, “Blessed be Adonai, the God of my master Abraham, who has not forsaken His loyalty and His truth toward my master. As for me, Adonai has guided me in the way to the house of my master’s brothers.”
 24:28 Then the young woman ran and told her mother’s house these things. 
 24:29 Now Rebekah had a brother and his name was Laban, and Laban ran outside to the man at the spring. 
 24:30 As soon as he saw the nose ring and the bracelets on his sister’s hands, and when he heard the words of Rebekah his sister saying, “Thus the man said to me,” he went to the man. There he was, standing by the camels at the spring. 
-24:31 So he said, “Come in, blessed of </span><span class="it"><span class="sc"><span class="content">Adonai
+24:31 So he said, “Come in, blessed of Adonai. Why are you standing outside when I’ve tidied up the house and there is room for the camels?”
 24:32 So the man came to the house and he unloaded the camels. Straw and feed were given to the camels and water to wash his feet and the feet of the men who were with him. 
 24:33 Food was placed before him to eat, but he said, “I won’t eat until I’ve stated my business.” So he said, “Speak.” 
 24:34 “I am Abraham’s servant,” he said. 
@@ -629,23 +629,23 @@
 24:37 Then my master made me take an oath, saying, ‘You must not take a wife for my son from among the daughters of the Canaanites in whose land I’m dwelling.’ 
 24:38 Instead you must go to my father’s house and to my family, and take a wife for my son.’ 
 24:39 But I said to my master, ‘Suppose the woman won’t come back with me?’ 
-24:40 So he said to me, ‘</span><span class="it"><span class="sc"><span class="content">Adonai
+24:40 So he said to me, ‘Adonai, before whom I’ve walked continually, will send His angel with you, and He will make your way successful, and you will take a wife for my son from my family and from my father’s household.
 24:41 Then you’ll be free from my oath—if you come to my family and if they don’t give her to you—then you’ll be free from my oath.’ 
-24:42 So I came today to the spring and I said, ‘</span><span class="it"><span class="sc"><span class="content">Adonai
+24:42 So I came today to the spring and I said, ‘Adonai, the God of Abraham my master, if You are really going to make my way upon which I am walking successful,
 24:43 look, I’m standing by the spring of water. So let it be that the unmarried girl who is going out to draw water, to whom I’ll say, “Please give me a little water to drink from your jug,” 
-24:44 and she’ll say to me, “You drink, and I’ll also draw water for your camels”—let her be the woman whom </span><span class="it"><span class="sc"><span class="content">Adonai
+24:44 and she’ll say to me, “You drink, and I’ll also draw water for your camels”—let her be the woman whom Adonai appoints for my master’s son!’
 24:45 I had not yet finished speaking to my heart, and behold there was Rebekah going out—her jug was on her shoulder and she went down to the spring and drew water. So I said to her, ‘Please give me a drink.’ 
 24:46 And she quickly lowered her jug off of her and said, ‘Drink, and I’ll also water your camels.’ So I drank, and she also watered the camels. 
 24:47 Then I asked her, ‘Whose daughter are you?’ And she said, ‘The daughter of Bethuel, Nahor’s son, whom Milcah bore to him.’ Then I placed the ring on her nose and the bracelets on her hands. 
-24:48 I bowed down and worshipped </span><span class="it"><span class="sc"><span class="content">Adonai
+24:48 I bowed down and worshipped Adonai and blessed Adonai, the God of my master Abraham, who guided me on the true way to take the daughter of my master’s brother for his son.
 24:49 So now, if you’re really going to show loyalty and truth to my master, tell me. But if not, tell me and I’ll turn to the right or to the left.” 
-24:50 Then Laban and Bethuel answered, and they said, “The matter proceeds from </span><span class="it"><span class="sc"><span class="content">Adonai
-24:51 Rebekah is before you. Take her and go, and let her become a wife for our master’s son, just as </span><span class="it"><span class="sc"><span class="content">Adonai
-24:52 Now when Abraham’s servant heard their words, he bowed down to the ground to </span><span class="it"><span class="sc"><span class="content">Adonai
+24:50 Then Laban and Bethuel answered, and they said, “The matter proceeds from Adonai. We cannot speak to you bad or good.
+24:51 Rebekah is before you. Take her and go, and let her become a wife for our master’s son, just as Adonai has spoken.”
+24:52 Now when Abraham’s servant heard their words, he bowed down to the ground to Adonai.
 24:53 Then the servant brought out articles of silver and gold, and garments, and gave them to Rebekah. He also gave precious gifts to her brothers and to her mother. 
 24:54 Then they ate and drank, he and the men who were with him, and spent the night. When they arose in the morning, he said, “Send me off to my master.” 
 24:55 But her brother with her mother said, “Let the young woman stay with us a few days—or ten. Afterwards she may go.” 
-24:56 But he said to them, “Don’t delay me, since </span><span class="it"><span class="sc"><span class="content">Adonai
+24:56 But he said to them, “Don’t delay me, since Adonai has made my way successful. Send me off so that I can go to my master.”
 24:57 So they said, “We’ll call the young woman and let’s ask her opinion.” 
 24:58 Then they called Rebekah and said to her, “Will you go with this man?” She said, “I will go.” 
 24:59 So they sent Rebekah their sister off with her nanny, and Abraham’s servant and his men, 
@@ -677,8 +677,8 @@
 25:18 Then they dwelled from Havilah to Shur, which is east of Egypt as you go toward Assyria. Over against all his brothers he fell.
 25:19 Now these are the genealogies of Isaac, Abraham’s son. Abraham fathered Isaac. 
 25:20 Isaac was 40 years old when he took for himself Rebekah, the daughter of Bethuel the Aramean from Paddan-aram, the sister of Laban the Aramean, to be his wife. 
-25:21 Isaac prayed to </span><span class="it"><span class="sc"><span class="content">Adonai
-25:22 But the children struggled with one another inside her, and she said, “If it’s like this, why is this happening to me?” So she went to inquire of </span><span class="it"><span class="sc"><span class="content">Adonai
+25:21 Isaac prayed to Adonai on behalf of his wife because she was barren. Adonai answered his plea and his wife Rebekah became pregnant.
+25:22 But the children struggled with one another inside her, and she said, “If it’s like this, why is this happening to me?” So she went to inquire of Adonai.
 25:23  said to her: “Two nations are in your womb, and two peoples from your body will be separated. One people will be stronger than the other people, but the older will serve the younger.” 
 25:24 When her time came to give birth, indeed there were twins in her womb. 
 25:25 Now the first came out reddish, all of him was like a fur coat, and they named him Esau. 
@@ -692,17 +692,17 @@
 25:33 Jacob said, “Make a pledge to me now.” So he made a pledge to him, and sold his birthright to Jacob. 
 25:34 Then Jacob gave Esau bread and lentil stew, and he ate and drank, then got up and left. So Esau despised his birthright.
 26:1 Now there was a famine in the land—aside from the previous famine that happened in Abraham’s days. So Isaac went to King Abimelech of the Philistines, to Gerar. 
-26:2 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+26:2 Then Adonai appeared to him and said, “Do not go down to Egypt. Dwell in the land about which I tell you.
 26:3 Live as an outsider in this land and I will be with you and bless you—for to you and to your seed I give all these lands—and I will confirm my pledge that I swore to Abraham your father. 
 26:4 I will multiply your seed like the stars of the sky and I will give your seed all these lands. And in your seed all the nations of the earth will continually be blessed, 
-26:5 because Abraham listened to My voice and kept My charge, My </span><span class="it"><span class="content">mitzvot
+26:5 because Abraham listened to My voice and kept My charge, My mitzvot, My decrees, and My instructions.”
 26:6 So Isaac stayed in Gerar. 
 26:7 Now the men of the place asked about his wife. So he said, “She is my sister,” because he was afraid to say, “my wife”—“or else the men of the place would kill me on account of Rebekah, because she’s good looking.” 
 26:8 Now after he had been there for a long time, King Abimelech of the Philistines peered down through the window and saw, behold, Isaac caressing his wife Rebekah. 
 26:9 So Abimelech called Isaac and said, “So in fact she’s your wife! Now how could you say, ‘She’s my sister’?” Isaac said to him, “Because I said, ‘Or else I might die because of her.’” 
 26:10 Then Abimelech said, “What is it that you’ve done to us? One of the people could have easily slept with your wife and you would’ve brought guilt on us.” 
 26:11 So Abimelech commanded all the people saying, “Whoever touches this man or his wife will surely die!”
-26:12 Then Isaac sowed in that land and in that year reaped a hundredfold. </span><span class="it"><span class="sc"><span class="content">Adonai
+26:12 Then Isaac sowed in that land and in that year reaped a hundredfold. Adonai blessed him
 26:13 and the man became great and continued to become greater until he became very great. 
 26:14 He acquired livestock of sheep and livestock of cattle, and numerous servants. Then the Philistines envied him. 
 26:15 All the wells that his father’s servants had dug in the days of his father Abraham the Philistines stopped up and filled with dirt. 
@@ -712,16 +712,16 @@
 26:19 Then Isaac’s servants dug in the valley and found a well of living water there. 
 26:20 But the shepherds of Gerar quarreled with Isaac’s shepherds saying, “The water is ours!” So he named the well Quarrel, because they quarreled with him. 
 26:21 Then he dug another well and they quarreled over it too, so he named it Accusation. 
-26:22 Then he moved from there and dug another well, and they did not quarrel over it. So he named it Wide Spaces and said, “Because now </span><span class="it"><span class="sc"><span class="content">Adonai
+26:22 Then he moved from there and dug another well, and they did not quarrel over it. So he named it Wide Spaces and said, “Because now Adonai has created wide spaces for us and we will be fruitful in the land.”
 26:23 He went up from there to Beer-sheba. 
 26:24  appeared to him that night and said, “I am the God of your father Abraham. Do not be afraid, for I am with you, and I will bless you and multiply your seed for the sake of Abraham my servant.” 
-26:25 So he built an altar there and called on the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+26:25 So he built an altar there and called on the Name of Adonai. He pitched his tent there and Isaac’s servants hollowed out a well there.
 26:26 Now Abimelech went to him from Gerar along with Achuzzat his friend and Phicol the commander of his army. 
 26:27 Isaac said to them, “Why have you come to me, since you hate me and sent me away from you?” 
-26:28 They said, “We’ve clearly seen that </span><span class="it"><span class="sc"><span class="content">Adonai
-26:29 that you will do us no harm, just as we haven’t touched you and just as we did nothing to you but good, and sent you away in </span><span class="it"><span class="content">shalom
+26:28 They said, “We’ve clearly seen that Adonai has been with you. So we said, ‘Let there now be an agreement between us—between us and you—and let us make a covenant with you:
+26:29 that you will do us no harm, just as we haven’t touched you and just as we did nothing to you but good, and sent you away in shalom. You are now blessed by Adonai.”
 26:30 Then he made a feast for them and they ate and drank. 
-26:31 Then they got up early in the morning and made a pledge, each to his brother. Then Isaac sent them away and they departed from him in </span><span class="it"><span class="content">shalom
+26:31 Then they got up early in the morning and made a pledge, each to his brother. Then Isaac sent them away and they departed from him in shalom.
 26:32 Now it happened that on that day Isaac’s servants came and told him about the well that they dug, and said to him, “We’ve found water.” 
 26:33 So he called it Pledge. That is why the city’s name is Beer-sheba to this day. 
 26:34 When Esau was 40 years old, he took as wife Judith the daughter of Be-eri the Hittite, and Basemath the daughter of Elon the Hittite. 
@@ -732,7 +732,7 @@
 27:4 Then prepare me a delicious meal that I love, and bring it to me that I may eat, so that my soul may bless you before I die.” 
 27:5 Now Rebekah was listening when Isaac was speaking to Esau his son. So while Esau went to the field to hunt game to bring in, 
 27:6 Rebekah said to Jacob her son, “Look, I heard your father speaking to your brother Esau saying, 
-27:7 ‘Bring me some game and prepare me a delicious meal that I may eat and bless you in </span><span class="it"><span class="sc"><span class="content">Adonai
+27:7 ‘Bring me some game and prepare me a delicious meal that I may eat and bless you in Adonai’s presence before my death.’
 27:8 So now, my son, listen to my voice, to what I am commanding you. 
 27:9 Go now to the flock and bring me two good young goats from there, so that I may prepare them as a delicious meal for your father—that he’ll love. 
 27:10 Then you’ll bring it to your father to eat, so that he may bless you before his death.” 
@@ -745,14 +745,14 @@
 27:17 She put the delicious meal and the bread that she had prepared in the hand of Jacob her son. 
 27:18 Then he came to his father and said, “My father.” And he said, “I’m here. Who are you, my son?” 
 27:19 Then Jacob said to his father, “I’m your firstborn, Esau. I’ve done just what you said to me. Sit up, please, and eat some of my wild game so that your soul may bless me.” 
-27:20 Then Isaac said to his son, “How in the world were you able to find it so quickly, my son?” He said, “Because </span><span class="it"><span class="sc"><span class="content">Adonai
+27:20 Then Isaac said to his son, “How in the world were you able to find it so quickly, my son?” He said, “Because Adonai your God made it happen for me.”
 27:21 Then Isaac said to Jacob, “Please come closer so I can feel you my son—whether or not you really are my son Esau.” 
 27:22 So Jacob came closer to his father Isaac, and he felt him. Then he said, “The voice is Jacob’s voice but the hands are Esau’s hands.” 
 27:23 He did not recognize him because his hands were like the hairy hands of his brother Esau. So he blessed him. 
 27:24 But he said, “Are you really my son Esau?” So he said, “I am.” 
 27:25 Then he said, “Bring it to me and I’ll eat some of my son’s wild game, so that my soul may bless you.” So he brought it to him and he ate, and he brought him wine and he drank. 
 27:26 Then his father Isaac said to him, “Please come closer and kiss me my son.” 
-27:27 So he came closer and kissed him. When he smelled the smell of his clothes, he blessed him and said, “Behold, the smell of my son is like the smell of a field that </span><span class="it"><span class="sc"><span class="content">Adonai
+27:27 So he came closer and kissed him. When he smelled the smell of his clothes, he blessed him and said, “Behold, the smell of my son is like the smell of a field that Adonai has blessed.
 27:28 May God give you— from the dew of the sky and from the fatness of the land— an abundance of grain and new wine. 
 27:29 May peoples serve you and may nations bow down to you. Be master over your brothers. May your mother’s sons bow down to you. May those who curse you be cursed and may those who bless you be blessed.” 
 27:30 No sooner had Isaac finished blessing Jacob and Jacob had just gone out from his father Isaac’s presence, than Esau his brother came in from his hunting. 
@@ -774,7 +774,7 @@
 27:46 Then Rebekah said to Isaac, “I’m disgusted with my life because of the daughters of Heth. If Jacob takes a wife from the daughters of Heth like these women, from the daughters of the land what is life to me?”
 28:1 So Isaac called for Jacob, blessed him, commanded him and said to him, “Don’t take a wife from the daughters of Canaan. 
 28:2 Get up, go to Paddan-aram, to the house of Bethuel, your mother’s father, and take for yourself a wife from there, from the daughters of Laban, your mother’s brother. 
-28:3 Now may </span><span class="it"><span class="content">El Shaddai
+28:3 Now may El Shaddai bless you, and make you fruitful and multiply you so that you will become an assembly of peoples.
 28:4 And may he give you the blessing of Abraham, to you and to your seed with you that you may take possession of the land of your sojourn, which God gave to Abraham.” 
 28:5 Then Isaac sent Jacob away and he went toward Paddan-aram, to Laban the son of Bethuel the Aramean, the brother of Rebekah, the mother of Jacob and Esau. 
 28:6 Now Esau saw that Isaac blessed Jacob when he sent him to Paddan-aram to take for himself a wife from there, when he blessed him and commanded him saying, “Don’t take a wife from the daughters of Canaan.” 
@@ -784,15 +784,15 @@
 28:10 Then Jacob left Beer-sheba and went toward Haran. 
 28:11 He happened upon a certain place and spent the night there, for the sun had set. So he took one of the stones from the place and put it by his head and lay down in that place. 
 28:12 He dreamed: All of a sudden, there was a stairway set up on the earth and its top reaching to the heavens—and behold, angels of God going up and down on it! 
-28:13 Surprisingly, </span><span class="it"><span class="sc"><span class="content">Adonai
+28:13 Surprisingly, Adonai was standing on top of it and He said, “I am Adonai, the God of your father Abraham and the God of Isaac. The land on which you lie, I will give it to you and to your seed.
 28:14 Your seed will be as the dust of the land, and you will burst forth to the west and to the east and to the north and to the south. And in you all the families of the earth will be blessed—and in your seed. 
 28:15 Behold, I am with you, and I will watch over you wherever you go, and I will bring you back to this land, for I will not forsake you until I have done what I promised you.” 
-28:16 Jacob woke up from his sleep and said, “Undoubtedly, </span><span class="it"><span class="sc"><span class="content">Adonai
+28:16 Jacob woke up from his sleep and said, “Undoubtedly, Adonai is in this place—and I was unaware.”
 28:17 So he was afraid and said, “How fearsome this place is! This is none other than the House of God—this must be the gate of heaven!” 
 28:18 Early in the morning Jacob got up and took the stone, which he had placed by his head, and set it up as a memorial stone and poured oil on top of it. 
 28:19 He called the name of that place Beth-El (though originally the city’s name was Luz). 
 28:20 Then Jacob made a vow saying, “If God will be with me and watch over me on this way that I am going, and provide me food to eat and clothes to wear, 
-28:21 and I return in </span><span class="it"><span class="content">shalom
+28:21 and I return in shalom to my father’s house, then Adonai will be my God.
 28:22 So this stone which I set up as a memorial stone will become God’s House, and of everything You provide me I will definitely give a tenth of it to You.”
 29:1 Then Jacob lifted up his feet and went to the land of the peoples of the east. 
 29:2 When he looked, suddenly, there was a well in the field, and there were three herds of sheep resting by it. (For from that well they would water the flocks. The stone on the mouth of the well was large. 
@@ -824,11 +824,11 @@
 29:28 So Jacob did; he also completed this one’s bridal week. Then he gave him his daughter Rachel to be his wife. 
 29:29 Laban also gave his daughter Rachel his female servant Bilhah, to be a servant for her. 
 29:30 Jacob also went to Rachel and indeed loved Rachel more than Leah. So he served with him for yet another seven years. 
-29:31 Now </span><span class="it"><span class="sc"><span class="content">Adonai
-29:32 Leah became pregnant and gave birth to a son and named him Reuben because she said, “For </span><span class="it"><span class="sc"><span class="content">Adonai
-29:33 Then she became pregnant again and gave birth to a son, and said, “For </span><span class="it"><span class="sc"><span class="content">Adonai
+29:31 Now Adonai saw that Leah was unloved, so he opened her womb; but Rachel was unable to conceive.
+29:32 Leah became pregnant and gave birth to a son and named him Reuben because she said, “For Adonai has seen my affliction. Surely now my husband will love me.”
+29:33 Then she became pregnant again and gave birth to a son, and said, “For Adonai heard that I am hated, so He’s given me this one also,” and she named him Simeon.
 29:34 Then she became pregnant again and gave birth to a son, and said, “Now this time my husband will join himself to me because I’ve given birth to three sons for him.” For this reason he was named Levi. 
-29:35 Then she became pregnant again and gave birth to a son and said, “This time I praise </span><span class="it"><span class="sc"><span class="content">Adonai
+29:35 Then she became pregnant again and gave birth to a son and said, “This time I praise Adonai.” For this reason she named him Judah. Then she stopped having children.
 30:1 When Rachel saw that she bore no children for Jacob, Rachel was jealous of her sister. So she said to Jacob, “Give me sons—if there are none, I’ll die!” 
 30:2 But Jacob became furious with Rachel and said, “Am I, instead of God, the one who withheld from you the fruit of the womb?” 
 30:3 So she said, “Here’s my maid-servant Bilhah. Go to her and let her give birth on my knees, so that from her I may also build a family.” 
@@ -852,10 +852,10 @@
 30:21 Afterwards she gave birth to a daughter and named her Dinah. 
 30:22 Then God remembered Rachel and God listened to her and opened her womb. 
 30:23 Then she became pregnant and gave birth to a son. So she said, “God has taken away my disgrace.” 
-30:24 She named him Joseph saying, “May </span><span class="it"><span class="sc"><span class="content">Adonai
+30:24 She named him Joseph saying, “May Adonai add another son for me.”
 30:25 Now it was after Rachel gave birth to Joseph that Jacob said to Laban, “Send me away so that I can go to my place and to my land. 
 30:26 Give me my wives and my children for whom I’ve served you, and let me go. For you yourself know my labor—that I’ve served you.” 
-30:27 But Laban said to him, “If I’ve found favor in your eyes—I’ve looked for good omens, and </span><span class="it"><span class="sc"><span class="content">Adonai
+30:27 But Laban said to him, “If I’ve found favor in your eyes—I’ve looked for good omens, and Adonai has blessed me because of you.”
 30:28 Moreover he said, “Name your own price and I’ll pay it.” 
 30:29 Then he said to him, “You yourself know how I’ve served you and how your livestock fared with me. 
 30:30 For you had very little before I came, and it has been busting at the seams in abundance. So </span><span class="it"><span class="sc"><span class="content">Adonai
@@ -874,7 +874,7 @@
 30:43 And the man grew exceedingly prosperous and had numerous flocks, along with female and male servants, camels and donkeys.
 31:1 Now Jacob heard the words Laban’s sons were saying, “Jacob has taken everything that belongs to our father, and from what belongs to our father he has made all these riches.” 
 31:2 Then Jacob saw Laban’s face, and he noticed that his expression wasn’t the same as it was just a day or two before. 
-31:3 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+31:3 Then Adonai said to Jacob, “Return to the land of your fathers and to your relatives, and I will be with you.”
 31:4 So Jacob sent and called for Rachel and Leah to come to the field, to his flock. 
 31:5 He said to them, “I can see by your father’s face that his expression isn’t the same as it was just a day or two ago. But the God of my father has been with me. 
 31:6 Now you yourselves know that I’ve served your father with all my strength. 
@@ -882,7 +882,7 @@
 31:8 If he would say, ‘the spotted ones will be your salary,’ then the flocks would give birth to spotted ones. Or if he would say, ‘the striped ones will be your salary,’ then all the flocks would give birth to striped ones. 
 31:9 So God has taken away your father’s livestock and has given them to me. 
 31:10 Now it happened when the flocks were in heat that I lifted up my eyes and saw, in a dream, behold, the males going up to the flocks were striped, spotted and speckled. 
-31:11 Then the angel of God said to me in the dream, ‘Jacob,’ and I said, ‘</span><span class="it"><span class="content">Hineni
+31:11 Then the angel of God said to me in the dream, ‘Jacob,’ and I said, ‘Hineni.’
 31:12 He said, ‘Lift up your eyes and see that all the males going up to the flocks are striped, spotted and speckled. For I have seen everything Laban has done to you. 
 31:13 I am the God of Beth-El where you anointed a memorial stone, where you made a vow to Me. Get up now and leave this land, and return to the land of your relatives.’” 
 31:14 Then Rachel answered along with Leah and they said to him, “Is there still a portion and inheritance for us in our father’s house? 
@@ -920,7 +920,7 @@
 31:46 and Jacob said to his relatives, “Gather stones.” So they took the stones and made a pile. Then they ate there on the pile. 
 31:47 Laban called it Jegar-sahadutha and Jacob called it Gal-ed. 
 31:48 And Laban said, “This pile is a witness between me and you today.” That is why its name is Gal-ed, 
-31:49 or Mizpah, for he said, “Let </span><span class="it"><span class="sc"><span class="content">Adonai
+31:49 or Mizpah, for he said, “Let Adonai keep watch between you and me when we are out of one another’s sight.
 31:50 If you mistreat my daughters, and if you take wives besides my daughters, though no one is with us, look! God is the witness between you and me.” 
 31:51 Laban said further to Jacob, “Behold, this pile, and this pillar which I’ve set up between you and me: 
 31:52 this pile serves as a witness, that I won’t pass by this pillar to go to you, and that you won’t pass by this pile and this pillar to go to me—with evil intent. 
@@ -936,7 +936,7 @@
 32:7 The messengers returned to Jacob saying, “We went to your brother, to Esau, and he’s also coming out to meet you—and 400 men with him.” 
 32:8 So Jacob became extremely afraid and distressed. He divided the people with him, along with the flocks and herds and camels, into two camps, 
 32:9 for he thought, “If Esau comes to one camp and strikes it, the camp that’s left will escape.” 
-32:10 Then Jacob said, “O God of my father Abraham, and God of my father Isaac, </span><span class="it"><span class="sc"><span class="content">Adonai
+32:10 Then Jacob said, “O God of my father Abraham, and God of my father Isaac, Adonai, who said to me, ‘Return to your land and to your relatives and I will do good with you.’
 32:11 I am unworthy of all the proofs of mercy and of all the dependability that you have shown to your servant. For with only my staff I crossed over this Jordan, and now I’ve become two camps. 
 32:12 Deliver me, please, from my brother’s hand, from Esau’s hand, for I’m afraid of him that he’ll come and strike me—the mothers with the children. 
 32:13 You Yourself said, ‘I will most certainly do good with you, and will make your seed like the sand of the sea that cannot be counted because of its abundance.’” 
@@ -976,7 +976,7 @@
 33:15 Then Esau said, “Please let me leave with you some of the people who are with me.” But he said, “What’s this? Let me find favor in my lord’s eyes.” 
 33:16 So on that day Esau returned on his way to Seir, 
 33:17 but Jacob journeyed to Sukkot and built a house for himself, and for his livestock he made booths. That is the reason that place is called Sukkot. 
-33:18 So Jacob arrived in </span><span class="it"><span class="content">shalom
+33:18 So Jacob arrived in shalom to the city of Shechem, which is in the land of Canaan, when he came from Paddan-aram, and camped right in front of the city.
 33:19 He purchased the portion of the field there where he had pitched his tent from the sons of Hamor, Shechem’s father, for 100 pieces of money. 
 33:20 There he set up an altar, and he called it, El is Israel’s God.
 34:1 Now Dinah, Leah’s daughter whom she bore for Jacob, went out to look at the daughters of the land. 
@@ -1020,7 +1020,7 @@
 35:8 Then Rebekah’s nurse Deborah died, and was buried below Beth-El, under the oak—so it was named Oak of Weeping. 
 35:9 God appeared to Jacob again, after he returned from Paddan-aram, and He blessed him. 
 35:10 God said to him: “Your name was Jacob. No longer will your name be Jacob, for your name will be Israel.” So He named him Israel. 
-35:11 God also said to him: “I am </span><span class="it"><span class="content">El Shaddai
+35:11 God also said to him: “I am El Shaddai. Be fruitful and multiply. A nation and an assembly of nations will come from you. From your loins will come forth kings.
 35:12 The land that I gave to Abraham and to Isaac— I give it to you, and to your seed after you I will give the land.” 
 35:13 Then God went up from him at the place where He had spoken with him. 
 35:14 Jacob set up a memorial stone in the place where He had spoken with him—a stone pillar—and he poured a drink offering on it and poured oil on it. 
@@ -1085,7 +1085,7 @@
 37:1 Now Jacob dwelled in the land where his father had sojourned, in the land of Canaan. 
 37:2 These are the genealogies of Jacob. When Joseph was 17 years old (he was a youth), he was shepherding the flocks with his brothers—with the sons of his father’s wives Bilhah and Zilpah. Joseph brought back a bad report about them to their father. 
 37:3 Now Israel loved Joseph more than all his other sons because he was the son of his old age. So he had made him a long-sleeved tunic. 
-37:4 When his brothers saw that their father loved him more than all his brothers, they hated him and could not speak to him in </span><span class="it"><span class="content">shalom
+37:4 When his brothers saw that their father loved him more than all his brothers, they hated him and could not speak to him in shalom.
 37:5 Then Joseph dreamed a dream and told his brothers—and they hated him even more. 
 37:6 He said to them, “Please listen to this dream I dreamed. 
 37:7 There we were binding sheaves in the middle of the field. All of a sudden, my sheaf arose and stood upright. And behold, your sheaves gathered around and bowed down to my sheaf.” 
@@ -1124,10 +1124,10 @@
 38:4 She became pregnant again and gave birth to a son, and she named him Onan. 
 38:5 She gave birth to yet another son and she called him Shelah. He was in Chezib when she gave birth to him. 
 38:6 Then Judah got a wife for Er, his firstborn, and her name was Tamar. 
-38:7 But Er, Judah’s firstborn, was evil in </span><span class="it"><span class="sc"><span class="content">Adonai
+38:7 But Er, Judah’s firstborn, was evil in Adonai’s eyes, so Adonai put him to death.
 38:8 Then Judah said to Onan, go to your brother’s wife to perform the duty of a brother-in-law to her, and raise up a seed for your brother. 
 38:9 But Onan knew that the seed would not be his. So every time he went to his brother’s wife he would destroy it on the ground so as not to provide a seed for his brother. 
-38:10 What he did was evil in </span><span class="it"><span class="sc"><span class="content">Adonai
+38:10 What he did was evil in Adonai’s eyes, so He put him to death also.
 38:11 Then Judah said to his daughter-in-law Tamar, “Stay as a widow in your father’s house until my son Shelah grows up,” because he thought, “Otherwise he too might die, like his brothers.” So Tamar went and stayed in her father’s house. 
 38:12 Now the days became many, and Shua’s daughter, Judah’s wife, died. After Judah consoled himself, he went up to Timnah to his sheepshearers, he and his friend Hirah the Adullamite. 
 38:13 Then Tamar was told, “Look! Your father-in-law is going up to Timnah to shear his flocks.” 
@@ -1149,10 +1149,10 @@
 38:29 But as he was pulling his hand back in, behold, his brother came out. So she said, “How you have broken through! The breach is because of you.” And he named him Perez. 
 38:30 Afterward his brother, on whose hand was the scarlet thread, came out. And he named him Zerah.
 39:1 Now Joseph had been brought down to Egypt. Potiphar, an official of Pharaoh, commander of the bodyguards, bought him from the hand of the Ishmaelites, who had brought him down there. 
-39:2 But </span><span class="it"><span class="sc"><span class="content">Adonai
-39:3 His master saw that </span><span class="it"><span class="sc"><span class="content">Adonai
+39:2 But Adonai was with Joseph. So he became a successful man in the house of his master, the Egyptian.
+39:3 His master saw that Adonai was with him and that Adonai made everything he set his hand to successful.
 39:4 Joseph found favor in his eyes, so he served him as a personal servant and he made him an overseer over his household; everything that was his he entrusted into his hand. 
-39:5 From the time that he made him an overseer in his house and over everything that belonged to him, </span><span class="it"><span class="sc"><span class="content">Adonai
+39:5 From the time that he made him an overseer in his house and over everything that belonged to him, Adonai blessed the Egyptian’s house because of Joseph; Adonai’s blessing was on everything that belonged to him, in the house and in the field.
 39:6 So he released everything he owned into Joseph’s hand. With him in charge, he did not think about anything except the food he ate. Now Joseph was handsome in form and handsome in appearance. 
 39:7 Now after these things, the master’s wife lifted up her eyes at Joseph and said, “Come, lie down with me!” 
 39:8 But he refused. “Look,” he said to his master’s wife, “my master doesn’t think about anything in the house with me in charge, and everything that belongs to him he’s entrusted into my hand. 
@@ -1168,9 +1168,9 @@
 39:18 When I raised my voiced and screamed, he left his garment with me and fled outside.” 
 39:19 Now when his master heard the words his wife spoke to him saying, “Such are the things your slave did to me,” his anger burned. 
 39:20 Then Joseph’s master took him and put him in prison, the place where the king’s prisoners were confined. So there he was, in the prison. 
-39:21 But </span><span class="it"><span class="sc"><span class="content">Adonai
+39:21 But Adonai was with Joseph and extended kindness to him and gave him favor in the eyes of the commander of the prison.
 39:22 The commander of the prison entrusted into Joseph’s hand all the prisoners who were in the prison, so that everything that was done there, he was responsible for it. 
-39:23 The commander of the prison did not concern himself with anything at all under his care, because </span><span class="it"><span class="sc"><span class="content">Adonai
+39:23 The commander of the prison did not concern himself with anything at all under his care, because Adonai was with him, and Adonai made whatever he did successful.
 40:1 Now it was after these things that the cupbearer and the baker of the king of Egypt offended their master, the king of Egypt. 
 40:2 Pharaoh was angry with his two officials, with the chief of the cupbearers and with the chief of the bakers. 
 40:3 So he put them in custody of the house of the commander of the bodyguards—in the prison, the place where Joseph was confined. 
@@ -1209,7 +1209,7 @@
 41:13 Then it came about, just as he interpreted for us, so it happened. Me he restored to my position, but him he hung. 
 41:14 Then Pharaoh sent and called for Joseph. So they quickly fetched him from the pit. He shaved, changed his clothes, and came to Pharaoh. 
 41:15 Then Pharaoh said to Joseph, “I dreamed a dream and there’s no one to interpret it. I heard about you— it’s said that you can listen to a dream to interpret it.” 
-41:16 Then Joseph answered Pharaoh saying, “It’s not within me. God will answer with </span><span class="it"><span class="content">shalom
+41:16 Then Joseph answered Pharaoh saying, “It’s not within me. God will answer with shalom for Pharaoh.”
 41:17 So Pharaoh said to Joseph: “In my dream, there I was, standing by the bank of the Nile. 
 41:18 And to my surprise, out of the Nile seven cows were coming up, beefy and good-looking, and they grazed in the reeds. 
 41:19 Then all of a sudden, there were seven other cows coming up after them, feeble, very ugly and emaciated. I’ve never seen the likes of these in the whole land of Egypt for ugliness. 
@@ -1288,7 +1288,7 @@
 42:35 Now as they were emptying their sacks, behold, there was each man’s bundle of money in his sack. When they saw their money bundles, they and their father, they were afraid. 
 42:36 Then their father Jacob said to them, “You’ve made me childless! Joseph is no more. Now Simeon is gone, and next you’ll take Benjamin! Everything is against me!” 
 42:37 Then Reuben spoke to his father, saying, “You can put my two sons to death if I don’t bring him back to you. Put him in my hand and I—I will return him to you.” 
-42:38 But he said, “My son will not go down with you—for his brother is dead and he alone remains. And if harm should happen to him along the way you’re going, you’ll bring my grey hair down to </span><span class="it"><span class="content">Sheol
+42:38 But he said, “My son will not go down with you—for his brother is dead and he alone remains. And if harm should happen to him along the way you’re going, you’ll bring my grey hair down to Sheol in grief.”
 43:1 Now the famine was severe in the land. 
 43:2 When they finished eating the grain they had brought from Egypt their father said to them, “Go back. Buy us a little food.” 
 43:3 But Judah said to him, “The man warned us firmly saying, ‘You won’t see my face unless your brother is with you.’ 
@@ -1302,7 +1302,7 @@
 43:11 Then their father Israel said to them, “If it must be so, then do this: take some of the best products of the land in your bags, and bring an offering down to the man—a little balsam and a little honey, gum and myrrh, pistachios and almonds. 
 43:12 Also take in your hand a double portion of silver, and bring back in your hand the silver that had been returned in the mouth of your sacks. Perhaps it was a mistake. 
 43:13 Take your brother too—now, get up, go back to the man! 
-43:14 May </span><span class="it"><span class="content">El Shaddai
+43:14 May El Shaddai grant you mercy before the man, so that he may release your other brother to you, along with Benjamin. As for me, if I am bereaved, I am bereaved.”
 43:15 Then the men took this offering. They also took the double portion of silver in their hand, as well as Benjamin. So they got up and went down to Egypt, and stood before Joseph. 
 43:16 When Joseph saw Benjamin with them, he said to the one over his house, “Bring the men into the house. Slaughter an animal and prepare it, for the men will eat with me this afternoon. 
 43:17 So the man did as Joseph said, and the man brought the men into Joseph’s house. 
@@ -1351,9 +1351,9 @@
 44:26 So we said, ‘We won’t go down unless we have our youngest brother with us—then we’ll go down. For we won’t see the man’s face unless our youngest brother is with us.’ 
 44:27 “Then your servant my father said to us, ‘You yourselves know that my wife bore me two sons. 
 44:28 One went out from me, so I said, “He must have been torn to shreds,” and I haven’t seen him since. 
-44:29 And if you also take this one away from before me and an accident happens to him, then you’ll bring my grey hair down to the evil of </span><span class="it"><span class="content">Sheol
+44:29 And if you also take this one away from before me and an accident happens to him, then you’ll bring my grey hair down to the evil of Sheol.’
 44:30 “Now if I come to your servant my father and the boy isn’t with us, since his life is bound to his life, 
-44:31 when he sees that the boy is no more, he’ll die. Then your servants will bring the grey hair of your servant our father down to </span><span class="it"><span class="content">Sheol
+44:31 when he sees that the boy is no more, he’ll die. Then your servants will bring the grey hair of your servant our father down to Sheol in grief.
 44:32 For your servant became pledge for the boy with my father saying, ‘If I don’t bring him back to you, I will bear the blame before my father all my days.’ 
 44:33 So now, please let your servant remain as my lord’s slave in the boy’s place, and let the boy go up with his brothers. 
 44:34 For how can I go up to my father and the boy is not with me? Else I must see the evil that would come upon my father!”
@@ -1386,7 +1386,7 @@
 45:27 But they told him all of Joseph’s words that he had told them. When he saw the wagons that Joseph had sent to pick him up, the spirit of their father Jacob revived. 
 45:28 Then Israel said, “Enough! My son Joseph is still alive. I must go and see him, before I die.”
 46:1 So Israel set out, along with everything that belonged to him. When he came to Beersheba, he offered sacrifices to the God of his father Isaac. 
-46:2 In visions of the night God said to Israel, “Jacob, Jacob.” “</span><span class="it"><span class="content">Hineni
+46:2 In visions of the night God said to Israel, “Jacob, Jacob.” “Hineni,” he said.
 46:3 “I am God, the God of your father,” He said. “Do not be afraid to go down to Egypt, for I will turn you into a great nation there. 
 46:4 I Myself will go down with you to Egypt and I Myself will also most certainly bring you up. Joseph will put his hands on your eyes.” 
 46:5 Then Jacob arose from Beersheba and Israel’s sons carried Jacob their father, their little children, and their wives in the carts that Pharaoh had sent to carry him. 
@@ -1452,7 +1452,7 @@
 47:31 “Swear to me,” he said. So he swore to him. Then Israel bowed down in worship on the head of his staff.
 48:1 After these things, someone told Joseph, “Behold, your father is sick.” So he took his two sons, Manasseh and Ephraim, with him. 
 48:2 When someone told Jacob, saying, “Behold, your son Joseph has come to you,” Israel summoned his strength and sat up in the bed. 
-48:3 Then Jacob said to Joseph, “</span><span class="it"><span class="content">El Shaddai
+48:3 Then Jacob said to Joseph, “El Shaddai appeared to me in Luz, in the land of Canaan, and blessed me.”
 48:4 He said to me, ‘I am going to make you fruitful and multiply you and turn you into an assembly of peoples, and I will give this land to your seed after you as an everlasting possession.’ 
 48:5 So now, your two sons, who were born to you in the land of Egypt before I came to you in Egypt, they are mine. Ephraim and Manasseh will be mine, just like Reuben and Simeon. 
 48:6 Any descendent of yours whom you father after them will be yours; they will be identified by the names of their brothers for their inheritance. 
@@ -1489,14 +1489,14 @@
 49:15 He saw that a resting place was good, and that the land was pleasant. He leaned his shoulder to bear a burden, and became a forced laborer. 
 49:16 Dan will judge his people, as one of the tribes of Israel. 
 49:17 Let Dan be a serpent beside a road, a viper beside a path, who strikes a horse’s heels, so that its rider falls backward. 
-49:18 For your salvation I wait, </span><span class="it"><span class="sc"><span class="content">Adonai
+49:18 For your salvation I wait, Adonai!
 49:19 Gad—attackers will attack him, but he will attack their heels. 
 49:20 Asher—rich is his food— he will provide delicacies fit for a king. 
 49:21 Naphtali is a doe let loose, who offers words of beauty. 
 49:22 A fruitful son is Joseph, a fruitful son beside a spring— daughters walk along a wall. 
 49:23 The archers were bitter and shot arrows and were hostile towards him. 
 49:24 Yet his bow was always filled, and his arms quick-moving— by the hands of the Mighty One of Jacob. From there a Shepherd, the Stone of Israel, 
-49:25 from the God of your father who helps you, and </span><span class="it"><span class="content">Shaddai
+49:25 from the God of your father who helps you, and Shaddai who blesses you, with blessings of heavens above, blessings of the deep that lies below, blessings of breasts and womb.
 49:26 The blessings of your father surpassed the blessings of the ancient mountains, the desire of the everlasting hills. May they be upon Joseph’s head, upon the crown of the one set apart from his brothers. 
 49:27 Benjamin is a ravening wolf— in the morning he devours spoils, and in the evening divides plunder. 
 49:28 These are the tribes of Israel, twelve in all, and this is what their father spoke to them. He blessed them, each one he blessed with a suitable blessing. 
