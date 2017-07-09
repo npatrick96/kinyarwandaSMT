@@ -1,44 +1,44 @@
-1:1 The proverbs of Solomon son of David, king of Israel: 
-1:2 to acquire wisdom and discipline, to understand the words of insight, 
-1:3 to receive instruction in wise behavior, righteousness, justice and fairness, 
-1:4 to give discernment to the naïve, knowledge and discretion to the youth 
-1:5 (let the wise listen and increase learning and the discerning obtain wise counsel) 
-1:6 to understand a proverb and a puzzle, the sayings of the wise and their riddles.
-1:7 The fear of </span><span class="it"><span class="sc"><span class="content">Adonai
-1:8 Hear, my son, your father’s instruction and forsake not your mother’s teaching. 
-1:9 For they are a garland of grace for your head and a chain to adorn your neck.
-1:10 My son, if sinners entice you, do not give in. 
-1:11 Suppose they say: “Come with us! Let’s lie in wait for blood! Let’s ambush the innocent— for no reason! 
-1:12 Let’s swallow them alive like </span><span class="it"><span class="content">Sheol
-1:13 We’ll find all sorts of valuable things, we’ll fill our homes with loot! 
-1:14 Throw your lot in with us— we’ll all have one wallet.” 
-1:15 My son, do not go along with them, keep your foot from their path— 
-1:16 for their feet run to evil and they are swift to shed blood. 
-1:17 Surely it is useless to spread a net in the eyes of all winged creatures! 
-1:18 But they lie in wait for their own blood. They ambush their own lives. 
-1:19 Such is the fate of all gaining by violence. It takes the life of its possessor.
-1:20 Wisdom calls aloud in the streets, she raises her voice in public squares. 
-1:21 She cries out above the commotion. At the entrances of the city gates, she utters her speech: 
-1:22 “How long will you naïve ones love simplicity, you scoffers delight in scoffing, and you fools hate knowledge? 
-1:23 You are repulsed at my rebuke. Behold, I pour out my heart to you. I will make my words known to you. 
-1:24 Because you refused when I called, and did not pay attention when I stretched out my hand, 
-1:25 since you ignore all my advice and would not accept my rebuke, 
-1:26 I in turn will laugh at your calamity. I will mock when dread comes on you, 
-1:27 when your terror comes like a storm and your calamity sweeps over you like a whirlwind, when trouble and distress overwhelm you! 
-1:28 Then they will cry out to me, but I will not answer! They will earnestly seek me, but will not find me. 
-1:29 Because they hated knowledge and did not choose the fear of </span><span class="it"><span class="sc"><span class="content">Adonai
-1:30 they would not accept my counsel, they spurned all my reproof, 
-1:31 so they will eat the fruit of their own way and be filled with their own schemes. 
-1:32 For the backsliding of the naïve will kill them and the complacency of fools will destroy them. 
-1:33 But whoever pays attention to me will live securely, and be free from the fear of evil.”
-2:1 My son, if you accept my words and treasure my </span><span class="it"><span class="content">mitzvot
+1:1 The proverbs of Solomon son of David, king of Israel:
+1:2  to acquire wisdom and discipline, to understand the words of insight,
+1:3  to receive instruction in wise behavior, righteousness, justice and fairness,
+1:4  to give discernment to the naïve, knowledge and discretion to the youth
+1:5  (let the wise listen and increase learning and the discerning obtain wise counsel)
+1:6  to understand a proverb and a puzzle, the sayings of the wise and their riddles.
+1:7  The fear of Adonai is the beginning of knowledge, but fools despise wisdom and discipline.
+1:8  Hear, my son, your father’s instruction and forsake not your mother’s teaching.
+1:9  For they are a garland of grace for your head and a chain to adorn your neck.
+1:10  My son, if sinners entice you, do not give in.
+1:11  Suppose they say: “Come with us! Let’s lie in wait for blood! Let’s ambush the innocent— for no reason!
+1:12  Let’s swallow them alive like Sheol— still healthy, as they go down to the Pit!
+1:13  We’ll find all sorts of valuable things, we’ll fill our homes with loot!
+1:14  Throw your lot in with us— we’ll all have one wallet.”
+1:15  My son, do not go along with them, keep your foot from their path—
+1:16  for their feet run to evil and they are swift to shed blood.
+1:17  Surely it is useless to spread a net in the eyes of all winged creatures!
+1:18  But they lie in wait for their own blood. They ambush their own lives.
+1:19  Such is the fate of all gaining by violence. It takes the life of its possessor.
+1:20  Wisdom calls aloud in the streets, she raises her voice in public squares.
+1:21  She cries out above the commotion. At the entrances of the city gates, she utters her speech:
+1:22  “How long will you naïve ones love simplicity, you scoffers delight in scoffing, and you fools hate knowledge?
+1:23  You are repulsed at my rebuke. Behold, I pour out my heart to you. I will make my words known to you.
+1:24  Because you refused when I called, and did not pay attention when I stretched out my hand,
+1:25  since you ignore all my advice and would not accept my rebuke,
+1:26  I in turn will laugh at your calamity. I will mock when dread comes on you,
+1:27  when your terror comes like a storm and your calamity sweeps over you like a whirlwind, when trouble and distress overwhelm you!
+1:28  Then they will cry out to me, but I will not answer! They will earnestly seek me, but will not find me.
+1:29  Because they hated knowledge and did not choose the fear of Adonai,
+1:30  they would not accept my counsel, they spurned all my reproof,
+1:31  so they will eat the fruit of their own way and be filled with their own schemes.
+1:32  For the backsliding of the naïve will kill them and the complacency of fools will destroy them.
+1:33  But whoever pays attention to me will live securely, and be free from the fear of evil.”
+2:1 My son, if you accept my words and treasure my mitzvot within you,
 2:2 making your ear attentive to wisdom, inclining your heart to discernment, 
 2:3 yes, if you call out for insight, lifting up your voice for discernment, 
 2:4 if you seek her as silver and search for her as for hidden treasures, 
-2:5 then you will know the fear of </span><span class="it"><span class="sc"><span class="content">Adonai
-2:6 For </span><span class="it"><span class="sc"><span class="content">Adonai
+2:5 then you will know the fear of Adonai and discover the knowledge of God.
+2:6 For Adonai gives wisdom. Out of His mouth comes knowledge and understanding.
 2:7 He stores up sound wisdom for the upright. He is a shield to those who walk in integrity. 
-2:8 He guards the paths of justice, and protects the way of His </span><span class="it"><span class="content">kedoshim
+2:8 He guards the paths of justice, and protects the way of His kedoshim.
 2:9 Then you will discern what is right and just and fair—every good path. 
 2:10 For wisdom will enter your heart and knowledge will be pleasant to your soul. 
 2:11 Discretion will watch over you —discernment will guard you— 
@@ -53,40 +53,40 @@
 2:20 So you will walk in the way of good men and keep to the paths of the righteous. 
 2:21 For the upright will dwell in the land and the blameless will remain in it. 
 2:22 But the wicked will be cut off from the land and the treacherous uprooted from it.
-3:1 My son, do not forget my teaching, but let your heart keep my </span><span class="it"><span class="content">mitzvot
-3:2 For length of days and years of life, and </span><span class="it"><span class="content">shalom
-3:3 Let kindness and truth never leave you— bind them around your neck, write them on the tablet of your heart. 
-3:4 Then you will gain favor and a good name in the eyes of God and man. 
-3:5 Trust in </span><span class="it"><span class="sc"><span class="content">Adonai
-3:6 In all your ways acknowledge Him, and He will make your paths straight. 
-3:7 Do not be wise in your own eyes; fear </span><span class="it"><span class="sc"><span class="content">Adonai
-3:8 It will be healing to your body and refreshment to your bones. 
-3:9 Honor </span><span class="it"><span class="sc"><span class="content">Adonai
+3:1 My son, do not forget my teaching, but let your heart keep my mitzvot.
+3:2 For length of days and years of life, and shalom they will add to you.
+3:3 Let kindness and truth never leave you— bind them around your neck, write them on the tablet of your heart.
+3:4 Then you will gain favor and a good name in the eyes of God and man.
+3:5 Trust in Adonai with all your heart, lean not on your own understanding.
+3:6 In all your ways acknowledge Him, and He will make your paths straight.
+3:7 Do not be wise in your own eyes; fear Adonai and turn away from evil.
+3:8 It will be healing to your body and refreshment to your bones.
+3:9 Honor Adonai with your wealth and with the first of your entire harvest.
 3:10 Then your barns will be filled with plenty, your vats will overflow with new wine.
-3:11 My son, never despise </span><span class="it"><span class="sc"><span class="content">Adonai
-3:12 For </span><span class="it"><span class="sc"><span class="content">Adonai
-3:13 Happy is the man who finds wisdom and the man who gains understanding. 
-3:14 For her trade-value is better than silver, and her yield better than fine gold. 
-3:15 She is more precious than jewels and nothing you desire compares to her. 
-3:16 Length of days is in her right hand. In her left hand are riches and honor. 
-3:17 Her ways are pleasant ways, and all of her paths are </span><span class="it"><span class="content">shalom
-3:18 She is a tree of life to those who embrace her, and blessed will be all who hold firmly to her. 
-3:19 By wisdom </span><span class="it"><span class="sc"><span class="content">Adonai
-3:20 By His knowledge the deeps were divided, and the clouds drip dew. 
-3:21 My son, hold on to sound wisdom and discernment, do not let them out of your sight. 
-3:22 They will be life to your soul, and an ornament to grace your neck. 
-3:23 Then you will walk on your way in safety, and your foot will not stumble. 
-3:24 When you lie down, you will not be afraid; when you lie down, your sleep will be sweet. 
-3:25 Have no fear of sudden terror, or of the devastation of the wicked when it comes. 
-3:26 For </span><span class="it"><span class="sc"><span class="content">Adonai
-3:27 Do not withhold good from those to whom it is due, when it is in your power to act. 
-3:28 Do not say to your neighbor, “Come back later— I’ll give it tomorrow,” when you have it with you. 
-3:29 Do not plot evil against your neighbor while he lives trustfully beside you. 
-3:30 Do not quarrel with a man for no reason —if he has done you no harm. 
-3:31 Do not envy a violent man or choose any of his ways. 
-3:32 For the devious are detestable to </span><span class="it"><span class="sc"><span class="content">Adonai
-3:33 ’s curse is on a wicked house, but He blesses a righteous home. 
-3:34 Though He scoffs at the scoffers, He gives grace to the humble. 
+3:11 My son, never despise Adonai’s discipline or dread His correction.
+3:12 For Adonai loves those He reproves, even as a father, the son in whom he delights.
+3:13 Happy is the man who finds wisdom and the man who gains understanding.
+3:14 For her trade-value is better than silver, and her yield better than fine gold.
+3:15 She is more precious than jewels and nothing you desire compares to her.
+3:16 Length of days is in her right hand. In her left hand are riches and honor.
+3:17 Her ways are pleasant ways, and all of her paths are shalom.
+3:18 She is a tree of life to those who embrace her, and blessed will be all who hold firmly to her.
+3:19 By wisdom Adonai founded the earth. By understanding He established the heavens.
+3:20 By His knowledge the deeps were divided, and the clouds drip dew.
+3:21 My son, hold on to sound wisdom and discernment, do not let them out of your sight.
+3:22 They will be life to your soul, and an ornament to grace your neck.
+3:23 Then you will walk on your way in safety, and your foot will not stumble.
+3:24 When you lie down, you will not be afraid; when you lie down, your sleep will be sweet.
+3:25 Have no fear of sudden terror, or of the devastation of the wicked when it comes.
+3:26 For Adonai will be your confidence and will keep your foot from a snare.
+3:27 Do not withhold good from those to whom it is due, when it is in your power to act.
+3:28 Do not say to your neighbor, “Come back later— I’ll give it tomorrow,” when you have it with you.
+3:29 Do not plot evil against your neighbor while he lives trustfully beside you.
+3:30 Do not quarrel with a man for no reason —if he has done you no harm.
+3:31 Do not envy a violent man or choose any of his ways.
+3:32 For the devious are detestable to Adonai, but He takes the upright into His confidence.
+3:33 Adonai’s curse is on a wicked house, but He blesses a righteous home.
+3:34 Though He scoffs at the scoffers, He gives grace to the humble.
 3:35 The wise inherit honor, but fools are held up in disgrace.
 4:1 Listen, my sons, to a father’s instruction. Pay attention, to gain understanding. 
 4:2 For I give you sound learning— do not forsake my instruction. 
@@ -119,7 +119,7 @@
 5:2 that you may maintain discretion and your lips may preserve knowledge. 
 5:3 For a seducing woman’s lips drip honey and her mouth is smoother than oil. 
 5:4 But in the end she is bitter as wormwood, sharp as a double-edged sword. 
-5:5 Her feet go down to death, her steps lead straight to </span><span class="it"><span class="content">Sheol
+5:55Her feet go down to death, her steps lead straight to Sheol.
 5:6 She does not keep straight to the path of life, her paths are crooked —but she does not know it. 
 5:7 So now, my sons, listen to me and do not turn aside from the words of my mouth. 
 5:8 Keep your path far from her and do not go near the door of her house— 
@@ -135,7 +135,7 @@
 5:18 May your fountain be blessed and may you delight in the wife of your youth. 
 5:19 A lovely hind, a graceful doe— may her breasts satisfy you always, may you always be captivated by her love. 
 5:20 Why, my son, be captivated by a seducing woman? Why embrace a foreigner’s bosom? 
-5:21 For a man’s ways are before the eyes of </span><span class="it"><span class="sc"><span class="content">Adonai
+5:21 For a man’s ways are before the eyes of Adonai, and He observes all his paths.
 5:22 The iniquities of a wicked man will ensnare him. The cords of his sin will hold him down. 
 5:23 He will die for lack of discipline, led astray by his own great folly. 
 6:1 My son, if you have become a cosigner for your neighbor, if you have shaken hands in pledge with a stranger, 
@@ -153,14 +153,14 @@
 6:13 winking his eyes, shuffling his feet, pointing his fingers, 
 6:14 who continually plots evil with deceit in his heart stirring up strife. 
 6:15 Therefore his disaster will come suddenly —in an instant he will be broken, with no remedy. 
-6:16 Six things </span><span class="it"><span class="sc"><span class="content">Adonai
+6:16 Six things Adonai hates, yes, seven are abominations to Him:
 6:17 haughty eyes, a lying tongue, hands that shed innocent blood, 
 6:18 a heart that plots wicked schemes, feet that run to evil, 
 6:19 a false witness who spouts lies, and one who stirs up strife among brothers.
-6:20 My son, keep your father’s </span><span class="it"><span class="content">mitzvah
+6:20 My son, keep your father’s mitzvah, and forsake not your mother’s teaching.
 6:21 Bind them on your heart continually— tie them around your neck. 
 6:22 When you walk, they will guide you. When you lie down, they will watch over you, and when you wake up, they will speak to you. 
-6:23 For the </span><span class="it"><span class="content">mitzvah
+6:23 For the mitzvah is a lamp, Torah a light, and corrective discipline the way of life,
 6:24 keeping you from the immoral woman, from a wayward wife’s smooth tongue. 
 6:25 Do not lust in your heart after her beauty or let her captivate you with her eyelids. 
 6:26 For on account of a prostitute one is reduced to a loaf of bread; a man’s wife preys on your precious life. 
@@ -173,8 +173,8 @@
 6:33 He will find disease and disgrace. His shame will never be wiped away. 
 6:34 For jealousy enrages a man and he will show no mercy in the day of revenge. 
 6:35 He will not accept any compensation, he will not consent, even if your bribe is great. 
-7:1 My son, keep my words and treasure my </span><span class="it"><span class="content">mitzvot
-7:2 Keep my </span><span class="it"><span class="content">mitzvot
+7:1 My son, keep my words and treasure my mitzvot within you.
+7:2 Keep my mitzvot and live, my teaching as the apple of your eye.
 7:3 Bind them on your fingers, write them on the tablet of your heart. 
 7:4 Say to wisdom, “You are my sister,” and call understanding your relative. 
 7:5 They will keep you from a seducing woman, from the foreign woman with her seductive speech. 
@@ -199,7 +199,7 @@
 7:24 Now then, sons, listen to me, pay attention to the words of my mouth. 
 7:25 Do not let your heart turn to her ways or stray onto her paths. 
 7:26 For many are the victims she has brought down, and numerous are all her slain. 
-7:27 Her house is a highway to </span><span class="it"><span class="content">Sheol
+7:27 Her house is a highway to Sheol, leading down to the chambers of death.
 8:1 Does not wisdom cry out, and understanding lift her voice? 
 8:2 On the topmost heights along the way, at the crossroads, she takes her stand. 
 8:3 Beside the gates leading into the city, at the entrances, she cries aloud: 
@@ -212,7 +212,7 @@
 8:10 Receive my instruction instead of silver and knowledge rather than choice gold. 
 8:11 For wisdom is better than jewels, nothing you desire compares with her. 
 8:12 “I, wisdom, dwell with prudence, and acquire knowledge with discretion. 
-8:13 To fear </span><span class="it"><span class="sc"><span class="content">Adonai
+8:13 To fear Adonai is to hate evil. I hate pride and arrogance, evil behavior and a perverse mouth.
 8:14 Counsel and sound wisdom are mine. I have understanding and power. 
 8:15 By me kings reign and princes decree justice. 
 8:16 By me princes govern, and all nobles who judge righteously. 
@@ -221,7 +221,7 @@
 8:19 My fruit is better than refined gold, my harvest better than choice silver. 
 8:20 I walk in the way of righteousness, along paths of justice. 
 8:21 I endow substance to those who love me and fill their treasuries. 
-8:22 “</span><span class="it"><span class="sc"><span class="content">Adonai
+8:22 “Adonai brought me forth, the first of His way, before His works of old.
 8:23 From eternity I was appointed from the beginning, before the world began. 
 8:24 When there were no depths, I was brought forth, when there were no fountains abounding with water. 
 8:25 Before the mountains were shaped, before the hills, I was brought forth. 
@@ -234,7 +234,7 @@
 8:32 “So now, children, listen to me! Blessed are those who keep my ways. 
 8:33 Heed discipline and be wise, and do not neglect it. 
 8:34 Blessed is the one who listens to me, watching daily at my gates, waiting at my doorposts. 
-8:35 For whoever finds me finds life and obtains favor from </span><span class="it"><span class="sc"><span class="content">Adonai
+8:35 For whoever finds me finds life and obtains favor from Adonai.
 8:36 But whoever fails to find me harms his life— all who hate me love death.”
 9:1 Wisdom has built her house. She has carved out her seven pillars. 
 9:2 She has slaughtered her meat, she has mixed her wine; she has also set her table. 
@@ -245,7 +245,7 @@
 9:7 Whoever corrects a scoffer is asking for insult. Whoever reproves a wicked man gets abuse. 
 9:8 Do not correct a scoffer or he will hate you. Rebuke a wise man and he will love you. 
 9:9 Instruct a wise man and he will be wiser still. Teach a righteous man and he will increase in learning. 
-9:10 The fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+9:10 The fear of Adonai is the beginning of wisdom and knowledge of the Holy One is understanding.
 9:11 For through me your days will be many and years will be added to your life. 
 9:12 If you are wise, you are wise to your own advantage, but if you scoff, you bear it alone. 
 9:13 The foolish woman is rowdy. She is naïve and knows nothing. 
@@ -253,7 +253,7 @@
 9:15 calling to those who pass by, who go straight on their way: 
 9:16 “Whoever is naïve, let him turn in here.” To those who lack understanding, she says: 
 9:17 “Stolen water is sweet and bread eaten in secret is delicious!” 
-9:18 But he does not know that the dead are there— her guests are in the depths of </span><span class="it"><span class="content">Sheol
+9:18 But he does not know that the dead are there— her guests are in the depths of Sheol.
 10:1 The proverbs of Solomon. A wise son gives joy to his father, but a foolish son grief to his mother. 
 10:2 Ill-gotten treasures profit nothing, but righteousness delivers from death. 
 10:3  will not let a righteous soul go hungry, but thwarts the cravings of the wicked. 
@@ -275,18 +275,18 @@
 10:19 When words abound, transgression is unavoidable. but whoever restrains his lips is wise. 
 10:20 The tongue of the righteous is choice silver. The heart of the wicked is of little value. 
 10:21 The lips of the righteous feed many, but fools die for lack of understanding. 
-10:22 The blessing of </span><span class="it"><span class="sc"><span class="content">Adonai
+10:22 The blessing of Adonai brings wealth and He adds no trouble with it.
 10:23 As doing wickedness is delight to a fool, so is wisdom to a man of discernment. 
 10:24 What the wicked dread will fall on them. The desire of the righteous will be given. 
 10:25 When the whirlwind passes, the wicked are no more, but the foundation of the righteous is everlasting. 
 10:26 Like vinegar to the teeth or smoke to the eyes, so is a slacker to those who send him. 
-10:27 The fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+10:27 The fear of Adonai prolongs life, but the years of the wicked are cut short.
 10:28 The prospect of the righteous is joy, but the hope of the wicked perishes. 
-10:29 The way of </span><span class="it"><span class="sc"><span class="content">Adonai
+10:29 The way of Adonai is a stronghold to the upright, but it is a ruin to those who do evil.
 10:30 The righteous will never be uprooted, but the wicked will not dwell in the land. 
 10:31 The mouth of the righteous bears the fruit of wisdom, but a perverse tongue will be cut out. 
 10:32 The lips of the righteous know what is pleasing, but the mouth of the wicked is perverse. 
-11:1 Dishonest scales are an abomination to </span><span class="it"><span class="sc"><span class="content">Adonai
+11:1 Dishonest scales are an abomination to Adonai, but an accurate weight is His delight.
 11:2 When pride comes, then comes disgrace, but with the humble is wisdom. 
 11:3 The integrity of the upright guides them, but the crookedness of the treacherous will destroy them. 
 11:4 Riches make no profit in the day of wrath, but righteousness delivers from death. 
