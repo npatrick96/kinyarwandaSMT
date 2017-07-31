@@ -305,7 +305,7 @@
 11:17 A kind man does his own soul good, but a cruel man harms his own flesh. 
 11:18 The wicked earn deceptive wages, but a sower of righteousness reaps a true reward. 
 11:19 Steadfast righteousness leads to life, but pursuing evil ends in death. 
-11:20 Perverse hearts are an abomination to </span><span class="it"><span class="sc"><span class="content">Adonai
+11:20 Perverse hearts are an abomination to Adonai. His favor is on those blameless in their ways.
 11:21 Be sure, the evil will not go unpunished, but the offspring of the righteous will be delivered. 
 11:22 Like a gold ring in a pig’s snout is a beautiful woman who lacks discretion. 
 11:23 The desire of the righteous is only good, but the hope of the wicked only wrath. 
@@ -318,7 +318,7 @@
 11:30 The fruit of the righteous is a tree of life, and whoever wins souls is wise. 
 11:31 If the righteous is rewarded on earth, how much more the wicked and the sinner! 
 12:1 Whoever loves knowledge loves correction, but whoever hates reproof is stupid. 
-12:2 A good man obtains favor from </span><span class="it"><span class="sc"><span class="content">Adonai
+12:2 A good man obtains favor from Adonai, but He condemns a person with evil schemes.
 12:3 No one is made secure by wickedness, but a righteous root will not be moved. 
 12:4 A virtuous wife is her husband’s crown, but a dishonoring one is like rottenness in his bones. 
 12:5 The plans of the righteous are just, but the counsels of the wicked are deceitful. 
@@ -336,9 +336,9 @@
 12:17 A trustworthy witness tells what is right, but a false witness, deceit. 
 12:18 Reckless speech is like the thrusts of a sword, but the tongue of the wise brings healing. 
 12:19 Truthful lips endure forever, but a lying tongue for only a moment. 
-12:20 Deceit is in the heart of those who plot evil, but those promoting </span><span class="it"><span class="content">shalom
+12:20 Deceit is in the heart of those who plot evil, but those promoting shalom have joy.
 12:21 No harm befalls the righteous, but the wicked are full of misery. 
-12:22 Lying lips are detestable to </span><span class="it"><span class="sc"><span class="content">Adonai
+12:22 Lying lips are detestable to Adonai, but those who act faithfully are His delight.
 12:23 A clever person conceals his knowledge, but the heart of a fool blurts out folly. 
 12:24 The hand of the diligent will rule, but the lazy will become forced labor. 
 12:25 An anxious heart weighs one down, but a good word cheers him up. 
@@ -357,7 +357,7 @@
 13:10 Arrogance yields nothing but strife. Wisdom belongs to those who take advice. 
 13:11 Wealth gained by fraud dwindles, but he who gathers by labor increases it. 
 13:12 Hope deferred makes the heart sick, but longing fulfilled is a tree of life. 
-13:13 Whoever despises instruction will pay a penalty, but whoever respects a </span><span class="it"><span class="content">mitzvah
+13:13 Whoever despises instruction will pay a penalty, but whoever respects a mitzvah will be rewarded.
 13:14 Wise instruction is a fountain of life, turning one away from snares of death. 
 13:15 Good understanding wins favor, but the way of the unfaithful is hard. 
 13:16 Everyone shrewd acts with knowledge, but a fool flaunts folly. 
@@ -371,7 +371,7 @@
 13:24 He who spares the rod hates his son, but he who loves him is diligent with discipline. 
 13:25 The righteous eats to his heart’s content, but the belly of the wicked goes hungry.
 14:1 A wise woman builds her house, but a foolish one tears it down with her own hands. 
-14:2 The one who walks uprightly fears </span><span class="it"><span class="sc"><span class="content">Adonai
+14:2 The one who walks uprightly fears Adonai, but one devious in his ways despises Him.
 14:3 In the mouth of a fool is a rod for his back, but the lips of the wise protect them. 
 14:4 Where there are no oxen, the stalls are clean, but from the strength of the ox comes an abundant harvest. 
 14:5 A trustworthy witness does not lie, but a false witness breathes out lies. 
@@ -395,8 +395,8 @@
 14:23 In all hard work there is profit, but mere talk leads only to poverty. 
 14:24 The crown of the wise is their riches, but the folly of fools is foolishness. 
 14:25 A truthful witness saves lives, but one who utters lies is treacherous. 
-14:26 In the fear of </span><span class="it"><span class="sc"><span class="content">Adonai
-14:27 The fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+14:26 In the fear of Adonai one has strong confidence. It will be a refuge for His children.
+14:27 The fear of Adonai is a fountain of life, turning one from the snares of death.
 14:28 A large population is a king’s glory, but lack of subjects is a prince’s ruin. 
 14:29 One who is slow to anger shows great understanding, but a quick-tempered one exalts folly. 
 14:30 A tranquil heart is life to the body, but envy is rottenness to the bones. 
@@ -407,20 +407,20 @@
 14:35 The king shows favor toward a servant who acts wisely, but his wrath is on one who is disgraceful. 
 15:1 A gentle answer turns away wrath, but a harsh word stirs up anger. 
 15:2 The tongue of the wise treats knowledge correctly, but the mouth of fools spouts folly. 
-15:3 The eyes of </span><span class="it"><span class="sc"><span class="content">Adonai
+15:3 The eyes of Adonai are everywhere, observing the wicked and the good.
 15:4 A healing tongue is a tree of life, but a deceitful one crushes the spirit. 
 15:5 A fool despises his father’s discipline, but one who accepts reproof is smart. 
 15:6 The house of the righteous has great wealth, but the income of the wicked brings trouble. 
 15:7 The lips of the wise spread knowledge, but not so the heart of fools. 
-15:8 The sacrifice of the wicked is an abomination to </span><span class="it"><span class="sc"><span class="content">Adonai
-15:9  detests the way of the wicked, but loves those who pursue righteousness. 
+15:8 The sacrifice of the wicked is an abomination to Adonai, but the prayer of the upright pleases him.
+15:9  Adonai detests the way of the wicked, but loves those who pursue righteousness.
 15:10 Stern correction awaits one who forsakes the way. One who hates reproof will die. 
-15:11 — how much more the hearts of people! 
+15:11 Sheol and Abaddon are before Adonai— how much more the hearts of people!
 15:12 A mocker dislikes one who corrects him; he will not go to the wise.
 15:13 A joyful heart makes the face cheerful, but heartache crushes the spirit. 
 15:14 A discerning heart seeks knowledge, but the mouth of fools feeds on folly. 
 15:15 All the days of the afflicted are bad, but a cheerful heart has a continual feast. 
-15:16 Better is little with the fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+15:16 Better is little with the fear of Adonai than great wealth with turmoil.
 15:17 Better a meal of vegetables where there is love, than a fattened ox where there is hatred. 
 15:18 A hot-tempered man stirs up strife, but one who is slow to anger calms a quarrel. 
 15:19 The way of the slacker is a hedge of thorns, but the path of the upright is a highway. 
@@ -428,16 +428,16 @@
 15:21 Folly is joy to one who lacks sense, but one with discernment walks straight. 
 15:22 Plans fail when there is no counsel, but with many advisers they succeed. 
 15:23 A person has joy in an appropriate answer— how good is a timely word. 
-15:24 The path of life leads upward for the wise to keep him from going down to </span><span class="it"><span class="content">Sheol
+15:24 The path of life leads upward for the wise to keep him from going down to Sheol.
 15:25  tears down a proud man’s house, but He maintains the widow’s boundary. 
-15:26 Evil thoughts are an abomination to </span><span class="it"><span class="sc"><span class="content">Adonai
+15:26 Evil thoughts are an abomination to Adonai, but pleasant words are pure.
 15:27 One greedy for gain troubles his household, but whoever hates bribes will live. 
 15:28 A righteous heart thinks before answering, but a wicked mouth blurts out evil things. 
 15:29  is far from the wicked, but hears the prayer of the righteous. 
 15:30 Bright eyes bring joy to the heart. Good news gives health to the bones. 
 15:31 One whose ear heeds a life-giving reproof dwells among the wise. 
 15:32 Whoever avoids correction despises himself, but whoever heeds reproof acquires understanding. 
-15:33 The fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+15:33 The fear of Adonai is the discipline of wisdom, and humility comes before honor.
 16:1 The plans of the heart belong to man, but the tongue’s answer is from </span><span class="it"><span class="sc"><span class="content">Adonai
 16:2 All a man’s ways are pure in his own eyes, but </span><span class="it"><span class="sc"><span class="content">Adonai
 16:3 Commit whatever you do to </span><span class="it"><span class="sc"><span class="content">Adonai
