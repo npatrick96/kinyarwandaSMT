@@ -438,17 +438,17 @@
 15:31 One whose ear heeds a life-giving reproof dwells among the wise. 
 15:32 Whoever avoids correction despises himself, but whoever heeds reproof acquires understanding. 
 15:33 The fear of Adonai is the discipline of wisdom, and humility comes before honor.
-16:1 The plans of the heart belong to man, but the tongue’s answer is from </span><span class="it"><span class="sc"><span class="content">Adonai
-16:2 All a man’s ways are pure in his own eyes, but </span><span class="it"><span class="sc"><span class="content">Adonai
-16:3 Commit whatever you do to </span><span class="it"><span class="sc"><span class="content">Adonai
-16:4  works everything out for his own purpose— even the wicked for a day of disaster. 
-16:5  abhors all the proud in heart. Be assured, they will not go unpunished. 
-16:6 By mercy and truth is iniquity atoned, and by the fear of </span><span class="it"><span class="sc"><span class="content">Adonai
-16:7 When one’s ways are pleasing to </span><span class="it"><span class="sc"><span class="content">Adonai
+16:1 The plans of the heart belong to man, but the tongue’s answer is from Adonai.
+16:2 All a man’s ways are pure in his own eyes, but Adonai weighs the motives.
+16:3 Commit whatever you do to Adonai, and your plans will succeed.
+16:4  Adonai works everything out for his own purpose— even the wicked for a day of disaster. 
+16:5  Adonai abhors all the proud in heart. Be assured, they will not go unpunished. 
+16:6 By mercy and truth is iniquity atoned, and by the fear of Adonai one avoids evil.
+16:7 When one’s ways are pleasing to Adonai, he makes even his enemies be at peace with him.
 16:8 Better a little with righteousness than much income without justice. 
-16:9 The heart of man plans his course, but </span><span class="it"><span class="sc"><span class="content">Adonai
+16:9 The heart of man plans his course, but Adonai directs his steps.
 16:10 An oracle is on the lips of the king— let his mouth never be treacherous in judgment. 
-16:11 Honest balances and scales are </span><span class="it"><span class="sc"><span class="content">Adonai
+16:11 Honest balances and scales are Adonai’s. All the weights in a bag are His handiwork.
 16:12 Wrongdoing is an abomination to kings, for a throne is established by righteousness. 
 16:13 Righteous lips are the delight of kings. He loves those who speak honestly. 
 16:14 A king’s fury is like messengers of death, but a wise man will appease it. 
@@ -457,7 +457,7 @@
 16:17 The highway of the upright avoids evil. He who guards his way protects his life. 
 16:18 Pride goes before destruction and a haughty spirit before a fall. 
 16:19 Better to be lowly in spirit with the afflicted than to share the spoil with the proud. 
-16:20 One prudent in a matter will find good Blessed is the one who trusts in </span><span class="it"><span class="sc"><span class="content">Adonai
+16:20 One prudent in a matter will find good Blessed is the one who trusts in Adonai.
 16:21 The wise in heart is called discerning, and sweetness of lips increases persuasiveness. 
 16:22 Insight is a fountain of life to one who has it, but folly leads to the discipline of fools. 
 16:23 A wise man’s heart teaches his mouth and adds persuasiveness to his lips. 
@@ -470,10 +470,10 @@
 16:30 One who winks his eyes schemes deceit, one who purses his lips is bent on evil. 
 16:31 Gray hair is a crown of glory, found on the path of righteousness. 
 16:32 Better to be slow to anger than a mighty warrior. One who controls his temper is better than one who conquers a city. 
-16:33 The lot is cast into the lap, but their very decision is from </span><span class="it"><span class="sc"><span class="content">Adonai
+16:33 The lot is cast into the lap, but their very decision is from Adonai.
 17:1 Better is dry crust with peace and quiet than a house full of feasting with strife. 
 17:2 A wise servant will rule over a disgraceful son and will share the inheritance with the brothers. 
-17:3 A crucible is for silver and a furnace is for gold, but </span><span class="it"><span class="sc"><span class="content">Adonai
+17:3 A crucible is for silver and a furnace is for gold, but Adonai tests the heart.
 17:4 An evildoer listens to wicked lips; a liar listens to a malicious tongue. 
 17:5 Whoever mocks the poor insults his Maker. Whoever rejoices at calamity will not go unpunished. 
 17:6 Grandchildren are the crown of the elderly and the glory of children is their parents. 
@@ -485,7 +485,7 @@
 17:12 Better to meet a bear robbed of her cubs than to deal with a fool in his folly. 
 17:13 Whoever rewards evil for good— evil will never leave his house. 
 17:14 The beginning of strife is like letting out water— so stop a quarrel before it breaks out. 
-17:15 Acquitting the wicked and condemning the righteous: both are an abomination to </span><span class="it"><span class="sc"><span class="content">Adonai
+17:15 Acquitting the wicked and condemning the righteous: both are an abomination to Adonai.
 17:16 Of what use is money in the hand of a fool since he has no intention of acquiring wisdom? 
 17:17 A friend loves at all times, and a brother is born for adversity. 
 17:18 A man lacking judgment shakes hands on a deal and puts up financial security for his neighbor. 
@@ -508,7 +508,7 @@
 18:7 A fool’s mouth is his ruin, and his lips are a snare to his soul. 
 18:8 The words of a gossip are tasty morsels, going down into one’s innermost being. 
 18:9 One who is slack in his work is brother to one who destroys. 
-18:10 The Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+18:10 The Name of Adonai is a strong tower. The righteous one runs into it and is set safely up high.
 18:11 A rich person’s wealth is a strong city or like a high wall—in his imagination. 
 18:12 Before ruin a person’s heart is proud, but humility comes before honor. 
 18:13 One who answers before listening— that is his folly and his shame. 
@@ -520,12 +520,12 @@
 18:19 An offended brother is more formidable than a fortified city, and quarrels are like the bars of a fortress. 
 18:20 From the fruit of his mouth a man’s stomach is filled— with the harvest of his lips he is satisfied. 
 18:21 Death and life are in the control of the tongue. Those who indulge in it will eat its fruit. 
-18:22 Whoever finds a wife finds good, and receives favor from </span><span class="it"><span class="sc"><span class="content">Adonai
+18:22 Whoever finds a wife finds good, and receives favor from Adonai.
 18:23 The poor request favor, but the rich answer harshly. 
 18:24 A man with many friends may be harmed by them, but there is a friend who sticks closer than a brother. 
 19:1 Better to be poor, walking with integrity, than be a fool whose lips are corrupt. 
 19:2 Zeal without knowledge is not good, or to act hastily and miss the way. 
-19:3 A man’s folly undermines his way, and his heart rages against </span><span class="it"><span class="sc"><span class="content">Adonai
+19:3 A man’s folly undermines his way, and his heart rages against Adonai.
 19:4 Wealth adds many friends, yet a poor man is deserted by his friend. 
 19:5 A false witness will not go unpunished, one who breathes lies will not escape. 
 19:6 Many seek the favor of the generous. Everyone is a friend to a giver of gifts. 
@@ -536,16 +536,16 @@
 19:11 Prudence makes one slow to anger and his glory is to overlook an offense. 
 19:12 A king’s wrath is like a roaring lion, but his favor is like dew on the grass. 
 19:13 A foolish son is trouble for his father, and a quarrelsome wife is constant dripping. 
-19:14 House and wealth are an inheritance from fathers, but a prudent wife is from </span><span class="it"><span class="sc"><span class="content">Adonai
+19:14 House and wealth are an inheritance from fathers, but a prudent wife is from Adonai.
 19:15 Laziness brings on deep sleep, and an idle soul will starve. 
-19:16 One who keeps a </span><span class="it"><span class="content">mitzvah
-19:17 One who is kind to the poor lends to </span><span class="it"><span class="sc"><span class="content">Adonai
+19:16 One who keeps a mitzvah guards his soul, but one who neglects His ways will die.
+19:17 One who is kind to the poor lends to Adonai, and Adonai will reward him for his good deed.
 19:18 Discipline your son while there is hope. Do not set your heart on his death. 
 19:19 One with great rage will pay a penalty. For if you rescue him, you will have to do it again. 
 19:20 Listen to advice and accept instruction, so that in the end you may be wise. 
-19:21 Many are the plans in a man’s heart, but the counsel of </span><span class="it"><span class="sc"><span class="content">Adonai
+19:21 Many are the plans in a man’s heart, but the counsel of Adonai will stand.
 19:22 What is desired in a man is loyalty, and a poor person is better than a liar. 
-19:23 The fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+19:23 The fear of Adonai leads to life, and he who has it rests satisfied, untouched by harm.
 19:24 The slacker buries his hand in a bowl and will not even bring it back to his mouth! 
 19:25 Strike a scoffer and the naïve will learn caution. rebuke a discerning person and he will gain knowledge. 
 19:26 He who robs his father and drives away his mother is a son who brings shame and disgrace! 
@@ -561,9 +561,9 @@
 20:7 A righteous person walks in integrity. Blessed are his children after him. 
 20:8 A king sitting on the throne to judge separates out all evil with his eyes. 
 20:9 Who can say: “I have kept my heart pure; I am cleansed from my sin”? 
-20:10 Unequal weights and measures— both are an abomination to </span><span class="it"><span class="sc"><span class="content">Adonai
+20:10 Unequal weights and measures— both are an abomination to Adonai.
 20:11 Even a child is known by his actions, whether his conduct is pure and upright. 
-20:12 Ears that hear and eyes that see— </span><span class="it"><span class="sc"><span class="content">Adonai
+20:12 Ears that hear and eyes that see— Adonai has made them both.
 20:13 Do not love sleep, lest you become poor. Open your eyes, and you will be satisfied with food.
 20:14 “It’s bad, bad!” says the buyer, but then he goes away and boasts. 
 20:15 There is gold and abundance of rubies, but lips that speak knowledge are precious. 
@@ -573,12 +573,12 @@
 20:19 A talebearer goes about, revealing secrets, so do not associate with a babbler. 
 20:20 Whoever curses his father or his mother, his lamp will be snuffed out in utter darkness. 
 20:21 An estate acquired quickly in the beginning will not be blessed in the end. 
-20:22 Do not say, “I will pay back evil!” Wait for </span><span class="it"><span class="sc"><span class="content">Adonai
-20:23 Unbalanced weights are detestable to </span><span class="it"><span class="sc"><span class="content">Adonai
-20:24 A man’s steps are directed by </span><span class="it"><span class="sc"><span class="content">Adonai
+20:22 Do not say, “I will pay back evil!” Wait for Adonai, so He may deliver You.
+20:23 Unbalanced weights are detestable to Adonai, and dishonest scales are wicked.
+20:24 A man’s steps are directed by Adonai. How then can anyone understand his own way?
 20:25 It is a trap for one to say rashly, “It is holy!” and only afterward to consider his vows. 
 20:26 A wise king winnows out the wicked. He turns a threshing wheel over them. 
-20:27 The spirit of man is the lamp of </span><span class="it"><span class="sc"><span class="content">Adonai
+20:27 The spirit of man is the lamp of Adonai, searching all his inmost being.
 20:28 Lovingkindness and truth preserve the king, but his throne is upheld by lovingkindness. 
 20:29 The glory of young men is their strength, and the splendor of old men is gray hair. 
 20:30 Blows that wound scour away evil, and beatings purge the innermost being. 
