@@ -582,9 +582,9 @@
 20:28 Lovingkindness and truth preserve the king, but his throne is upheld by lovingkindness. 
 20:29 The glory of young men is their strength, and the splendor of old men is gray hair. 
 20:30 Blows that wound scour away evil, and beatings purge the innermost being. 
-21:1 A king’s heart is like a stream of water in the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
-21:2 All a man’s ways seem right in his own eyes, but </span><span class="it"><span class="sc"><span class="content">Adonai
-21:3 To do righteousness and justice is more acceptable to </span><span class="it"><span class="sc"><span class="content">Adonai
+21:1 The king's heart is in the hand of the Lord, as the rivers of water: he turneth it whithersoever he will. 
+21:2 Every way of a man is right in his own eyes: but the Lord pondereth the hearts. 
+21:3 To do justice and judgment is more acceptable to the Lord than sacrifice.
 21:4 Haughty eyes and a proud heart— the lamp of the wicked is sin. 
 21:5 Plans of the diligent surely lead to gain, but all who are hasty come only to loss. 
 21:6 Getting treasures by a lying tongue is like a fleeting vapor for those who seek death.
@@ -611,12 +611,12 @@
 21:27 The sacrifice of the wicked is an abomination— how much more when he brings it with evil intent? 
 21:28 A false witness will perish, but a man who hears will speak forever. 
 21:29 A wicked man puts on a bold face, but the upright man considers his ways. 
-21:30 There is no wisdom, there is no understanding, there is no counsel— against </span><span class="it"><span class="sc"><span class="content">Adonai
-21:31 A horse is prepared for the day of battle, but victory comes from </span><span class="it"><span class="sc"><span class="content">Adonai
+21:30 There is no wisdom nor understanding nor counsel against the Lord.
+21:31 The horse is prepared against the day of battle: but safety is of the Lord
 22:1 A good name is to be chosen rather than great wealth, and grace rather than silver or gold. 
-22:2 Rich and poor have this in common— </span><span class="it"><span class="sc"><span class="content">Adonai
+22:2 The rich and poor meet together: the Lord is the maker of them all.
 22:3 A crafty person sees danger and hides, but the naïve keep going and suffer for it. 
-22:4 The reward of humility and fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:4 By humility and the fear of the Lord are riches, and honour, and life.
 22:5 Thorns and snares are in the path of the perverse, but one who guards his soul stays far from them. 
 22:6 Train up a child in the way he should go, when he is old he will not turn from it. 
 22:7 The rich rule over the poor, the borrower is a slave to the lender. 
@@ -624,18 +624,18 @@
 22:9 One with a bountiful eye will be blessed, for he shares his bread with the poor. 
 22:10 Throw out a scoffer and strife will go out, quarreling and disgrace will cease. 
 22:11 One who loves purity of heart and whose speech is gracious, will have the king as his friend. 
-22:12 The eyes of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:12 The eyes of the Lord preserve knowledge, and he overthroweth the words of the transgressor
 22:13 The slacker says, “There’s a lion outside! I’ll be killed in the streets.” 
-22:14 The mouth of a seducing woman is a deep pit—into it will fall one with whom </span><span class="it"><span class="sc"><span class="content">Adonai
+22:14 The mouth of strange women is a deep pit: he that is abhorred of the Lord shall fall therein
 22:15 Foolishness is bound up in the heart of a child, but a rod of discipline will drive it far from him. 
 22:16 The one who oppresses the poor to increase his own gain, and the one who gives to the rich— both end in poverty. 
 22:17 Incline your ear and listen to the words of the wise, and apply your heart to my knowledge. 
 22:18 For it is delightful if you keep them within you, ready on your lips. 
-22:19 So that your trust may be in </span><span class="it"><span class="sc"><span class="content">Adonai
+22:19 That thy trust may be in the Lord, I have made known to thee this day, even to thee.
 22:20 Have I not written to you thirty sayings of admonition and knowledge, 
 22:21 to show you true and reliable words, that you may give a true answer to those who sent you? 
 22:22 Do not rob a poor person because he is poor, nor crush the needy at the gate, 
-22:23 for </span><span class="it"><span class="sc"><span class="content">Adonai
+22:23 For the Lord will plead their cause, and spoil the soul of those that spoiled them.
 22:24 Do not be friends with one given to anger or associate with a hot-tempered person, 
 22:25 lest you learn his ways, and entangle your soul in a snare. 
 22:26 Do not be one who shakes hands or puts up security for debts. 
@@ -655,10 +655,10 @@
 23:11 for their redeemer is strong. He will plead their case against you. 
 23:12 Apply your heart to discipline and your ears to words of knowledge. 
 23:13 Do not withhold correction from a child. If you strike him with a rod, he will not die. 
-23:14 Punish him with a rod, and deliver his soul from </span><span class="it"><span class="content">Sheol
+23:14 Thou shalt beat him with the rod, and shalt deliver his soul from hell.
 23:15 My son, if your heart is wise, then my heart also will be glad. 
 23:16 Yes, my inmost being will rejoice when your lips speak what is right. 
-23:17 Do not let your heart envy sinners, but always be in the fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+23:17 Let not thine heart envy sinners: but be thou in the fear of the Lord all the day long.
 23:18 For surely there is a future, and your hope will never be cut off. 
 23:19 Listen, my son, and be wise, and guide your heart in the right way. 
 23:20 Do not join those drinking too much wine or gorging on meat, 
@@ -694,11 +694,11 @@
 24:15 Do not lurk like the wicked near the dwelling of the righteous. Do not assault his home. 
 24:16 For though the righteous one may fall seven times, he gets up again, but the wicked stumble in adversity. 
 24:17 Do not rejoice when your enemy falls, or let your heart be glad when he stumbles, 
-24:18 or </span><span class="it"><span class="sc"><span class="content">Adonai
+24:18 Lest the Lord see it, and it displease him, and he turn away his wrath from him.
 24:19 Do not be upset because of evil people, or be envious of the wicked, 
 24:20 for the evil person has no future, and the lamp of the wicked will be snuffed out. 
-24:21 My son, fear </span><span class="it"><span class="sc"><span class="content">Adonai
-24:22 For their destruction will arise suddenly, and who knows the ruin both </span><span class="it"><span class="sc"><span class="content">Adonai
+24:21 My son, fear thou the Lord and the king: and meddle not with them that are given to change:
+24:22 For their calamity shall rise suddenly; and who knoweth the ruin of them both?
 24:23 These sayings are also from the wise: Partiality in judgment is not good. 
 24:24 Whoever tells the guilty, “You are innocent,” people curse him and nations revile him. 
 24:25 But for those who convict the guilty there will be delight— good blessing will come upon them. 
@@ -732,7 +732,7 @@
 25:19 Like a broken tooth or a lame foot is confidence in the unfaithful in time of trouble. 
 25:20 Like taking off a garment on a cold day or like vinegar poured on soda, is one who sings songs to a heavy heart. 
 25:21 If your enemy is hungry, give him bread to eat, and if he is thirsty, give him water to drink, 
-25:22 for you will heap coals of fire on his head and </span><span class="it"><span class="sc"><span class="content">Adonai
+25:22 For thou shalt heap coals of fire upon his head, and the Lord shall reward thee.
 25:23 A north wind brings rain, and a backbiting tongue angry faces. 
 25:24 Better to dwell in a corner of a roof than share a house with a quarrelsome wife. 
 25:25 Like cold water to a weary soul is good news from a distant land. 
