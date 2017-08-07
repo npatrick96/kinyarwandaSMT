@@ -797,12 +797,12 @@
 28:1 The wicked flee when no one is pursuing, but the righteous are as bold as a lion. 
 28:2 When a country is in rebellion, it has many rulers, but a man of discernment and knowledge maintains order. 
 28:3 A poor man who oppresses the weak is like pounding rain without food. 
-28:4 Those who forsake </span><span class="it"><span class="content">Torah
-28:5 Evil men do not understand justice, but those who seek </span><span class="it"><span class="sc"><span class="content">Adonai
+28:4 Those who forsake Torah praise the wicked, but those who keep Torah stir them up.
+28:5 Evil men do not understand justice, but those who seek Adonai understand it fully.
 28:6 Better the poor who walks in his integrity than the rich whose ways are crooked. 
-28:7 He who keeps </span><span class="it"><span class="content">Torah
+28:7 He who keeps Torah is a discerning son, but a companion of gluttons disgraces his father.
 28:8 Whoever increases his wealth by exorbitant interest, gathers it for one kinder to the poor. 
-28:9 One who turns his ear from hearing </span><span class="it"><span class="content">Torah
+28:9 One who turns his ear from hearing Torah —even his prayer is an abomination.
 28:10 One who leads the upright astray along an evil path will fall into his own pit, but the blameless will inherit good. 
 28:11 A rich person is wise in his own eyes, but a discerning poor person sees through him. 
 28:12 When the righteous triumph there is great glory, but when the wicked rise to power, people hide. 
@@ -818,7 +818,7 @@
 28:22 A stingy man chases after riches, but does not know that poverty will overtake him. 
 28:23 One who rebukes a man will in the end find more favor than one with a flattering tongue. 
 28:24 Whoever robs his father or his mother, and says, “It’s not a crime,” is a partner to him who destroys. 
-28:25 A greedy soul stirs up strife, but one who trusts in </span><span class="it"><span class="sc"><span class="content">Adonai
+28:25 A greedy soul stirs up strife, but one who trusts in Adonai prospers.
 28:26 Whoever trusts in his own heart is a fool, but he who walks in wisdom will escape. 
 28:27 One who gives to the poor will not lack, but one who shuts his eyes will have many curses. 
 28:28 When the wicked rise to power, people hide, but when they perish, the righteous increase.
@@ -834,20 +834,20 @@
 29:10 Bloodthirsty people hate a man of integrity and seek the soul of the upright. 
 29:11 A fool gives full vent to his temper, but a wise man holds it back. 
 29:12 If a ruler listens to lies, all his servants will be wicked. 
-29:13 The poor man and the oppressor have this in common: </span><span class="it"><span class="sc"><span class="content">Adonai
+29:13 The poor man and the oppressor have this in common: Adonai gives light to the eyes of both.
 29:14 If a king judges the poor with truth, his throne will always be secure. 
 29:15 A rod and reproof give wisdom, but a child left to himself disgraces his mother. 
 29:16 When the wicked thrive, wrongdoing increases, but the righteous will see their downfall. 
 29:17 Correct your son and he will give you rest. He will bring delight to your soul. 
-29:18 Where there is no divine vision people cast off restraint, but blessed is the one who keeps </span><span class="it"><span class="content">Torah
+29:18 Where there is no divine vision people cast off restraint, but blessed is the one who keeps Torah.
 29:19 A servant cannot be corrected by words, for though he understands, he will not respond. 
 29:20 Do you see someone hasty in his words? There is more hope for a fool than him. 
 29:21 If someone pampers his slave from childhood in the end he will be ungrateful. 
 29:22 An angry man stirs up dissention, and a hotheaded one commits many transgressions. 
 29:23 A man’s pride will bring him low, but a humble spirit will gain honor. 
 29:24 An accomplice of a thief is his own enemy. He hears the oath but says nothing. 
-29:25 Fear of man will prove to be a snare, but one who trusts in </span><span class="it"><span class="sc"><span class="content">Adonai
-29:26 Many seek an audience with a ruler, but from </span><span class="it"><span class="sc"><span class="content">Adonai
+29:25 Fear of man will prove to be a snare, but one who trusts in Adonai will be kept safe.
+29:26 Many seek an audience with a ruler, but from Adonai one receives justice.
 29:27 The righteous detest the unjust, and the wicked detest the upright.
 30:1 The words of Agur son of Jakeh— an oracle this man declared to Ithiel, to Ithiel and to Ucal: 
 30:2 “Surely I am more stupid than any man and do not have a man’s understanding. 
@@ -857,14 +857,14 @@
 30:6 Do not add to His words, or else He will rebuke You and prove you a liar. 
 30:7 Two things I ask of You— do not refuse me before I die: 
 30:8 Keep falsehood and lies far from me. Give me neither poverty nor riches, but feed me with my allotted bread, 
-30:9 lest I become satisfied and deny You and say, “Who is </span><span class="it"><span class="sc"><span class="content">Adonai
+30:9 lest I become satisfied and deny You and say, “Who is Adonai?” Or lest I become poor, and steal and profane the Name of my God.
 30:10 Do not slander a servant to his master, or he will curse you, and you pay for it. 
 30:11 There is a generation that curses its father and does not bless its mother. 
 30:12 There is a generation that is pure in its own eyes, and yet is not cleansed from its filth. 
 30:13 There is a generation whose eyes are so haughty, whose eyelids are lifted up disdainfully. 
 30:14 There is a generation whose teeth are swords and whose molars are knives, to devour the poor from the earth and the needy from among humanity. 
 30:15 The leech has two daughters: “Give! Give!” Three things are never satisfied, four never say, “Enough!”— 
-30:16 , a barren womb, land that is not satisfied with water, and fire that never says, “Enough!” 
+30:16 Sheol, a barren womb, land that is not satisfied with water, and fire that never says, “Enough!”
 30:17 The eye that mocks a father and scorns obeying a mother— will be pecked out by ravens of the valley and eaten by young vultures! 
 30:18 Three things are too amazing for me, four I do not understand: 
 30:19 the way of an eagle in the sky, the way of a serpent upon a rock, the way of a ship in the heart of the sea, and the way of a man with a maiden. 
