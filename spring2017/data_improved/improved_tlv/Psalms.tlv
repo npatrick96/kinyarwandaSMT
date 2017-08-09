@@ -1035,6 +1035,7 @@
 70:3 May they be put to shame and disgrace who seek my life. May they be turned back in humiliation who delight in my hurt. 
 70:4 May those who say, “Aha! Aha!” be turned away because of their shame. 
 70:5 But may all who seek You rejoice and be glad in You. May those who love Your salvation always say, “Let God be magnified.” 
+70:6 But I am poor and needy— God, come quickly to me. You are my help and my deliverer— Adonai, do not delay.
 71:1 In You, </span><span class="it"><span class="sc"><span class="content">Adonai
 71:2 Deliver me and rescue me in Your justice. Turn Your ear to me and save me. 
 71:3 Be to me a sheltering rock where I may always go. Give the command to save me— for You are my rock and my fortress. 
