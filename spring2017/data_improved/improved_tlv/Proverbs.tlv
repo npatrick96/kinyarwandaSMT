@@ -911,5 +911,5 @@
 31:27 She watches over the affairs of her household, and does not eat the bread of idleness. 
 31:28 Her children arise and bless her, her husband also praises her: 
 31:29 “Many daughters have excelled, but you surpass them all.” 
-31:30 Charm is deceitful and beauty is vain, but a woman who fears </span><span class="it"><span class="sc"><span class="content">Adonai
+31:30 Charm is deceitful and beauty is vain, but a woman who fears Adonai will be praised.
 31:31 Give her the fruit of her hands. Let her deeds be her praise at the gates.
