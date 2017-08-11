@@ -1036,11 +1036,11 @@
 70:4 May those who say, “Aha! Aha!” be turned away because of their shame. 
 70:5 But may all who seek You rejoice and be glad in You. May those who love Your salvation always say, “Let God be magnified.” 
 70:6 But I am poor and needy— God, come quickly to me. You are my help and my deliverer— Adonai, do not delay.
-71:1 In You, </span><span class="it"><span class="sc"><span class="content">Adonai
+71:1 In You, Adonai, have I taken refuge. Let me never be ashamed.
 71:2 Deliver me and rescue me in Your justice. Turn Your ear to me and save me. 
 71:3 Be to me a sheltering rock where I may always go. Give the command to save me— for You are my rock and my fortress. 
 71:4 My God, rescue me out of the hand of the wicked, out of the grasp of an evil, ruthless man. 
-71:5 For You are my hope, </span><span class="it"><span class="sc"><span class="content">Adonai
+71:5 For You are my hope, Adonai my Lord— my trust from my youth.
 71:6 From my birth I have leaned on You. You took me out of my mother’s womb. My praise is always about You. 
 71:7 I am like an ominous sign to many, but You are my strong refuge. 
 71:8 My mouth is filled with Your praise and with Your glory all day. 
@@ -1051,7 +1051,7 @@
 71:13 Let the accusers of my soul be disgraced and destroyed. Let those who seek to harm me be covered with scorn and confusion. 
 71:14 But I—I will hope continually and will praise You more and more. 
 71:15 My mouth will recount Your justice and Your salvation all day, though I do not know the sum of them. 
-71:16 I come because of the mighty deeds of </span><span class="it"><span class="sc"><span class="content">Adonai
+71:16 I come because of the mighty deeds of Adonai my Lord. I will remember Your righteousness —Yours alone.
 71:17 God, You taught me from my youth, and I still keep declaring Your wonders. 
 71:18 So even until I am old and gray, O God, do not forsake me, till I tell of Your strong arm to the next generation, Your might to all who are to come. 
 71:19 For Your righteousness, O God, reaches to high heaven. You have done great things— O God, who is like You? 
@@ -1062,11 +1062,11 @@
 71:24 Also my tongue will tell of Your righteousness all day. For those who seek my hurt have been put to shame and confusion. 
 72:1 Of Solomon. Give the king Your judgments, O God, and Your righteousness to the king’s son. 
 72:2 May he judge Your people with righteousness, and Your poor ones with justice. 
-72:3 Let the mountains bring </span><span class="it"><span class="content">shalom
+72:3 Let the mountains bring shalom to the people, and the hills righteousness.
 72:4 May he vindicate the poor of the people, save the children of the needy, and crush the oppressor. 
 72:5 Let them fear You while the sun endures, and while the moon lasts, throughout all generations. 
 72:6 May he be like rain falling on a mown field, like showers watering the ground. 
-72:7 Let the righteous flourish in his days. Let </span><span class="it"><span class="content">shalom
+72:7 Let the righteous flourish in his days. Let shalom abound till the moon is no more.
 72:8 May he have dominion from sea to sea, and from the River to the ends of the earth. 
 72:9 Let desert dwellers bow before him, and his enemies lick the dust. 
 72:10 May kings of Tarshish and the islands bring tribute, kings of Sheba and Seba offer gifts. 
@@ -1077,8 +1077,8 @@
 72:15 Long may he live! May gold from Sheba be given to him. May he pray for him continually, and bless him all day. 
 72:16 Let there be abundance of grain in the land. Let it sway on the top of the hills, let its fruit be like Lebanon, and let people of the city flourish like grass of the field. 
 72:17 May his name endure forever. May his name increase before the sun, and may all nations be blessed by him and call him blessed. 
-72:18 Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
-72:19 Blessed be His glorious Name forever. May all the earth be filled with His glory! </span><span class="it"><span class="content">Amen
+72:18 Blessed be Adonai Elohim, God of Israel, who alone does wonders.
+72:19 Blessed be His glorious Name forever. May all the earth be filled with His glory! Amen and Amen!
 72:20 The prayers of David son of Jesse are complete. 
 73:1 A psalm of Asaph. Surely God is good to Israel, to the pure in heart. 
 73:2 But as for me, my feet almost slipped. My steps nearly slid out from under me. 
@@ -1107,7 +1107,7 @@
 73:25 Whom have I in heaven but You? On earth there is none I desire besides You. 
 73:26 My flesh and my heart may fail, but God is the strength of my heart and my portion forever. 
 73:27 For behold, those far from You will perish. You put an end to all who like a harlot are unfaithful to You. 
-73:28 But for me, it is good to be near God. I have made my Lord </span><span class="it"><span class="sc"><span class="content">Adonai
+73:28 But for me, it is good to be near God. I have made my Lord Adonai my refuge. So I will tell of all Your works.
 74:1 A contemplative song of Asaph. Why have You cast us off forever, O God? Why does Your anger smolder against the flock of Your pasture? 
 74:2 Remember Your congregation, which You purchased of old, redeemed as the tribe of Your inheritance, and Mount Zion, where You dwelt. 
 74:3 Lift Your steps toward the perpetual ruins— an enemy has done all evil to the Sanctuary! 
@@ -1125,7 +1125,7 @@
 74:15 You opened up spring and brook. You dried up ever-flowing rivers. 
 74:16 The day is Yours, the night also is Yours. You provided moon and sun. 
 74:17 You set all the borders of earth. You made summer and winter. 
-74:18 Remember how the enemy mocked, </span><span class="it"><span class="sc"><span class="content">Adonai
+74:18 Remember how the enemy mocked, Adonai, and how foolish people despised Your Name.
 74:19 Do not deliver Your turtledove’s soul to the wild beast. Do not forget the life of Your afflicted ones forever. 
 74:20 Look upon the covenant— for haunts of violence fill the dark places of earth. 
 74:21 Do not let the oppressed turn back in shame. But let the poor and needy praise Your Name. 
@@ -1139,11 +1139,11 @@
 75:6 Do not lift your horn up high. Do not speak with outstretched neck.” 
 75:7 For exaltation comes not from the east nor from the west, nor even from the desert. 
 75:8 For God is the Judge: He lowers one and lifts up another. 
-75:9 For in the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
+75:9 For in the hand of Adonai is a cup of foaming wine mixed with spices, and He pours it out. Surely all the wicked of the earth will drink, draining it down to the dregs.
 75:10 But I—I will declare it forever, I will sing praise to the God of Jacob. 
 76:1 For the music director, on stringed instruments: a psalm of Asaph, a song. 
 76:2 In Judah God is known. In Israel His Name is great. 
-76:3 In Salem is His </span><span class="it"><span class="content">sukkah
+76:3 In Salem is His sukkah and His dwelling place in Zion.
 76:4 There He broke the fiery shafts of the bow, the shield, the sword, and the battle. Selah 
 76:5 You are brilliant, more majestic than nourishing mountains. 
 76:6 The valiant have been plundered— they slumbered in their sleep. The mighty could not lift their hands. 
