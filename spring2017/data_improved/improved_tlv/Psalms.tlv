@@ -1141,6 +1141,7 @@
 75:8 For God is the Judge: He lowers one and lifts up another. 
 75:9 For in the hand of Adonai is a cup of foaming wine mixed with spices, and He pours it out. Surely all the wicked of the earth will drink, draining it down to the dregs.
 75:10 But I—I will declare it forever, I will sing praise to the God of Jacob. 
+75:11: I will cut off all the horns of the wicked, but the horns of the righteous will be lifted up.
 76:1 For the music director, on stringed instruments: a psalm of Asaph, a song. 
 76:2 In Judah God is known. In Israel His Name is great. 
 76:3 In Salem is His sukkah and His dwelling place in Zion.
@@ -1152,7 +1153,8 @@
 76:9 From heaven You pronounced judgment. The earth feared and was still— 
 76:10 when God rose up to judgment, to save all the humble of the land. Selah 
 76:11 For wrath upon man will bring You praise, a remnant of wrath You put on as a belt. 
-76:12 Make vows to </span><span class="it"><span class="sc"><span class="content">Adonai
+76:12 Make vows to Adonai your God and fulfill them. Let all around Him bring tribute to the One who is to be feared.
+76:13 He cuts off the breath of princes. The kings of earth are in awe of Him.
 77:1 For the music director, on Jeduthun: a psalm of Asaph. 
 77:2 My voice to God—and I cried out, my voice to God—and He heard me! 
 77:3 In the day of my trouble I seek my Lord. At night my hand stretches out untiringly. My soul refuses to be comforted. 
@@ -1164,7 +1166,7 @@
 77:9 Has His mercy vanished forever? Has His promise come to an end forever? 
 77:10 Has God forgotten to be gracious? Or has He in anger withdrawn his mercies?” Selah 
 77:11 Then I said: “It wounds me— that the right hand of Elyon has changed.” 
-77:12 I will remember the deeds of </span><span class="it"><span class="sc"><span class="content">Adonai
+77:12 I will remember the deeds of Adonai. Yes, I will muse about Your wonders of old.
 77:13 I will meditate also on all Your work and consider Your deeds.” 
 77:14 O God, Your way is holy. What god is great like God? 
 77:15 You are the God who works wonders. You have made Your power known among the peoples. 
@@ -1173,16 +1175,17 @@
 77:18 The clouds poured out water, the skies resounded, Your arrows flashed back and forth. 
 77:19 The sound of Your thunder was in the whirlwind. Lightning lit up the world. The earth trembled and shook. 
 77:20 Your way was in the sea, and Your path in the mighty waters, but Your footprints were not seen. 
+77:21 You led Your people like a flock, by the hand of Moses and Aaron.
 78:1 A contemplative song of Asaph. Listen, my people, to my teaching. Turn your ears to the words of my mouth. 
 78:2 I will open my mouth with a parable. I will utter perplexing sayings from of old, 
 78:3 which we have heard and known, and our fathers have told us. 
-78:4 We will not hide them from their children, telling to the next generation the praises of </span><span class="it"><span class="sc"><span class="content">Adonai
-78:5 For He established a testimony in Jacob and ordained </span><span class="it"><span class="content">Torah
+78:4 We will not hide them from their children, telling to the next generation the praises of Adonai and His strength and the wonders He has done.
+78:5 For He established a testimony in Jacob and ordained Torah in Israel, which He commanded our fathers to teach their children,
 78:6 so that the next generation might know, even the children yet to be born: they will arise and tell their children. 
-78:7 Then they will put their trust in God, not forgetting the works of God, but keeping His </span><span class="it"><span class="content">mitzvot
+78:7 Then they will put their trust in God, not forgetting the works of God, but keeping His mitzvot.
 78:8 So they will not be like their fathers— a stubborn and rebellious generation, a generation that did not prepare its heart, whose spirit was not loyal to God. 
 78:9 The sons of Ephraim were archers armed with bows, yet they turned back in the day of battle. 
-78:10 They did not keep God’s covenant and refused to walk in His </span><span class="it"><span class="content">Torah
+78:10 They did not keep God’s covenant and refused to walk in His Torah.
 78:11 They forgot His deeds and His wonders that He had shown them. 
 78:12 He did miracles in front of their fathers in the land of Egypt, in the plain of Zoan. 
 78:13 He split the sea and led them through, and He made the water stand like a wall. 
@@ -1193,10 +1196,10 @@
 78:18 They put God to the test in their heart by demanding food for their craving. 
 78:19 Then they spoke against God, saying, “Can God set a table in the wilderness? 
 78:20 See, He struck the rock, waters gushed out, streams overflowed. But can He give bread? Will He provide meat for His people?” 
-78:21 When </span><span class="it"><span class="sc"><span class="content">Adonai
+78:21 When Adonai heard, He was angry. A fire was kindled against Jacob, and fury also rose against Israel.
 78:22 For they did not believe in God or trust in His salvation. 
 78:23 Yet He commanded the skies above and opened the doors of heaven, 
-78:24 and rained down </span><span class="it"><span class="content">manna
+78:24 and rained down manna upon them to eat, and gave them grain of heaven.
 78:25 Man did eat the bread of angels. He sent them abundant provision. 
 78:26 He loosed the east wind in the skies, and by His power He drove the south wind. 
 78:27 He rained meat upon them like dust, and winged fowl like sand of the seas. 
@@ -1207,7 +1210,7 @@
 78:32 Despite all this they sinned still more, and did not trust in His wonders. 
 78:33 So He ended their days in futility and their years in terror. 
 78:34 But when He slew them, then they sought Him, and turned back, and desired God eagerly. 
-78:35 Then they remembered that God was their Rock and </span><span class="it"><span class="content">El Elyon
+78:35 Then they remembered that God was their Rock and El Elyon their Redeemer.
 78:36 But they flattered Him with their mouth and kept lying to Him with their tongue. 
 78:37 For their heart was not steadfast with Him, nor were they faithful to His covenant. 
 78:38 But He is compassionate, forgives iniquity and does not destroy. Yes, many times He restrains His anger, and does not stir up all His wrath. 
@@ -1228,7 +1231,7 @@
 78:53 He led them to safety, so they did not fear, but the sea overwhelmed their enemies. 
 78:54 Then He brought them to His holy territory, to the mountain His right hand had gotten. 
 78:55 He drove out nations before them, and allotted them an inheritance. He settled the tribes of Israel in their tents. 
-78:56 Yet they tested and rebelled against </span><span class="it"><span class="content">El Elyon
+78:56 Yet they tested and rebelled against El Elyon, and did not keep His decrees.
 78:57 Like their fathers they turned and were treacherous. They turned aside like a faulty bow. 
 78:58 For they provoked Him with their high places, so they aroused His jealousy with their graven images. 
 78:59 God heard and was furious, and He greatly detested Israel. 
@@ -1246,10 +1249,10 @@
 78:71 from following nursing ewes. He brought him to shepherd Jacob His people, and Israel His inheritance. 
 78:72 So He shepherded them with the integrity of His heart, and led them with His skillful hands.
 79:1 A Psalm of Asaph. God, the nations have invaded Your inheritance, defiled Your holy Temple, and reduced Jerusalem to ruins. 
-79:2 They gave the carcasses of Your servants as food to the birds of the skies, the flesh of Your </span><span class="it"><span class="content">kedoshim
+79:2 They gave the carcasses of Your servants as food to the birds of the skies, the flesh of Your kedoshim to the beasts of the earth.
 79:3 They poured out their blood like water all around Jerusalem, and there was no one to bury them. 
 79:4 We have become a taunt to our neighbors, a scorn and derision to those around us. 
-79:5 How long, </span><span class="it"><span class="sc"><span class="content">Adonai
+79:5 How long, Adonai, will You be angry? Forever? Will Your jealousy keep blazing like fire?
 79:6 Pour out Your wrath on the nations that do not acknowledge You, on the kingdoms that do not call on Your name. 
 79:7 For they have devoured Jacob and laid waste his country. 
 79:8 Do not hold against us the sins of our fathers. May Your mercies come quickly to meet us, for we are brought very low. 
@@ -1259,24 +1262,25 @@
 79:12 Pay back into the midst of our neighbors sevenfold their reproach— the reproach they hurled at You, my Lord. 
 79:13 So we, Your people, the flock of Your pasture, will praise You forever. From generation to generation we will recount Your praise.
 80:1 For the music director, on “Lilies,” a testimony: a psalm of Asaph. 
-80:2 Give ear, Shepherd of Israel, You who lead Joseph like a flock. You who are enthroned upon the </span><span class="it"><span class="content">cheruvim
+80:2 Give ear, Shepherd of Israel, You who lead Joseph like a flock. You who are enthroned upon the cheruvim, shine forth!
 80:3 Before Ephraim, Benjamin and Manasseh, stir up Your might, and come to save us. 
 80:4 O God, restore us, make Your face shine, and we will be saved. 
-80:5 , how long will You be angry with the prayer of Your people? 
+80:5 Adonai-Tzva’ot, how long will You be angry with the prayer of Your people?
 80:6 You have fed them the bread of tears and made them drink a measure of tears. 
 80:7 You make us a contention to our neighbors, and our enemies mock as they please. 
-80:8 , restore us, and make Your face shine, and we will be saved. 
+80:8 Elohei-Tzva’ot, restore us, and make Your face shine, and we will be saved.
 80:9 You pulled out a vine from Egypt. You drove out nations and planted it. 
 80:10 You cleared a place for it, and it took deep root and filled the land. 
 80:11 The mountains were covered by its shade, the mighty cedars with its branches. 
 80:12 It sent out its branches to the sea, and its shoots to the river. 
 80:13 Why have You broken down its fences, so all who pass by the way pick its fruit? 
 80:14 A boar from the forest ravages it, whatever moves in the field feeds on it. 
-80:15 , please return! Look down from heaven and see! Now take care of this vine— 
+80:15 Elohei-Tzva’ot, please return! Look down from heaven and see! Now take care of this vine—
 80:16 the shoot Your right hand planted— the son You strengthened for Yourself. 
 80:17 It is burned with fire, it is cut down. They perish from the rebuke of Your face. 
 80:18 Let Your hand be upon the man of Your right hand—the son of man You made strong for Yourself. 
 80:19 Then we will not turn away from You. Revive us, and we will call on Your Name. 
+80:20 Adonai Elohei-Tzva’ot, restore us. Make Your face shine, and we will be saved.
 81:1 For the music director, on the Gittite lyre, of Asaph. 
 81:2 Sing for joy to God our strength, shout to the God of Jacob! 
 81:3 Lift up a song and sound a tambourine, a sweet lyre with a harp. 
