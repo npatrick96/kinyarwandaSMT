@@ -1291,174 +1291,180 @@
 81:8 You called out in trouble, and I rescued you. I answered you from the hiding place of thunder. I tested you at the waters of Meribah. Selah 
 81:9 Hear, My people, I will admonish you— if you would listen to Me, O Israel! 
 81:10 Let there be no foreign god among you, and you shall not worship any alien god. 
-81:11 I am </span><span class="it"><span class="sc"><span class="content">Adonai
+81:11 I am Adonai your God, who brought you up out of the land of Egypt. Open your mouth wide and I will fill it.
 81:12 But My people did not listen to My voice. Israel was not willing to be Mine. 
 81:13 So I gave them over to the stubbornness of their heart, to walk in their own counsels. 
 81:14 Oh that My people would listen to Me, that Israel would walk in My ways! 
 81:15 I would soon subdue their enemies, and turn My hand against their foes. 
-81:16 Those who hate </span><span class="it"><span class="sc"><span class="content">Adonai
-82:1 A psalm of Asaph. God takes His stand in the assembly of God. He judges among the ‘gods’: 
-82:2 “How long will you judge unjustly and show partiality to the wicked? Selah 
-82:3 Give justice to the poor and fatherless. Be just to the afflicted and destitute. 
-82:4 Rescue the weak and needy. Deliver them out of the hand of the wicked. 
-82:5 They know nothing; they understand nothing— they walk about in darkness. All of earth’s foundations are shaken. 
-82:6 I said: ‘You are ‘gods’, and you are all sons of Elyon, 
-82:7 yet you will die like men, and will fall like any of the princes.’” 
+81:16 Those who hate Adonai would cringe before Him— their time of doom would be forever.
+81:17 But you would be fed with the finest wheat, with honey out of a rock would I satisfy you.”
+82:1 A psalm of Asaph. God takes His stand in the assembly of God. He judges among the ‘gods’:
+82:2 “How long will you judge unjustly and show partiality to the wicked? Selah
+82:3 Give justice to the poor and fatherless. Be just to the afflicted and destitute.
+82:4 Rescue the weak and needy. Deliver them out of the hand of the wicked.
+82:5 They know nothing; they understand nothing— they walk about in darkness. All of earth’s foundations are shaken.
+82:6 I said: ‘You are ‘gods’, and you are all sons of Elyon,
+82:7 yet you will die like men, and will fall like any of the princes.’”
 82:8 Arise, O God, judge the earth! For You possess all the nations.
-83:1 A song: a psalm of Asaph. 
-83:2 God, do not keep silent. Do not hold Your peace, O God. Do not be still. 
-83:3 For look, Your enemies make an uproar. Those who hate You lift up their head. 
-83:4 They make a shrewd plot against Your people, conspiring against Your treasured ones. 
-83:5 “Come,” they say, “let’s wipe them out as a nation! Let Israel’s name be remembered no more!” 
-83:6 For with one mind they plot together. Against You do they make a covenant. 
-83:7 The tents of Edom and the Ishmaelites, Moab and the Hagrites, 
-83:8 Gebal, Ammon and Amalek, Philistia with the inhabitants of Tyre, 
-83:9 even Assyria has joined them, becoming a strong arm for Lot’s sons. Selah 
-83:10 Do to them as You did to Midian, to Sisera and Jabin at the Kishon River, 
-83:11 who perished at En-dor— they became as dung for the ground. 
-83:12 Make their nobles like Oreb and Zeeb— all their princes like Zebah and Zalmunna, 
-83:13 who said, “Let us take possession of the pasturelands of God.” 
-83:14 My God, make them like tumbleweed, like chaff before the wind. 
-83:15 As a fire burns a forest, and as a flame sets mountains ablaze, 
-83:16 so pursue them with Your tempest, and terrify them with Your storm. 
-83:17 Cover their faces with shame, so they may seek Your Name—</span><span class="it"><span class="sc"><span class="content">Adonai
-83:18 Let them be ashamed and dismayed forever. Let them be humiliated and perish. 
-84:1 For the music director, upon the Gittite lyre, a psalm of the sons of Korah. 
-84:2 How lovely are Your tabernacles, </span><span class="it"><span class="sc"><span class="content">Adonai
-84:3 My soul yearns, even faints, for the courts of </span><span class="it"><span class="sc"><span class="content">Adonai
-84:4 Even the sparrow has found a home, and the swallow a nest for herself, where she may lay her young —near Your altars, </span><span class="it"><span class="sc"><span class="content">Adonai
-84:5 Blessed are they who dwell in Your House —they are ever praising You. Selah 
-84:6 Blessed is one whose strength is in You, in whose heart are the pilgrim roads. 
-84:7 Passing through the valley of Baca, they make it a spring. The early rain covers it with blessings. 
-84:8 They go from strength to strength— every one of them appears before God in Zion. 
-84:9 , hear my prayer, give ear, O God of Jacob. Selah 
-84:10 O God, look at our shield, and look upon the face of Your anointed. 
-84:11 For a day in Your courts is better than a thousand anywhere else. I would rather stand at the threshold of the House of my God than dwell in the tents of wickedness. 
-84:12 For </span><span class="it"><span class="sc"><span class="content">Adonai
-85:1 For the music director, a psalm of the sons of Korah. 
-85:2 , will you favor Your land? Will You restore Jacob from captivity? 
-85:3 Will You bear away Your people’s iniquity, Will You pardon all their sin? Selah 
-85:4 Will You withdraw all Your wrath? Will You turn from Your burning anger? 
-85:5 Restore us, O God of our salvation, and renounce Your indignation with us. 
-85:6 Will You be angry with us forever? Will You prolong Your anger from generation to generation? 
-85:7 Will You not revive us again, so Your people may rejoice in You? 
-85:8 Show us Your mercy, </span><span class="it"><span class="sc"><span class="content">Adonai
-85:9 Let me hear what God </span><span class="it"><span class="sc"><span class="content">Adonai
-85:10 Surely His salvation is near those who fear Him, so that glory may dwell in our land. 
-85:11 Lovingkindness and truth meet together. Righteousness and </span><span class="it"><span class="content">shalom
-85:12 Truth will spring up from the earth, and justice will look down from heaven. 
-85:13 Yes, </span><span class="it"><span class="sc"><span class="content">Adonai
-86:1 A prayer of David. Turn Your ear, </span><span class="it"><span class="sc"><span class="content">Adonai
-86:2 Watch over my soul, for I am godly. You are my God— save Your servant who trusts in You. 
-86:3 Be gracious to me, my Lord, for to You I cry all day. 
-86:4 Gladden the soul of Your servant, for to You, my Lord, I lift up my soul. 
-86:5 For You, my Lord, are good, and ready to forgive and full of mercy to all who call upon You. 
-86:6 Give ear, </span><span class="it"><span class="sc"><span class="content">Adonai
-86:7 In the day of my trouble I call upon You, for You will answer me. 
-86:8 There is none like You among the gods, my Lord, there are no deeds like Yours. 
-86:9 All nations You have made will come and bow down before You, my Lord, and they will glorify Your Name. 
-86:10 For You are great, and do wonders— You alone are God. 
-86:11 Teach me Your way, </span><span class="it"><span class="sc"><span class="content">Adonai
-86:12 I praise You, O Lord my God, with my whole heart, and glorify Your Name forever. 
-86:13 For great is Your lovingkindness toward me. You have delivered my soul from the lowest part of </span><span class="it"><span class="content">Sheol
-86:14 God, the proud have risen up against me and a gang of ruthless people have sought my life, and have not set You before them. 
-86:15 But You, my Lord, are a compassionate and gracious God, slow to anger, full of love and truth. 
-86:16 Turn to me and be gracious to me. Give Your strength to Your servant, and save the son of Your maidservant. 
-86:17 Make me a sign for good, so that those who hate me may see it and be ashamed. For You, </span><span class="it"><span class="sc"><span class="content">Adonai
-87:1 A psalm of the sons of Korah, a song. His foundation is in the holy mountains. 
-87:2  loves the gates of Zion more than all the dwellings of Jacob. 
-87:3 Glorious things are spoken of you, city of God. Selah 
-87:4 “I will mention Rahab and Babylon among those who acknowledge Me— behold Philistia and Tyre, with Cush: ‘This one was born there.’” 
-87:5 But of Zion it will be said: “This one and that one were born in her.” And Elyon Himself will establish her. 
-87:6  will count in the register of the peoples: “This one was born there.” Selah 
+83:1 A song: a psalm of Asaph.
+83:2 God, do not keep silent. Do not hold Your peace, O God. Do not be still.
+83:3 For look, Your enemies make an uproar. Those who hate You lift up their head.
+83:4 They make a shrewd plot against Your people, conspiring against Your treasured ones.
+83:5 “Come,” they say, “let’s wipe them out as a nation! Let Israel’s name be remembered no more!”
+83:6 For with one mind they plot together. Against You do they make a covenant.
+83:7 The tents of Edom and the Ishmaelites, Moab and the Hagrites,
+83:8 Gebal, Ammon and Amalek, Philistia with the inhabitants of Tyre,
+83:9 even Assyria has joined them, becoming a strong arm for Lot’s sons. Selah
+83:10 Do to them as You did to Midian, to Sisera and Jabin at the Kishon River,
+83:11 who perished at En-dor— they became as dung for the ground.
+83:12 Make their nobles like Oreb and Zeeb— all their princes like Zebah and Zalmunna,
+83:13 who said, “Let us take possession of the pasturelands of God.”
+83:14 My God, make them like tumbleweed, like chaff before the wind.
+83:15 As a fire burns a forest, and as a flame sets mountains ablaze,
+83:16 so pursue them with Your tempest, and terrify them with Your storm.
+83:17 Cover their faces with shame, so they may seek Your Name—Adonai.
+83:18 Let them be ashamed and dismayed forever. Let them be humiliated and perish.
+83:19 Let them know that You alone —whose Name is Adonai— are El Elyon over all the earth.
+84:1 For the music director, upon the Gittite lyre, a psalm of the sons of Korah.
+84:2 How lovely are Your tabernacles, Adonai-Tzva’ot!
+84:3 My soul yearns, even faints, for the courts of Adonai. My heart and my flesh sing for joy to the living God.
+84:4 Even the sparrow has found a home, and the swallow a nest for herself, where she may lay her young —near Your altars, Adonai-Tzva’ot— my King and my God!
+84:5 Blessed are they who dwell in Your House —they are ever praising You. Selah
+84:6 Blessed is one whose strength is in You, in whose heart are the pilgrim roads.
+84:7 Passing through the valley of Baca, they make it a spring. The early rain covers it with blessings.
+84:8 They go from strength to strength— every one of them appears before God in Zion.
+84:9 Adonai-Tzva’ot, hear my prayer, give ear, O God of Jacob. Selah
+84:10 O God, look at our shield, and look upon the face of Your anointed.
+84:11 For a day in Your courts is better than a thousand anywhere else. I would rather stand at the threshold of the House of my God than dwell in the tents of wickedness.
+84:12 For Adonai Elohim is a sun and a shield. Adonai gives grace and glory. No good thing will He withhold from those who walk uprightly.
+84:13 Adonai-Tzva’ot, blessed is the one who trusts in You.
+85:1 For the music director, a psalm of the sons of Korah.
+85:2 Adonai, will you favor Your land? Will You restore Jacob from captivity?
+85:3 Will You bear away Your people’s iniquity, Will You pardon all their sin? Selah
+85:4 Will You withdraw all Your wrath? Will You turn from Your burning anger?
+85:5 Restore us, O God of our salvation, and renounce Your indignation with us.
+85:6 Will You be angry with us forever? Will You prolong Your anger from generation to generation?
+85:7 Will You not revive us again, so Your people may rejoice in You?
+85:8 Show us Your mercy, Adonai, and grant us Your salvation.
+85:9 Let me hear what God Adonai will say. For He will speak shalom to His people, and to His kedoshim— but let them not turn back to folly.
+85:10 Surely His salvation is near those who fear Him, so that glory may dwell in our land.
+85:11 Lovingkindness and truth meet together. Righteousness and shalom kiss each other.
+85:12 Truth will spring up from the earth, and justice will look down from heaven.
+85:13 Yes, Adonai will give what is good, and our land will yield its produce.
+85:14 Righteousness is going before Him and prepares a way for His feet.
+86:1 A prayer of David. Turn Your ear, Adonai, and answer me, for I am weak and needy.
+86:2 Watch over my soul, for I am godly. You are my God— save Your servant who trusts in You.
+86:3 Be gracious to me, my Lord, for to You I cry all day.
+86:4 Gladden the soul of Your servant, for to You, my Lord, I lift up my soul.
+86:5 For You, my Lord, are good, and ready to forgive and full of mercy to all who call upon You.
+86:6 Give ear, Adonai, to my prayer, listen to the voice of my supplications.
+86:7 In the day of my trouble I call upon You, for You will answer me.
+86:8 There is none like You among the gods, my Lord, there are no deeds like Yours.
+86:9 All nations You have made will come and bow down before You, my Lord, and they will glorify Your Name.
+86:10 For You are great, and do wonders— You alone are God.
+86:11 Teach me Your way, Adonai, that I may walk in Your truth. Give me an undivided heart to fear Your Name.
+86:12 I praise You, O Lord my God, with my whole heart, and glorify Your Name forever.
+86:13 For great is Your lovingkindness toward me. You have delivered my soul from the lowest part of Sheol.
+86:14 God, the proud have risen up against me and a gang of ruthless people have sought my life, and have not set You before them.
+86:15 But You, my Lord, are a compassionate and gracious God, slow to anger, full of love and truth.
+86:16 Turn to me and be gracious to me. Give Your strength to Your servant, and save the son of Your maidservant.
+86:17 Make me a sign for good, so that those who hate me may see it and be ashamed. For You, Adonai, have helped me and comforted me.
+87:1 A psalm of the sons of Korah, a song. His foundation is in the holy mountains.
+87:2 Adonai loves the gates of Zion more than all the dwellings of Jacob.
+87:3 Glorious things are spoken of you, city of God. Selah
+87:4 “I will mention Rahab and Babylon among those who acknowledge Me— behold Philistia and Tyre, with Cush: ‘This one was born there.’”
+87:5 But of Zion it will be said: “This one and that one were born in her.” And Elyon Himself will establish her.
+87:6 Adonai will count in the register of the peoples: “This one was born there.” Selah
 87:7 Then singing and dancing— all my fountains of joy are in you!
-88:1 A song, a psalm of the sons of Korah, for the music director, for singing Mahalath, a contemplative song of Heman the Ezrahite. 
-88:2 , God of my salvation, day and night I cried out before You. 
-88:3 Let my prayer come before You. Turn Your ear to my cry. 
-88:4 For my soul is full of troubles, and my life draws near to </span><span class="it"><span class="content">Sheol
-88:5 I am counted with those who go down into the Pit. I have become as one with no strength— 
-88:6 abandoned among the dead, like the slain that lie in the grave, whom You remember no more— cut off from Your hand. 
-88:7 You have laid me in the lowest places, in dark places, in the depths. 
-88:8 Your wrath lies heavily on me. You afflicted me with all Your waves. Selah 
-88:9 You have put my companions far from me. You have made me repulsive to them. I am shut in and I cannot go out. 
-88:10 My eye fails from affliction. I call upon You every day, </span><span class="it"><span class="sc"><span class="content">Adonai
-88:11 Will You work wonders for the dead? Or will the departed spirits rise up praising You? Selah 
-88:12 Will Your love be declared in the grave? Or Your faithfulness in the place of ruin? 
-88:13 Will Your wonders be known in the darkness? Your righteousness in the land of oblivion? 
-88:14 But I—I cried out to You, </span><span class="it"><span class="sc"><span class="content">Adonai
-88:15 , why do You spurn me? Why do You hide Your face from me? 
-88:16 From my youth I have been afflicted and close to death. I suffer Your terrors—I am desperate! 
-88:17 Your fury has swept over me. Your terrors have cut me off. 
-88:18 Like water they surge around me all day. They close in on me together. 
-89:1 A contemplative song of Ethan the Ezrahite. 
-89:2 I will sing of the love of </span><span class="it"><span class="sc"><span class="content">Adonai
-89:3 For I said, “Let your lovingkindness be built up forever! The heavens—let Your faithfulness be made firm there!” 
-89:4 “I have made a covenant with My chosen one. I have sworn to David My servant: 
-89:5 ‘Forever I will establish your seed, and will build your throne from generation to generation.’” Selah 
-89:6 The heavens praise Your wonders, </span><span class="it"><span class="sc"><span class="content">Adonai
-89:7 For who in the skies can compare to </span><span class="it"><span class="sc"><span class="content">Adonai
-89:8 God is greatly feared in the council of the holy ones, and awesome above all around Him. 
-89:9 , with Your faithfulness all around You? 
-89:10 You rule over the swelling of the sea. When its waves mount up, You still them. 
-89:11 You crushed Rahab like a slain one. You scattered Your enemies with Your mighty arm. 
-89:12 The heavens are Yours, also Yours the earth —the world and its fullness— You have founded them. 
-89:13 You created the north and the south. Tabor and Hermon sing for joy at Your Name. 
-89:14 Your arm is mighty, Your hand is strong, exalted is Your right hand. 
-89:15 Righteousness and justice are the foundation of Your throne. Lovingkindness and truth go before You. 
-89:16 Blessed are the people who know the joyful shout, They walk in the light of Your presence, </span><span class="it"><span class="sc"><span class="content">Adonai
-89:17 They rejoice in Your Name all day, and by Your righteousness they are exalted. 
-89:18 For You are the glory of their strength, and by Your favor our horn is exalted. 
-89:19 For our shield belongs to </span><span class="it"><span class="sc"><span class="content">Adonai
-89:20 Then You spoke in vision to Your godly ones, and said: “I have bestowed help on a warrior. I have exalted one chosen from among the people. 
-89:21 I have found David My servant. With My holy oil I have anointed him. 
-89:22 With him My hand will be established. Surely My arm will strengthen him. 
-89:23 No enemy will exact tribute from him, no son of wickedness will oppress him. 
-89:24 I will crush his adversaries before him, and strike down those who hate him. 
-89:25 My faithfulness and My lovingkindness will be with him, and by My Name his horn will be exalted. 
-89:26 I will also set his hand over the sea, his right hand over the rivers. 
-89:27 He will call to Me: ‘You are my Father, my God and the rock of my salvation.’ 
-89:28 I also will set him as firstborn— the highest of the kings of earth. 
-89:29 I will maintain My love for him forever, and My covenant with him will be firm. 
-89:30 His seed I will establish forever, and his throne as the days of heaven. 
-89:31 If his sons forsake My </span><span class="it"><span class="content">Torah
-89:32 if they violate My decrees, and do not keep My </span><span class="it"><span class="content">mitzvot
-89:33 then I will punish their transgression with the rod, and their iniquity with flogging. 
-89:34 But I will not withdraw My lovingkindness from him, nor will I betray My faithfulness. 
-89:35 I will not violate My covenant, nor alter what My lips have uttered. 
-89:36 Once for all I have sworn by My holiness —surely I will not lie to David— 
-89:37 his descendants will endure forever, and his throne as the sun before Me, 
-89:38 and as the moon, established forever, and a trustworthy witness in the sky.” Selah 
-89:39 But You have cast off and spurned, You have become furious with Your anointed one. 
-89:40 You have renounced the covenant of Your servant. You have defiled his crown even to the ground. 
-89:41 You have broken down all his walls. You reduced his strongholds to ruin. 
-89:42 All who pass by have plundered him. He has become a taunt to his neighbors. 
-89:43 You exalted the right hand of his foes and made all his enemies rejoice. 
-89:44 You turned back the edge of his sword and have not supported him in battle. 
-89:45 You brought his splendor to an end, and cast his throne down to the ground. 
-89:46 You cut short the days of his youth. You covered him with shame. Selah 
-89:47 How long, </span><span class="it"><span class="sc"><span class="content">Adonai
-89:48 Remember how short my life span is! For what futility have You created all the children of men? 
-89:49 What man can live and not see death? Can he deliver himself from the clutches of </span><span class="it"><span class="content">Sheol
-89:50 Where is Your former lovingkindness, my Lord, which You swore to David in Your faithfulness? 
-89:51 Remember, my Lord, the mockery against Your servants that I bear in my heart from so many peoples. 
-89:52 How Your enemies have mocked, </span><span class="it"><span class="sc"><span class="content">Adonai
-90:1 A prayer of Moses the man of God. My Lord, You have been our dwelling from generation to generation. 
-90:2 Before the mountains were born, or You gave birth to the earth and the world, even from everlasting to everlasting, You are God! 
-90:3 You turn mankind back to dust, saying, “Return, children of Adam!” 
-90:4 For a thousand years in Your sight are like a day just passing by, or like a watch in the night. 
-90:5 You sweep them away in their sleep. In the morning they are like sprouting grass— 
-90:6 in the morning it flourishes and springs up, by evening it withers and dries up. 
-90:7 For we are consumed by Your anger and terrified by Your wrath. 
-90:8 You have set our iniquities before You, our secret sins in the light of Your presence. 
-90:9 For all our days have passed away under Your wrath. We spent our years like a sigh. 
-90:10 The span of our years is seventy —or with strength, eighty— yet at best they are trouble and sorrow. For they are soon gone, and we fly away. 
-90:11 Who knows the power of Your anger? Your fury leads to awe of you. 
-90:12 So teach us to number our days, so that we may get a heart of wisdom. 
-90:13 Relent, </span><span class="it"><span class="sc"><span class="content">Adonai
-90:14 Satisfy us in the morning with Your love, so we may sing for joy and be glad all our days. 
-90:15 Gladden us for as many days as You have humbled us, as many years as we have seen misery. 
-90:16 Let Your work appear to Your servants, and Your splendor on their children. 
-90:17 Let the favor of the Lord our God be upon us. Establish the work of our hands for us— yes, establish the work of our hands. 
+88:1 A song, a psalm of the sons of Korah, for the music director, for singing Mahalath, a contemplative song of Heman the Ezrahite.
+88:2 Adonai, God of my salvation, day and night I cried out before You.
+88:3 Let my prayer come before You. Turn Your ear to my cry.
+88:4 For my soul is full of troubles, and my life draws near to Sheol.
+88:5 I am counted with those who go down into the Pit. I have become as one with no strength—
+88:6 abandoned among the dead, like the slain that lie in the grave, whom You remember no more— cut off from Your hand.
+88:7 You have laid me in the lowest places, in dark places, in the depths.
+88:8 Your wrath lies heavily on me. You afflicted me with all Your waves. Selah
+88:9 You have put my companions far from me. You have made me repulsive to them. I am shut in and I cannot go out.
+88:10 My eye fails from affliction. I call upon You every day, Adonai. I spread out my hands to You.
+88:11 Will You work wonders for the dead? Or will the departed spirits rise up praising You? Selah
+88:12 Will Your love be declared in the grave? Or Your faithfulness in the place of ruin?
+88:13 Will Your wonders be known in the darkness? Your righteousness in the land of oblivion?
+88:14 But I—I cried out to You, Adonai, and in the morning my prayer meets You.
+88:15 Adonai, why do You spurn me? Why do You hide Your face from me?
+88:16 From my youth I have been afflicted and close to death. I suffer Your terrors—I am desperate!
+88:17 Your fury has swept over me. Your terrors have cut me off.
+88:18 Like water they surge around me all day. They close in on me together.
+88:19 Friend and loved one You took far from me. Darkness has become my companion.
+89:1 A contemplative song of Ethan the Ezrahite.
+89:2 I will sing of the love of Adonai forever. To all generations I will make known Your faithfulness with my mouth.
+89:3 For I said, “Let your lovingkindness be built up forever! The heavens—let Your faithfulness be made firm there!”
+89:4 “I have made a covenant with My chosen one. I have sworn to David My servant:
+89:5 ‘Forever I will establish your seed, and will build your throne from generation to generation.’” Selah
+89:6 The heavens praise Your wonders, Adonai —Your faithfulness, too— in the assembly of the kedoshim.
+89:7 For who in the skies can compare to Adonai? Who is like Adonai among the sons of gods?
+89:8 God is greatly feared in the council of the holy ones, and awesome above all around Him.
+89:9 Adonai Elohei-Tzva’ot, who is like You, mighty Adonai, with Your faithfulness all around You?
+89:10 You rule over the swelling of the sea. When its waves mount up, You still them.
+89:11 You crushed Rahab like a slain one. You scattered Your enemies with Your mighty arm.
+89:12 The heavens are Yours, also Yours the earth —the world and its fullness— You have founded them.
+89:13 You created the north and the south. Tabor and Hermon sing for joy at Your Name.
+89:14 Your arm is mighty, Your hand is strong, exalted is Your right hand.
+89:15 Righteousness and justice are the foundation of Your throne. Lovingkindness and truth go before You.
+89:16 Blessed are the people who know the joyful shout, They walk in the light of Your presence, Adonai.
+89:17 They rejoice in Your Name all day, and by Your righteousness they are exalted.
+89:18 For You are the glory of their strength, and by Your favor our horn is exalted.
+89:19 For our shield belongs to Adonai, and our king to the Holy One of Israel.
+89:20 Then You spoke in vision to Your godly ones, and said: “I have bestowed help on a warrior. I have exalted one chosen from among the people.
+89:21 I have found David My servant. With My holy oil I have anointed him.
+89:22 With him My hand will be established. Surely My arm will strengthen him.
+89:23 No enemy will exact tribute from him, no son of wickedness will oppress him.
+89:24 I will crush his adversaries before him, and strike down those who hate him.
+89:25 My faithfulness and My lovingkindness will be with him, and by My Name his horn will be exalted.
+89:26 I will also set his hand over the sea, his right hand over the rivers.
+89:27 He will call to Me: ‘You are my Father, my God and the rock of my salvation.’
+89:28 I also will set him as firstborn— the highest of the kings of earth.
+89:29 I will maintain My love for him forever, and My covenant with him will be firm.
+89:30 His seed I will establish forever, and his throne as the days of heaven.
+89:31 If his sons forsake My Torah, and do not walk in My judgments,
+89:32 if they violate My decrees, and do not keep My mitzvot,
+89:33 then I will punish their transgression with the rod, and their iniquity with flogging.
+89:34 But I will not withdraw My lovingkindness from him, nor will I betray My faithfulness.
+89:35 I will not violate My covenant, nor alter what My lips have uttered.
+89:36 Once for all I have sworn by My holiness —surely I will not lie to David—
+89:37 his descendants will endure forever, and his throne as the sun before Me,
+89:38 and as the moon, established forever, and a trustworthy witness in the sky.” Selah
+89:39 But You have cast off and spurned, You have become furious with Your anointed one.
+89:40 You have renounced the covenant of Your servant. You have defiled his crown even to the ground.
+89:41 You have broken down all his walls. You reduced his strongholds to ruin.
+89:42 All who pass by have plundered him. He has become a taunt to his neighbors.
+89:43 You exalted the right hand of his foes and made all his enemies rejoice.
+89:44 You turned back the edge of his sword and have not supported him in battle.
+89:45 You brought his splendor to an end, and cast his throne down to the ground.
+89:46 You cut short the days of his youth. You covered him with shame. Selah
+89:47 How long, Adonai, will You hide Yourself? Forever? Will Your fury keep burning like fire?
+89:48 Remember how short my life span is! For what futility have You created all the children of men?
+89:49 What man can live and not see death? Can he deliver himself from the clutches of Sheol? Selah
+89:50 Where is Your former lovingkindness, my Lord, which You swore to David in Your faithfulness?
+89:51 Remember, my Lord, the mockery against Your servants that I bear in my heart from so many peoples.
+89:52 How Your enemies have mocked, Adonai, how they have mocked the footsteps of Your Anointed One!
+89:53 Blessed be Adonai forever. Amen and Amen.
+90:1 A prayer of Moses the man of God. My Lord, You have been our dwelling from generation to generation.
+90:2 Before the mountains were born, or You gave birth to the earth and the world, even from everlasting to everlasting, You are God!
+90:3 You turn mankind back to dust, saying, “Return, children of Adam!”
+90:4 For a thousand years in Your sight are like a day just passing by, or like a watch in the night.
+90:5 You sweep them away in their sleep. In the morning they are like sprouting grass—
+90:6 in the morning it flourishes and springs up, by evening it withers and dries up.
+90:7 For we are consumed by Your anger and terrified by Your wrath.
+90:8 You have set our iniquities before You, our secret sins in the light of Your presence.
+90:9 For all our days have passed away under Your wrath. We spent our years like a sigh.
+90:10 The span of our years is seventy —or with strength, eighty— yet at best they are trouble and sorrow. For they are soon gone, and we fly away.
+90:11 Who knows the power of Your anger? Your fury leads to awe of you.
+90:12 So teach us to number our days, so that we may get a heart of wisdom.
+90:13 Relent, Adonai! How long? Have compassion on Your servants.
+90:14 Satisfy us in the morning with Your love, so we may sing for joy and be glad all our days.
+90:15 Gladden us for as many days as You have humbled us, as many years as we have seen misery.
+90:16 Let Your work appear to Your servants, and Your splendor on their children.
+90:17 Let the favor of the Lord our God be upon us. Establish the work of our hands for us— yes, establish the work of our hands.
 91:1 He who dwells in the shelter of Elyon, will abide in the shadow of Shaddai. 
 91:2 I will say of </span><span class="it"><span class="sc"><span class="content">Adonai
 91:3 For He will rescue you from the hunter’s trap and from the deadly pestilence. 
