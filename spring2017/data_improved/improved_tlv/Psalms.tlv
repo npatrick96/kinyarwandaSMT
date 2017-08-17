@@ -1536,64 +1536,64 @@
 95:9 when your fathers tested Me, they challenged Me, even though they had seen My work. 
 95:10 For forty years I loathed that generation. So I said: ‘It is a people whose heart goes astray, who do not know My ways.’ 
 95:11 Therefore I swore in My anger, ‘They shall never enter into My rest.’” 
-96:1 Sing to </span><span class="it"><span class="sc"><span class="content">Adonai
-96:2 Sing to </span><span class="it"><span class="sc"><span class="content">Adonai
-96:3 Declare His glory among the nations, His marvelous deeds among all peoples. 
-96:4 For great is </span><span class="it"><span class="sc"><span class="content">Adonai
-96:5 For all the gods of the peoples are idols, but </span><span class="it"><span class="sc"><span class="content">Adonai
-96:6 Splendor and majesty are before Him. Strength and beauty are in His Sanctuary. 
-96:7 Ascribe to </span><span class="it"><span class="sc"><span class="content">Adonai
-96:8 Ascribe to </span><span class="it"><span class="sc"><span class="content">Adonai
-96:9 Bow down to </span><span class="it"><span class="sc"><span class="content">Adonai
-96:10 Say among the nations: “</span><span class="it"><span class="sc"><span class="content">Adonai
-96:11 Let the heavens be glad, let the earth rejoice. Let the sea roar—and all that fills it. 
-96:12 Let the land exult—and all that is in it. Then all the trees of the forest will sing for joy— 
-96:13 before </span><span class="it"><span class="sc"><span class="content">Adonai
-97:1  reigns, let the earth rejoice, let the many islands be glad. 
-97:2 Clouds and darkness are all around Him. Righteousness and justice are the foundation of His throne. 
-97:3 Fire goes before Him and burns up His adversaries on every side. 
-97:4 His lightning lights up the world— the earth sees and trembles. 
-97:5 The mountains melt like wax at the presence of </span><span class="it"><span class="sc"><span class="content">Adonai
-97:6 The heavens declare His righteousness, and all the peoples have seen His glory. 
-97:7 Let all who serve graven images be ashamed—who boast in idols. Bow down before Him, all you gods! 
-97:8 Zion hears and is glad, and the daughters of Judah rejoice, because of Your judgments, </span><span class="it"><span class="sc"><span class="content">Adonai
-97:9 For You, </span><span class="it"><span class="sc"><span class="content">Adonai
-97:10 You who love </span><span class="it"><span class="sc"><span class="content">Adonai
-97:11 Light is sown for the righteous and gladness for the upright in heart. 
-97:12 Rejoice in </span><span class="it"><span class="sc"><span class="content">Adonai
-98:1 A psalm. Sing to </span><span class="it"><span class="sc"><span class="content">Adonai
-98:2  has made His salvation known. He has revealed His righteousness before the eyes of the nations. 
-98:3 He has remembered His lovingkindness, His faithfulness to the house of Israel. All the ends of the earth have seen the salvation of our God. 
-98:4 Shout joyfully to </span><span class="it"><span class="sc"><span class="content">Adonai
-98:5 Sing praises to </span><span class="it"><span class="sc"><span class="content">Adonai
-98:6 With trumpets and sound of the </span><span class="it"><span class="content">shofar
-98:7 Let the sea roar and all within it, the world and those who dwell in it. 
-98:8 Let the rivers clap their hands, let the mountains sing for joy together— 
-98:9 before </span><span class="it"><span class="sc"><span class="content">Adonai
-99:1 — let the earth shake! 
-99:2  is great in Zion and He is exalted above all the peoples. 
-99:3 Let them praise Your great and awesome Name: holy is He. 
-99:4 The might of a king loves justice. You have established fairness. You executed justice and righteousness in Jacob. 
-99:5 Exalt </span><span class="it"><span class="sc"><span class="content">Adonai
-99:6 Moses and Aaron were among His </span><span class="it"><span class="content">kohanim
-99:7 He spoke to them from the pillar of cloud. They kept His testimonies, and the decree that He gave them. 
-99:8  our God, You answered them. A forgiving God You were to them, though You avenged their misdeeds. 
-99:9 Exalt </span><span class="it"><span class="sc"><span class="content">Adonai
-100:1 A psalm of thanksgiving. Shout joyfully to </span><span class="it"><span class="sc"><span class="content">Adonai
-100:2 Serve </span><span class="it"><span class="sc"><span class="content">Adonai
-100:3 Know that </span><span class="it"><span class="sc"><span class="content">Adonai
-100:4 Enter His gates with thanksgiving and His courts with praise! Praise Him, bless His Name. 
-100:5 For </span><span class="it"><span class="sc"><span class="content">Adonai
-101:1 A psalm of David. I will sing of lovingkindness and justice. To You, </span><span class="it"><span class="sc"><span class="content">Adonai
+96:1 Sing to Adonai a new song! Sing to Adonai, all the earth.
+96:2 Sing to Adonai, bless His Name. Proclaim the good news of His salvation from day to day.
+96:3 Declare His glory among the nations, His marvelous deeds among all peoples.
+96:4 For great is Adonai, and greatly to be praised. He is to be feared above all gods.
+96:5 For all the gods of the peoples are idols, but Adonai made the heavens.
+96:6 Splendor and majesty are before Him. Strength and beauty are in His Sanctuary.
+96:7 Ascribe to Adonai, O families of peoples. Ascribe to Adonai glory and strength.
+96:8 Ascribe to Adonai the glory of His Name. Bring an offering and come into His courts.
+96:9 Bow down to Adonai in holy splendor. Tremble before Him, all the earth.
+96:10 Say among the nations: “Adonai reigns!” The world is firmly established— it will not move. He will judge the peoples with fairness.
+96:11 Let the heavens be glad, let the earth rejoice. Let the sea roar—and all that fills it.
+96:12 Let the land exult—and all that is in it. Then all the trees of the forest will sing for joy—
+96:13 before Adonai, for He is coming! For He is coming to judge the earth. He will judge the world with righteousness and the peoples in His faithfulness.
+97:1 Adonai reigns, let the earth rejoice, let the many islands be glad.
+97:2 Clouds and darkness are all around Him. Righteousness and justice are the foundation of His throne.
+97:3 Fire goes before Him and burns up His adversaries on every side.
+97:4 His lightning lights up the world— the earth sees and trembles.
+97:5 The mountains melt like wax at the presence of Adonai, at the presence of the Lord of all earth.
+97:6 The heavens declare His righteousness, and all the peoples have seen His glory.
+97:7 Let all who serve graven images be ashamed—who boast in idols. Bow down before Him, all you gods!
+97:8 Zion hears and is glad, and the daughters of Judah rejoice, because of Your judgments, Adonai.
+97:9 For You, Adonai, are Elyon above all the earth. You are exalted far above all gods.
+97:10 You who love Adonai, hate evil! He watches over the souls of His godly ones. He delivers them out of the hand of the wicked.
+97:11 Light is sown for the righteous and gladness for the upright in heart.
+97:12 Rejoice in Adonai, you righteous ones, and praise His holy Name.
+98:1 A psalm. Sing to Adonai a new song, for He has done marvelous things. His right hand and His holy arm have won victory for Him.
+98:2 Adonai has made His salvation known. He has revealed His righteousness before the eyes of the nations.
+98:3 He has remembered His lovingkindness, His faithfulness to the house of Israel. All the ends of the earth have seen the salvation of our God.
+98:4 Shout joyfully to Adonai, all the earth. Break forth, sing for joy, and sing praises.
+98:5 Sing praises to Adonai with the harp, with the harp and a voice of melody.
+98:6 With trumpets and sound of the shofar blast a sound before the King, Adonai.
+98:7 Let the sea roar and all within it, the world and those who dwell in it.
+98:8 Let the rivers clap their hands, let the mountains sing for joy together—
+98:9 before Adonai, for He is coming to judge the earth. He will judge the world with righteousness and the peoples with fairness.
+99:1 Adonai reigns, let the peoples tremble. He is enthroned upon the cheruvim— let the earth shake!
+99:2 Adonai is great in Zion and He is exalted above all the peoples.
+99:3 Let them praise Your great and awesome Name: holy is He.
+99:4 The might of a king loves justice. You have established fairness. You executed justice and righteousness in Jacob.
+99:5 Exalt Adonai our God and worship at His footstool: holy is He.
+99:6 Moses and Aaron were among His kohanim—also Samuel among those calling on His Name. They called on Adonai and He answered them.
+99:7 He spoke to them from the pillar of cloud. They kept His testimonies, and the decree that He gave them.
+99:8 Adonai our God, You answered them. A forgiving God You were to them, though You avenged their misdeeds.
+99:9 Exalt Adonai our God, and worship at His holy hill, for holy is Adonai our God.
+100:1 A psalm of thanksgiving. Shout joyfully to Adonai, all the earth!
+100:2 Serve Adonai with gladness. Come before His presence with joyful singing.
+100:3 Know that Adonai, He is God. It is He who has made us, and we are His. We are His people, the sheep of His pasture.
+100:4 Enter His gates with thanksgiving and His courts with praise! Praise Him, bless His Name.
+100:5 For Adonai is good. His lovingkindness endures forever, and His faithfulness to all generations.
+101:1 A psalm of David. I will sing of lovingkindness and justice. To You, Adonai, I will sing praises.
 101:2 I will behave wisely in the way of integrity —when will You come to me? I walk in my house with integrity in my heart. 
 101:3 No base thing will I set before my eyes. Twisted behavior I hate— it will not cling to me. 
 101:4 A perverse heart will depart from me. I will know nothing evil. 
 101:5 Whoever slanders his neighbor in secret —him I will silence. Who has haughty eyes and a proud heart —him I will not tolerate. 
 101:6 My eyes are on the trustworthy of the land, to be in my company. One walking in a blameless way will serve me. 
 101:7 No one who practices deceit will dwell in my house. No one who utters lies will endure before my eyes. 
-101:8 Each morning I silence all the land’s wicked ones— to cut off from </span><span class="it"><span class="sc"><span class="content">Adonai
-102:1 A prayer of the afflicted one, when he is faint and pours out his lament before </span><span class="it"><span class="sc"><span class="content">Adonai
-102:2 , hear my prayer, let my cry come to You. 
+101:8 Each morning I silence all the land’s wicked ones— to cut off from Adonai’s city every evildoer.
+102:1 A prayer of the afflicted one, when he is faint and pours out his lament before Adonai:
+102:2 Adonai, hear my prayer, let my cry come to You. 
 102:3 Do not hide Your face from me in the day of my distress. Turn Your ear to me— in the day I call, answer me quickly. 
 102:4 For my days vanished like smoke, and my bones were burned like coals. 
 102:5 My heart is stricken and withered like grass, so that I even forget to eat my bread. 
@@ -1604,24 +1604,25 @@
 102:10 For I have eaten ashes like bread, and mixed my drink with tears— 
 102:11 because of Your indignation and wrath, for You have picked me up and tossed me aside. 
 102:12 My days are like a lengthening shadow, and I wither away like grass. 
-102:13 But You, </span><span class="it"><span class="sc"><span class="content">Adonai
+102:13 But You, Adonai, sit enthroned forever. Your renown is from generation to generation.
 102:14 You will arise and have compassion on Zion, for it is time to show favor to her, for the appointed time has come, 
 102:15 for her stones are dear to Your servants, and they cherish her dust. 
-102:16 So the nations will fear </span><span class="it"><span class="sc"><span class="content">Adonai
-102:17 For </span><span class="it"><span class="sc"><span class="content">Adonai
+102:16 So the nations will fear Adonai’s Name and all the kings of the earth Your glory.
+102:17 or Adonai has rebuilt Zion. He has appeared in His glory.
 102:18 He has turned to the prayer of the destitute, and has not despised their prayer. 
-102:19 Let it be written for a generation to come, that a people to be created may praise </span><span class="it"><span class="sc"><span class="content">Adonai
-102:20 For He looks down from His holy height, from heaven </span><span class="it"><span class="sc"><span class="content">Adonai
+102:19 Let it be written for a generation to come, that a people to be created may praise Adonai.
+102:20 For He looks down from His holy height, from heaven Adonai gazes on the earth,
 102:21 to hear the groaning of the prisoner, to set free those condemned to death, 
-102:22 to declare the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-102:23 when the peoples and the kingdoms assemble to worship </span><span class="it"><span class="sc"><span class="content">Adonai
+102:22 to declare the Name of Adonai in Zion and His praise in Jerusalem,
+102:23 when the peoples and the kingdoms assemble to worship Adonai.
 102:24 He brought down my strength in midcourse. He shortened my days. 
 102:25 I say, “My God, do not take me up in the middle of my days. Your years endure through all generations! 
 102:26 Long ago You founded the earth, the heavens are the work of Your hands. 
 102:27 They will perish, but You will remain. All of them will wear out like a garment. Like clothing You change them, so they change. 
 102:28 But You are the same, and Your years will never end. 
-103:1 Of David. Bless </span><span class="it"><span class="sc"><span class="content">Adonai
-103:2 Bless </span><span class="it"><span class="sc"><span class="content">Adonai
+102:29 The children of Your servants will live. Their descendants will be established before You.”
+103:1 Of David. Bless Adonai, O my soul, and all that is within me, bless His holy Name.
+103:2 2Bless Adonai, O my soul, and forget not all His benefits:
 103:3 He forgives all your iniquity. He heals all your diseases. 
 103:4 He redeems your life from the Pit. He crowns you with lovingkindness and compassions. 
 103:5 He satisfies your years with good things, so that your youth is renewed like an eagle. 
@@ -1632,95 +1633,95 @@
 103:10 He has not treated us according to our sins, or repaid us according to our iniquities. 
 103:11 For as high as the heavens are above the earth, so great is His mercy for those who fear Him. 
 103:12 As far as the east is from the west, so far has He removed our transgressions from us. 
-103:13 As a father has compassion on his children, so </span><span class="it"><span class="sc"><span class="content">Adonai
+103:13 As a father has compassion on his children, so Adonai has compassion on those who fear Him.
 103:14 For He knows our frame. He remembers that we are but dust. 
 103:15 As for man, his days are like grass— he flourishes like a flower of the field, 
 103:16 but when the wind blows over it, it is gone, and its place is no longer known. 
-103:17 But the mercy of </span><span class="it"><span class="sc"><span class="content">Adonai
+103:17 But the mercy of Adonai is from everlasting to everlasting on those who revere Him, His righteousness to children’s children,
 103:18 to those who keep His covenant, who remember to observe His instructions. 
-103:19  has set up His throne in the heavens, and His kingdom rules over all. 
-103:20 Bless </span><span class="it"><span class="sc"><span class="content">Adonai
-103:21 Bless </span><span class="it"><span class="sc"><span class="content">Adonai
-103:22 Bless </span><span class="it"><span class="sc"><span class="content">Adonai
-104:1 Bless </span><span class="it"><span class="sc"><span class="content">Adonai
-104:2 wrapping Yourself in light as a robe, stretching out heaven like a curtain, 
-104:3 laying beams for His upper rooms in waters, making the clouds His chariot, walking on the wings of the wind, 
-104:4 making His angels spirits, His servants a flaming fire. 
-104:5 He set the earth upon its foundations, so it should not totter forever and ever. 
-104:6 You covered it with the deep as with a garment—the waters standing above the mountains. 
-104:7 At Your rebuke the waters fled. At the sound of Your thunder they hurried away. 
-104:8 The waters go up the mountains, then down to the valleys— to the place that You assigned to them. 
-104:9 You set a boundary to the waters that they may not cross over, so they may not return to cover the earth. 
-104:10 You make springs gush into the valleys. They run between the mountains. 
-104:11 They give drink to all the beasts of the field— the wild donkeys quench their thirst. 
-104:12 Beside them the birds of the sky dwell— they sing among the branches. 
-104:13 He waters mountains from His upper rooms. The earth is full of the fruit of Your labors. 
-104:14 He causes grass to spring up for the cattle, and vegetation for man to cultivate, to bring forth bread out of the earth, 
-104:15 wine that makes man’s heart glad, oil to make his face shine, and bread that sustains man’s heart. 
-104:16 The trees of </span><span class="it"><span class="sc"><span class="content">Adonai
-104:17 where birds make their nests, and the stork—her home is the fir trees. 
-104:18 The high mountains are for wild goats, the cliffs a refuge for rock badgers. 
-104:19 He made the moon for appointed times, the sun knows its going down. 
-104:20 You bring darkness, so it becomes night, when all the beasts of the forest prowl. 
-104:21 The young lions roar for prey, seeking their food from God. 
-104:22 But when the sun rises, they gather and lie down in their dens. 
-104:23 Man goes out to his work, and to his labor until the evening. 
-104:24 , how countless are Your works! In wisdom You made them all— the earth is full of Your creatures. 
-104:25 There is the sea, vast and wide, teeming with gliding things innumerable, living creatures, both small and large. 
-104:26 There, ships go to and fro. Leviathan—You formed to frolic there. 
-104:27 They all look to You to give them their food at the right time. 
-104:28 When You give it to them, they gather it up. When You open Your hand, they are satisfied with good. 
-104:29 But when You hide Your face— they are dismayed. You take away their breath— they perish, and return to their dust. 
-104:30 You send forth Your </span><span class="it"><span class="content">Ruach
-104:31 May the glory of </span><span class="it"><span class="sc"><span class="content">Adonai
-104:32 He looks at the earth, and it trembles. He touches the mountains, and they smoke. 
-104:33 I will sing to </span><span class="it"><span class="sc"><span class="content">Adonai
-104:34 Let my meditation be sweet to Him. I—I will rejoice in </span><span class="it"><span class="sc"><span class="content">Adonai
-104:35 Let sinners vanish from the earth and let the wicked be no more. Bless </span><span class="it"><span class="sc"><span class="content">Adonai
-105:1 Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-105:2 Sing to Him, sing praises to Him— tell about all His wonders! 
-105:3 Glory in His holy Name. Let the heart of those who seek </span><span class="it"><span class="sc"><span class="content">Adonai
-105:4 Seek </span><span class="it"><span class="sc"><span class="content">Adonai
-105:5 Remember His wonders that He has done, His miracles and the judgments of His mouth, 
-105:6 O seed of Abraham, His servant, O children of Jacob, His chosen ones. 
-105:7 He is </span><span class="it"><span class="sc"><span class="content">Adonai
-105:8 He remembers His covenant forever— the word He commanded for a thousand generations— 
-105:9 which He made with Abraham, and swore to Isaac, 
-105:10 and confirmed to Jacob as a decree, to Israel as an everlasting covenant, 
-105:11 saying, “To you I give the land of Canaan, the portion of your inheritance.” 
-105:12 When they were but few in number, few indeed, and foreigners in it, 
-105:13 wandering from nation to nation, from one kingdom to another people, 
-105:14 He allowed no one to oppress them— for their sake He rebuked kings: 
-105:15 “Touch not My anointed ones, and do My prophets no harm.” 
-105:16 He called down a famine on the land. He broke the whole supply of bread. 
-105:17 He sent a man before them— Joseph, sold as a slave. 
-105:18 They hurt His feet with shackles, he was put in irons— 
-105:19 till the time that his word came true— the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-105:20 The king sent and released him. The ruler of the peoples set him free. 
-105:21 He made him lord of his house, ruler over all his possessions, 
-105:22 to discipline his princes at his will, and teach his elders wisdom. 
-105:23 Then Israel came into Egypt, Jacob sojourned in the land of Ham. 
-105:24 He made His people very fruitful, and made them more numerous than their foes. 
-105:25 He turned their hearts to hate His people, to deal shrewdly with His servants. 
-105:26 He sent Moses His servant, and Aaron, whom He had chosen. 
-105:27 They performed His signs among them —miracles in the land of Ham. 
-105:28 He sent darkness, and it was dark, so they did not rebel against His words. 
-105:29 He turned their waters into blood, causing their fish to die. 
-105:30 Their land swarmed with frogs, even in their royal chambers. 
-105:31 He spoke, and a swarm of gnats came within all their borders. 
-105:32 He gave them a rain of hail, flames of fire throughout their land. 
-105:33 He struck their vines and their fig trees and shattered the trees of their country. 
-105:34 He spoke, and the locust came —young locusts without number— 
-105:35 to eat up every green thing in their land and eat up the fruit of their ground. 
-105:36 Then He struck all the firstborn in their land, the firstfruits of all their vigor. 
-105:37 Then He brought them out with silver and gold, and no one among His tribes faltered. 
-105:38 Egypt was glad when they left— for dread of them had fallen on them. 
-105:39 He spread a cloud as a covering and fire to give light at night. 
-105:40 They asked, and He brought quail, and satisfied them with the bread of heaven. 
-105:41 He opened a rock, and waters gushed out, flowed as a river in dry places. 
-105:42 For He remembered His holy word to Abraham His servant. 
-105:43 So He brought forth His people with joy, His chosen ones with singing. 
-105:44 He gave them the lands of the nations, so they inherited the labor of the peoples 
+103:19 Adonai has set up His throne in the heavens, and His kingdom rules over all.
+103:20 Bless Adonai, you angels of His: mighty in strength, performing His word, upon hearing the utterance of His word.
+103:21 Bless Adonai, all you His armies, His servants who do His will.
+103:22 Bless Adonai, all His works everywhere in His dominion. Bless Adonai, O my soul!
+104:1 Bless Adonai, O my soul. Adonai my God, You are very great! You are clothed with splendor and majesty—
+104:2 wrapping Yourself in light as a robe, stretching out heaven like a curtain,
+104:3 laying beams for His upper rooms in waters, making the clouds His chariot, walking on the wings of the wind,
+104:4 making His angels spirits, His servants a flaming fire.
+104:5 He set the earth upon its foundations, so it should not totter forever and ever.
+104:6 You covered it with the deep as with a garment—the waters standing above the mountains.
+104:7 At Your rebuke the waters fled. At the sound of Your thunder they hurried away.
+104:8 The waters go up the mountains, then down to the valleys— to the place that You assigned to them.
+104:9 You set a boundary to the waters that they may not cross over, so they may not return to cover the earth.
+104:10 You make springs gush into the valleys. They run between the mountains.
+104:11 They give drink to all the beasts of the field— the wild donkeys quench their thirst.
+104:12 Beside them the birds of the sky dwell— they sing among the branches.
+104:13 He waters mountains from His upper rooms. The earth is full of the fruit of Your labors.
+104:14 He causes grass to spring up for the cattle, and vegetation for man to cultivate, to bring forth bread out of the earth,
+104:15 wine that makes man’s heart glad, oil to make his face shine, and bread that sustains man’s heart.
+104:16 The trees of Adonai are satisfied, the cedars of Lebanon that He planted,
+104:17 where birds make their nests, and the stork—her home is the fir trees.
+104:18 The high mountains are for wild goats, the cliffs a refuge for rock badgers.
+104:19 He made the moon for appointed times, the sun knows its going down.
+104:20 You bring darkness, so it becomes night, when all the beasts of the forest prowl.
+104:21 The young lions roar for prey, seeking their food from God.
+104:22 But when the sun rises, they gather and lie down in their dens.
+104:23 Man goes out to his work, and to his labor until the evening.
+104:24 Adonai, how countless are Your works! In wisdom You made them all— the earth is full of Your creatures.
+104:25 There is the sea, vast and wide, teeming with gliding things innumerable, living creatures, both small and large.
+104:26 There, ships go to and fro. Leviathan—You formed to frolic there.
+104:27 They all look to You to give them their food at the right time.
+104:28 When You give it to them, they gather it up. When You open Your hand, they are satisfied with good.
+104:29 But when You hide Your face— they are dismayed. You take away their breath— they perish, and return to their dust.
+104:30 You send forth Your Ruach— they are created, and You renew the face of the earth.
+104:31 May the glory of Adonai endure forever! May Adonai rejoice in His works!
+104:32 He looks at the earth, and it trembles. He touches the mountains, and they smoke.
+104:33 I will sing to Adonai as long as I live! I will sing praise to my God yet again!
+104:34 Let my meditation be sweet to Him. I—I will rejoice in Adonai.
+104:35 Let sinners vanish from the earth and let the wicked be no more. Bless Adonai, O my soul. Halleluyah!
+105:1 Praise Adonai, call upon His Name. Make known His deeds among the peoples.
+105:2 Sing to Him, sing praises to Him— tell about all His wonders!
+105:3 Glory in His holy Name. Let the heart of those who seek Adonai rejoice.
+105:4 Seek Adonai and His strength, seek His face always.
+105:5 Remember His wonders that He has done, His miracles and the judgments of His mouth,
+105:6 O seed of Abraham, His servant, O children of Jacob, His chosen ones.
+105:7 He is Adonai our God. His judgments are in all the earth.
+105:8 He remembers His covenant forever— the word He commanded for a thousand generations—
+105:9 which He made with Abraham, and swore to Isaac,
+105:10 and confirmed to Jacob as a decree, to Israel as an everlasting covenant,
+105:11 saying, “To you I give the land of Canaan, the portion of your inheritance.”
+105:12 When they were but few in number, few indeed, and foreigners in it,
+105:13 wandering from nation to nation, from one kingdom to another people,
+105:14 He allowed no one to oppress them— for their sake He rebuked kings:
+105:15 “Touch not My anointed ones, and do My prophets no harm.”
+105:16 He called down a famine on the land. He broke the whole supply of bread.
+105:17 He sent a man before them— Joseph, sold as a slave.
+105:18 They hurt His feet with shackles, he was put in irons—
+105:19 till the time that his word came true— the word of Adonai proved him true!
+105:20 The king sent and released him. The ruler of the peoples set him free.
+105:21 He made him lord of his house, ruler over all his possessions,
+105:22 to discipline his princes at his will, and teach his elders wisdom.
+105:23 Then Israel came into Egypt, Jacob sojourned in the land of Ham.
+105:24 He made His people very fruitful, and made them more numerous than their foes.
+105:25 He turned their hearts to hate His people, to deal shrewdly with His servants.
+105:26 He sent Moses His servant, and Aaron, whom He had chosen.
+105:27 They performed His signs among them —miracles in the land of Ham.
+105:28 He sent darkness, and it was dark, so they did not rebel against His words.
+105:29 He turned their waters into blood, causing their fish to die.
+105:30 Their land swarmed with frogs, even in their royal chambers.
+105:31 He spoke, and a swarm of gnats came within all their borders.
+105:32 He gave them a rain of hail, flames of fire throughout their land.
+105:33 He struck their vines and their fig trees and shattered the trees of their country.
+105:34 He spoke, and the locust came —young locusts without number—
+105:35 to eat up every green thing in their land and eat up the fruit of their ground.
+105:36 Then He struck all the firstborn in their land, the firstfruits of all their vigor.
+105:37 Then He brought them out with silver and gold, and no one among His tribes faltered.
+105:38 Egypt was glad when they left— for dread of them had fallen on them.
+105:39 He spread a cloud as a covering and fire to give light at night.
+105:40 They asked, and He brought quail, and satisfied them with the bread of heaven.
+105:41 He opened a rock, and waters gushed out, flowed as a river in dry places.
+105:42 For He remembered His holy word to Abraham His servant.
+105:43 So He brought forth His people with joy, His chosen ones with singing.
+105:44 He gave them the lands of the nations, so they inherited the labor of the peoples
 105:45 so that they might keep His statutes and observe His laws. Halleluyah!
 106:1 Halleluyah! Praise </span><span class="it"><span class="sc"><span class="content">Adonai
 106:2 Who can speak of </span><span class="it"><span class="sc"><span class="content">Adonai
