@@ -1466,14 +1466,14 @@
 90:16 Let Your work appear to Your servants, and Your splendor on their children.
 90:17 Let the favor of the Lord our God be upon us. Establish the work of our hands for us— yes, establish the work of our hands.
 91:1 He who dwells in the shelter of Elyon, will abide in the shadow of Shaddai. 
-91:2 I will say of </span><span class="it"><span class="sc"><span class="content">Adonai
+91:2 I will say of Adonai, “He is my refuge and my fortress, my God, in whom I trust.
 91:3 For He will rescue you from the hunter’s trap and from the deadly pestilence. 
 91:4 He will cover you with His feathers, and under His wings you will find refuge. His faithfulness is body armor and shield. 
 91:5 You will not fear the terror by night, nor the arrow that flies by day, 
 91:6 nor the plague that stalks in darkness, nor the scourge that lays waste at noon. 
 91:7 A thousand may fall at your side, and ten thousand at your right hand, but it will not come near you. 
 91:8 You will only look on with your eyes and see the wicked paid back. 
-91:9 For you have made Elyon your dwelling, even </span><span class="it"><span class="sc"><span class="content">Adonai
+91:9 For you have made Elyon your dwelling, even Adonai, who is my refuge,
 91:10 so no evil will befall you nor any plague come near your tent. 
 91:11 For He will give His angels charge over you, to guard you in all your ways. 
 91:12 Upon their hands they will lift you up, lest you strike your foot against a stone. 
@@ -1482,54 +1482,55 @@
 91:15 When he calls on Me, I will answer him. I will be with him in trouble, rescue him, and honor him. 
 91:16 With long life will I satisfy him and show him My salvation.”
 92:1 A psalm, a song for the Shabbat. 
-92:2 It is good to praise </span><span class="it"><span class="sc"><span class="content">Adonai
+92:2 It is good to praise Adonai and to make music to Your Name, Elyon,
 92:3 to declare Your love in the morning and Your faithfulness at night, 
 92:4 with a ten-string harp, with resounding music on the lyre. 
-92:5 For You made me glad, </span><span class="it"><span class="sc"><span class="content">Adonai
-92:6 How great are Your works, </span><span class="it"><span class="sc"><span class="content">Adonai
+92:5 For You made me glad, Adonai, by Your deeds. I sing for joy at the works of Your hands.
+92:6 How great are Your works, Adonai! How profound are Your thoughts!
 92:7 A brutish man does not know, nor does a fool understand. 
 92:8 Though the wicked spring up like grass, and all evildoers flourish, it is only to be ruined forever. 
-92:9 But You, </span><span class="it"><span class="sc"><span class="content">Adonai
-92:10 For behold, Your enemies, </span><span class="it"><span class="sc"><span class="content">Adonai
+92:9 But You, Adonai, are exalted forever.
+92:10 For behold, Your enemies, Adonai —behold Your enemies perish— all evildoers are scattered.
 92:11 But You exalted my horn like that of a wild ox. I am anointed with fresh oil. 
 92:12 My eye can gaze on those lying in wait for me. My ears hear about evildoers rising up against me. 
 92:13 The righteous will flourish like a palm tree. He will grow like a cedar in Lebanon. 
-92:14 Planted in the House of </span><span class="it"><span class="sc"><span class="content">Adonai
+92:14 Planted in the House of Adonai, they will flourish in the courts of our God.
 92:15 They will still yield fruit in old age. They will be full of sap and freshness. 
+92:16 They declare, “Adonai is upright, my Rock —there is no injustice in Him.”
 93:1  has robed and armed Himself with strength. Yes, the world is firmly established—un­shakable. 
 93:2 Your throne is established from of old. You are from everlasting. 
-93:3 The floods have lifted up, </span><span class="it"><span class="sc"><span class="content">Adonai
-93:4 More than the sounds of many waters— more majestic than the breakers of the sea— so majestic is </span><span class="it"><span class="sc"><span class="content">Adonai
-93:5 Your testimonies are very sure. Holiness befits Your House, </span><span class="it"><span class="sc"><span class="content">Adonai
-94:1 God of vengeance, </span><span class="it"><span class="sc"><span class="content">Adonai
+93:3 The floods have lifted up, Adonai, the floods have lifted up their voice, the floods lift up their crashing waves.
+93:4 More than the sounds of many waters— more majestic than the breakers of the sea— so majestic is Adonai on high!
+93:5 Your testimonies are very sure. Holiness befits Your House, Adonai, for endless days.
+94:1 God of vengeance, Adonai, God of vengeance, shine forth!
 94:2 Rise up, O Judge of the earth! Pay back to the proud what they deserve. 
-94:3 How long will the wicked, </span><span class="it"><span class="sc"><span class="content">Adonai
+94:3 How long will the wicked, Adonai, how long will the wicked gloat?
 94:4 They gush out, they speak arrogance— all the evildoers keep boasting. 
-94:5 They crush Your people, </span><span class="it"><span class="sc"><span class="content">Adonai
+94:5 They crush Your people, Adonai, and afflict Your heritage.
 94:6 They slay the widow and the outsider, and murder the fatherless. 
-94:7 So they say: “</span><span class="it"><span class="sc"><span class="content">Adonai
+94:7 So they say: “Adonai does not see— the God of Jacob pays no attention.”
 94:8 Pay attention, stupid among the people! Fools, when will you comprehend? 
 94:9 He who planted the ear, does He not hear? He who formed the eye, does He not see? 
 94:10 He who chastens nations, will He not rebuke— One who teaches humanity knowledge? 
-94:11  knows human thoughts— they are but a breath. 
-94:12 Blessed is the one You discipline, </span><span class="it"><span class="sc"><span class="content">Adonai
+94:11 Adonai knows human thoughts— they are but a breath.
+94:12 Blessed is the one You discipline, Adonai, and teach him from Your Torah,
 94:13 to give him rest from days of trouble —until a pit is dug for the wicked. 
-94:14 For </span><span class="it"><span class="sc"><span class="content">Adonai
+94:14 For Adonai will not forsake His people. He will never abandon His inheritance.
 94:15 For rightness will be restored to justice, and all the upright in heart will follow it. 
 94:16 Who will rise up for me against the wicked? Who will stand up for me against evildoers? 
-94:17 Unless </span><span class="it"><span class="sc"><span class="content">Adonai
-94:18 If I say: “My foot has slipped,” Your mercy, </span><span class="it"><span class="sc"><span class="content">Adonai
+94:17 Unless Adonai had been my help, my soul would soon have dwelt in the abode of silence.
+94:18 If I say: “My foot has slipped,” Your mercy, Adonai, will hold me up.
 94:19 When my troubling thoughts multiply within me, Your consolations comfort my soul. 
 94:20 Can a throne of corruption be aligned with You—planning distress by decree? 
 94:21 They band together against the life of the righteous, and condemn innocent blood. 
-94:22 But </span><span class="it"><span class="sc"><span class="content">Adonai
-94:23 He will repay them for their wickedness, and will annihilate them in their evil. </span><span class="it"><span class="sc"><span class="content">Adonai
-95:1 O come, let us sing for joy to </span><span class="it"><span class="sc"><span class="content">Adonai
+94:22 But Adonai has been my fortress and my God the rock of my refuge.
+94:23 He will repay them for their wickedness, and will annihilate them in their evil. Adonai our God will annihilate them.
+95:1 O come, let us sing for joy to Adonai. Let us shout for joy to the rock of our salvation.
 95:2 Let us come before His presence with thanksgiving. Let us shout joyfully to Him with songs. 
-95:3 For </span><span class="it"><span class="sc"><span class="content">Adonai
+95:3 For Adonai is a great God and a great King above all gods.
 95:4 In His hand are the depths of the earth, the mountain peaks are His also. 
 95:5 The sea is His—He made it, and His hands formed the dry land. 
-95:6 Come, let us worship and bow down. Let us kneel before </span><span class="it"><span class="sc"><span class="content">Adonai
+95:6 Come, let us worship and bow down. Let us kneel before Adonai our Maker.
 95:7 For He is our God, and we are the people of His pasture, the flock of His hand. Today, if you hear His voice: 
 95:8 “Do not harden your heart as at Meribah, as in the day of Massah in the wilderness, 
 95:9 when your fathers tested Me, they challenged Me, even though they had seen My work. 
