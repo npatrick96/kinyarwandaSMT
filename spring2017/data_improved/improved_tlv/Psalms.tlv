@@ -1723,10 +1723,10 @@
 105:43 So He brought forth His people with joy, His chosen ones with singing.
 105:44 He gave them the lands of the nations, so they inherited the labor of the peoples
 105:45 so that they might keep His statutes and observe His laws. Halleluyah!
-106:1 Halleluyah! Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-106:2 Who can speak of </span><span class="it"><span class="sc"><span class="content">Adonai
+106:1 Halleluyah! Praise Adonai, for He is good, for His lovingkindness endures forever.
+106:2 Who can speak of Adonai’s mighty acts or declare His praise?
 106:3 Blessed are those who maintain justice, who do what is right at all times. 
-106:4 Remember me, </span><span class="it"><span class="sc"><span class="content">Adonai
+106:4 Remember me, Adonai, when You show favor to Your people. Visit me with Your salvation,
 106:5 so I may behold the prosperity of Your chosen ones, exult in the joy of Your nation, and give praise with Your inheritance. 
 106:6 We have sinned with our fathers, we have committed iniquity, we have acted wickedly. 
 106:7 Our fathers in Egypt did not ponder Your wonders. Nor did they remember Your abundant lovingkindness, but rebelled by the sea— at the Sea of Reeds. 
@@ -1738,7 +1738,7 @@
 106:13 How quickly they forgot His works, and would not wait for His counsel! 
 106:14 In the wilderness they craved ravenously, in the desert they tested God. 
 106:15 So He gave them what they asked for, but sent a wasting disease among them. 
-106:16 Then they envied Moses in the camp, and also Aaron, the holy one of </span><span class="it"><span class="sc"><span class="content">Adonai
+106:16 Then they envied Moses in the camp, and also Aaron, the holy one of Adonai.
 106:17 The earth opened up, swallowed Dathan, and covered the company of Abiram. 
 106:18 Also a fire blazed in their company, a flame consumed the wicked. 
 106:19 They made a calf in Horeb and worshipped a molten image. 
@@ -1747,7 +1747,7 @@
 106:22 miracles in the land of Ham, awesome things by the Sea of Reeds. 
 106:23 So He commanded their extermination, had not Moses, His chosen one, stood in the breach before Him, to turn His wrath from destroying them. 
 106:24 Then they scorned the pleasing land— they did not trust in His word. 
-106:25 Instead, they grumbled in their tents. They would not listen to </span><span class="it"><span class="sc"><span class="content">Adonai
+106:25 Instead, they grumbled in their tents. They would not listen to Adonai’s voice.
 106:26 Therefore He swore to them that He would make them fall in the desert, 
 106:27 and disperse their offspring among the nations, and scatter them through the lands. 
 106:28 Then they yoked themselves to Baal of Peor, and ate the sacrifices of dead things. 
@@ -1756,170 +1756,171 @@
 106:31 It was credited to him as righteousness, from generation to generation forever. 
 106:32 By the waters of Meribah they angered Him, and trouble came on Moses because of them. 
 106:33 For they embittered his spirit and he spoke rashly with his lips. 
-106:34 They did not destroy the peoples, as </span><span class="it"><span class="sc"><span class="content">Adonai
+106:34 They did not destroy the peoples, as Adonai had commanded them.
 106:35 Instead they mingled with the nations and learned their practices. 
 106:36 They worshipped their idols, which became a snare to them. 
 106:37 They even sacrificed their sons and their daughters to demons. 
 106:38 They shed innocent blood—the blood of their sons and their daughters, sacrificed to the idols of Canaan. So the land was desecrated with blood. 
 106:39 So they defiled themselves by their deeds, and prostituted themselves by their practices. 
-106:40 Therefore the anger of </span><span class="it"><span class="sc"><span class="content">Adonai
+106:40 Therefore the anger of Adonai was kindled against His people, and He abhorred His inheritance.
 106:41 He handed them to the nations— those who hated them ruled over them. 
 106:42 Their enemies oppressed them, so they were subdued under their hand. 
 106:43 Many times He delivered them, but they kept rebelling deliberately, and so sank low into their iniquity. 
 106:44 Yet He saw their distress, when He heard their cry, 
 106:45 remembered His covenant to them, and relented in the greatness of His mercy. 
 106:46 He caused them to be pitied in the presence of all their captors. 
-106:47 Save us, </span><span class="it"><span class="sc"><span class="content">Adonai
-106:48 Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
-107:1 Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-107:2 Let the redeemed of </span><span class="it"><span class="sc"><span class="content">Adonai
-107:3 whom He gathered out of the lands, from the east and from the west, from the north and from the sea. 
-107:4 Some wandered in a desert, a wasteland. They found no way to an inhabited city. 
-107:5 Hungry and thirsty, their souls ebbed away. 
-107:6 So they cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-107:7 Then He led them by a straight way to go to a city where they could live. 
-107:8 Let them praise </span><span class="it"><span class="sc"><span class="content">Adonai
-107:9 for He satisfies the thirsty soul and fills the hungry soul with goodness. 
-107:10 Some sat in darkness and deep gloom, prisoners in misery and iron chains, 
-107:11 for they had defied God’s words, and spurned the counsel of Elyon. 
-107:12 So He humbled their heart with trouble. They stumbled, and no one was helping. 
-107:13 So they cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-107:14 He brought them out of darkness and deep gloom, breaking their chains. 
-107:15 Let them praise </span><span class="it"><span class="sc"><span class="content">Adonai
-107:16 for He shattered bronze gates, and broke into pieces iron bars. 
-107:17 Some became fools because of their rebellious ways, and were afflicted due to their iniquities. 
-107:18 Their soul abhorred all food, and they drew near the gates of death. 
-107:19 So they cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-107:20 He sent His word and healed them, and rescued them from their pits. 
-107:21 Let them praise </span><span class="it"><span class="sc"><span class="content">Adonai
-107:22 Let them sacrifice thank offerings and tell of His works with joyful singing. 
-107:23 Some go out to the sea in ships, doing business on the mighty waters. 
-107:24 They saw the works of </span><span class="it"><span class="sc"><span class="content">Adonai
-107:25 For He spoke and raised a stormy wind, lifting up towering waves. 
-107:26 They mounted up to the sky and plunged down to the depths. In their peril their souls melted away. 
-107:27 They reeled and staggered like a drunk, and all their skill was bewildered. 
-107:28 So they cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-107:29 He stilled the storm to a whisper— the waves were hushed. 
-107:30 They were glad when it became calm, and He led them to their desired haven. 
-107:31 Let them praise </span><span class="it"><span class="sc"><span class="content">Adonai
-107:32 Let them exalt Him in the congregation of the people, and praise Him at the assembly of elders. 
-107:33 He turns rivers into a wilderness and springs of water into thirsty ground, 
-107:34 and a fruitful land into a salt waste, because of the evil of its inhabitants. 
-107:35 He turns a desert into a pool of water, a dry land into springs of water. 
-107:36 There He brings the hungry to live, and they establish a city for a dwelling. 
-107:37 So they sow fields and plant vineyards that yield a fruitful harvest. 
-107:38 He blesses them, they multiply greatly, and He does not let their herds diminish, 
-107:39 after they were few and crushed by oppression, calamity and sorrow. 
-107:40 He pours contempt on princes, making them wander in trackless waste. 
-107:41 But He lifts the needy high above affliction, and makes their families like a flock. 
-107:42 The upright see it and are glad, and all iniquity shuts its mouth. 
-107:43 Who is wise? Let him observe these things, and consider </span><span class="it"><span class="sc"><span class="content">Adonai
-108:1 A song, a psalm of David. 
-108:2 My heart is steadfast, O God. I will sing, sing praises with all my soul. 
-108:3 Awake, harp and lyre— I will awaken the dawn! 
-108:4 I will give thanks to You, </span><span class="it"><span class="sc"><span class="content">Adonai
-108:5 For Your love is higher than the heavens, Your faithfulness reaches to the clouds. 
-108:6 Be exalted, O God, above the heavens, let Your glory be above all the earth. 
-108:7 Let Your beloved ones be delivered. Save with Your right hand, answer me! 
-108:8 God has spoken in His Sanctuary: “I will triumph! I will parcel out Shechem, and measure out the valley of Succot. 
-108:9 Gilead is Mine, Manasseh is Mine. Also Ephraim is a helmet for My head, Judah is my scepter. 
-108:10 Moab is My washbowl. I throw my shoe on Edom. I shout in triumph over Philistia.” 
-108:11 Who will bring me into the fortified city? Who will lead me to Edom? 
-108:12 O God, have You not spurned us? Will You go out no more with our armies? 
-108:13 Give us help against the adversary— for useless is deliverance through man. 
-109:1 For the music director, a psalm of David. O God of my praise, be not silent. 
-109:2 For the wicked and the deceitful have opened their mouth against me. They spoke to me with a lying tongue, 
-109:3 with hateful words surrounded me, and fought against me without cause. 
-109:4 In return for my love they are my accusers, but I am in prayer. 
-109:5 They repay me evil for good, and hatred for my love. 
-109:6 Set a wicked man over him, let an accuser stand at his right hand. 
-109:7 When he is judged, let him be found guilty, and may his prayer be as sin. 
-109:8 Let his days be few, let another take his position. 
-109:9 May his children be fatherless, and his wife a widow. 
-109:10 Let his children wander and beg and may they search in their ruins. 
-109:11 Let a creditor seize all he has, and may strangers plunder his labor. 
-109:12 Let no one show him mercy, or take pity on his fatherless children. 
-109:13 Let his posterity be cut off, and his name be blotted out in the next generation. 
-109:14 May the guilt of his fathers be remembered before </span><span class="it"><span class="sc"><span class="content">Adonai
-109:15 Let their sins be before </span><span class="it"><span class="sc"><span class="content">Adonai
-109:16 For he never remembered to show mercy. But he persecuted a poor and needy man, crushed in spirit, to put him to death. 
-109:17 How he loved cursing—may it fall on him! He had no pleasure in blessing— may it be far from him! 
-109:18 He wore cursing like his robe, until it filled his belly like water, and his bones like oil. 
-109:19 May it be like a cloak wrapped around him, like a belt tied around him always. 
-109:20 Let this be </span><span class="it"><span class="sc"><span class="content">Adonai
-109:21 But You, </span><span class="it"><span class="sc"><span class="content">Adonai
-109:22 For I am afflicted and needy, and my heart is wounded within me. 
-109:23 I fade away like an evening shadow, shaken off like a locust. 
-109:24 My knees totter from fasting, and my flesh is lean, with no fat. 
-109:25 And I have become a taunt to them. When they see me, they wag their head. 
-109:26 Help me, </span><span class="it"><span class="sc"><span class="content">Adonai
-109:27 Let them know that it is Your hand— that You, </span><span class="it"><span class="sc"><span class="content">Adonai
-109:28 They may curse, but You bless. When they arise, they will be ashamed, but Your servant will rejoice. 
-109:29 My accusers will be clothed in disgrace, and wrapped in shame as in a cloak. 
-109:30 I will greatly thank </span><span class="it"><span class="sc"><span class="content">Adonai
-109:31 For He stands at the right hand of the needy, to save him from those who condemn his soul. 
-110:1 A psalm of David. </span><span class="it"><span class="sc"><span class="content">Adonai
-110:2  will extend your mighty rod from Zion: “Rule in the midst of your enemies.” 
-110:3 Your people will be a freewill offering in a day of your power. In holy splendors, from dawn’s womb, yours is the dew of your youth. 
-110:4  .” 
-110:5 My Lord is at your right hand. He will shatter kings in the day of His wrath. 
-110:6 He will judge among the nations, heaping up corpses. He will crush heads over the entire land. 
+106:47 Save us, Adonai our God, and gather us from the nations, so we may praise Your holy Name and triumph in Your praise.
+106:48 Blessed be Adonai, the God of Israel, from everlasting even to everlasting! Let all the people say, “Amen!” Halleluyah!
+107:1 Praise Adonai, for He is good, for His lovingkindness endures forever.
+107:2 Let the redeemed of Adonai say so— whom He redeemed from the hand of the foe,
+107:3 whom He gathered out of the lands, from the east and from the west, from the north and from the sea.
+107:4 Some wandered in a desert, a wasteland. They found no way to an inhabited city.
+107:5 Hungry and thirsty, their souls ebbed away.
+107:6 So they cried out to Adonai in their distress, and He delivered them out of their troubles.
+107:7 Then He led them by a straight way to go to a city where they could live.
+107:8 Let them praise Adonai for His mercy and His wonders for the children of men,
+107:9 for He satisfies the thirsty soul and fills the hungry soul with goodness.
+107:10 Some sat in darkness and deep gloom, prisoners in misery and iron chains,
+107:11 for they had defied God’s words, and spurned the counsel of Elyon.
+107:12 So He humbled their heart with trouble. They stumbled, and no one was helping.
+107:13 So they cried out to Adonai in their distress, and He delivered them out of their troubles.
+107:14 He brought them out of darkness and deep gloom, breaking their chains.
+107:15 Let them praise Adonai for His mercy, and His wonders for the children of men,
+107:16 for He shattered bronze gates, and broke into pieces iron bars.
+107:17 Some became fools because of their rebellious ways, and were afflicted due to their iniquities.
+107:18 Their soul abhorred all food, and they drew near the gates of death.
+107:19 So they cried out to Adonai in their distress, and He delivered them out of their troubles.
+107:20 He sent His word and healed them, and rescued them from their pits.
+107:21 Let them praise Adonai for His mercy, and His wonders for the children of men.
+107:22 Let them sacrifice thank offerings and tell of His works with joyful singing.
+107:23 Some go out to the sea in ships, doing business on the mighty waters.
+107:24 They saw the works of Adonai, and His wonders in the deep.
+107:25 For He spoke and raised a stormy wind, lifting up towering waves.
+107:26 They mounted up to the sky and plunged down to the depths. In their peril their souls melted away.
+107:27 They reeled and staggered like a drunk, and all their skill was bewildered.
+107:28 So they cried out to Adonai in their distress, and He brought them out of their troubles.
+107:29 He stilled the storm to a whisper— the waves were hushed.
+107:30 They were glad when it became calm, and He led them to their desired haven.
+107:31 Let them praise Adonai for His mercy, and His wonders to the children of men.
+107:32 Let them exalt Him in the congregation of the people, and praise Him at the assembly of elders.
+107:33 He turns rivers into a wilderness and springs of water into thirsty ground,
+107:34 and a fruitful land into a salt waste, because of the evil of its inhabitants.
+107:35 He turns a desert into a pool of water, a dry land into springs of water.
+107:36 There He brings the hungry to live, and they establish a city for a dwelling.
+107:37 So they sow fields and plant vineyards that yield a fruitful harvest.
+107:38 He blesses them, they multiply greatly, and He does not let their herds diminish,
+107:39 after they were few and crushed by oppression, calamity and sorrow.
+107:40 He pours contempt on princes, making them wander in trackless waste.
+107:41 But He lifts the needy high above affliction, and makes their families like a flock.
+107:42 The upright see it and are glad, and all iniquity shuts its mouth.
+107:43 Who is wise? Let him observe these things, and consider Adonai’s lovingkindness.
+108:1 A song, a psalm of David.
+108:2 My heart is steadfast, O God. I will sing, sing praises with all my soul.
+108:3 Awake, harp and lyre— I will awaken the dawn!
+108:4 I will give thanks to You, Adonai, among the peoples, I will sing praises to You among the nations.
+108:5 For Your love is higher than the heavens, Your faithfulness reaches to the clouds.
+108:6 Be exalted, O God, above the heavens, let Your glory be above all the earth.
+108:7 Let Your beloved ones be delivered. Save with Your right hand, answer me!
+108:8 God has spoken in His Sanctuary: “I will triumph! I will parcel out Shechem, and measure out the valley of Succot.
+108:9 Gilead is Mine, Manasseh is Mine. Also Ephraim is a helmet for My head, Judah is my scepter.
+108:10 Moab is My washbowl. I throw my shoe on Edom. I shout in triumph over Philistia.”
+108:11 Who will bring me into the fortified city? Who will lead me to Edom?
+108:12 O God, have You not spurned us? Will You go out no more with our armies?
+108:13 Give us help against the adversary— for useless is deliverance through man.
+108:14 With God we will do valiantly— and He will trample our foes.
+109:1 For the music director, a psalm of David. O God of my praise, be not silent.
+109:2 For the wicked and the deceitful have opened their mouth against me. They spoke to me with a lying tongue,
+109:3 with hateful words surrounded me, and fought against me without cause.
+109:4 In return for my love they are my accusers, but I am in prayer.
+109:5 They repay me evil for good, and hatred for my love.
+109:6 Set a wicked man over him, let an accuser stand at his right hand.
+109:7 When he is judged, let him be found guilty, and may his prayer be as sin.
+109:8 Let his days be few, let another take his position.
+109:9 May his children be fatherless, and his wife a widow.
+109:10 Let his children wander and beg and may they search in their ruins.
+109:11 Let a creditor seize all he has, and may strangers plunder his labor.
+109:12 Let no one show him mercy, or take pity on his fatherless children.
+109:13 Let his posterity be cut off, and his name be blotted out in the next generation.
+109:14 May the guilt of his fathers be remembered before Adonai, the sin of his mother never blotted out.
+109:15 Let their sins be before Adonai continually, that He may cut off the memory of them from the earth.
+109:16 For he never remembered to show mercy. But he persecuted a poor and needy man, crushed in spirit, to put him to death.
+109:17 How he loved cursing—may it fall on him! He had no pleasure in blessing— may it be far from him!
+109:18 He wore cursing like his robe, until it filled his belly like water, and his bones like oil.
+109:19 May it be like a cloak wrapped around him, like a belt tied around him always.
+109:20 Let this be Adonai’s reward to my accusers, and to those who speak evil against me.
+109:21 But You, Adonai my Lord, deal with me for Your Name’s sake. Because Your lovingkindness is good, deliver me.
+109:22 For I am afflicted and needy, and my heart is wounded within me.
+109:23 I fade away like an evening shadow, shaken off like a locust.
+109:24 My knees totter from fasting, and my flesh is lean, with no fat.
+109:25 And I have become a taunt to them. When they see me, they wag their head.
+109:26 Help me, Adonai my God, Save me through Your lovingkindness.
+109:27 Let them know that it is Your hand— that You, Adonai, have done it.
+109:28 They may curse, but You bless. When they arise, they will be ashamed, but Your servant will rejoice.
+109:29 My accusers will be clothed in disgrace, and wrapped in shame as in a cloak.
+109:30 I will greatly thank Adonai with my mouth, and in the midst of a throng will I praise Him.
+109:31 For He stands at the right hand of the needy, to save him from those who condemn his soul.
+110:1 A psalm of David. Adonai declares to my Lord: “Sit at My right hand until I make your enemies a footstool for Your feet.”
+110:2 Adonai will extend your mighty rod from Zion: “Rule in the midst of your enemies.”
+110:3 Your people will be a freewill offering in a day of your power. In holy splendors, from dawn’s womb, yours is the dew of your youth.
+110:4 Adonai has sworn, and will not change His mind: “You are a Kohen forever according to the order of Melechizedek .”
+110:5 My Lord is at your right hand. He will shatter kings in the day of His wrath.
+110:6 He will judge among the nations, heaping up corpses. He will crush heads over the entire land.
 110:7 He will drink from a stream along the way —so His head will be exalted.
-111:1 Halleluyah! I praise </span><span class="it"><span class="sc"><span class="content">Adonai
-111:2 Great are the works of </span><span class="it"><span class="sc"><span class="content">Adonai
+111:1 Halleluyah! I praise Adonai with all my heart in the company and congregation of the upright.
+111:2 Great are the works of Adonai— searched out by all who delight in them.
 111:3 Glorious and majestic is His work, and His righteousness endures forever. 
-111:4 He made His wonders memorable. </span><span class="it"><span class="sc"><span class="content">Adonai
+111:4 He made His wonders memorable. Adonai is gracious and full of compassion.
 111:5 He gives food to those who fear Him. He remembers His covenant forever. 
 111:6 He shows His people His powerful deeds, giving them the heritage of the nations. 
 111:7 The works of His hands are truth and justice. All His precepts are trustworthy— 
 111:8 they are upheld forever and ever, made in truth and uprightness. 
 111:9 He has sent redemption to His people. He has ordained His covenant forever. Holy and awesome is His Name. 
-111:10 The fear of </span><span class="it"><span class="sc"><span class="content">Adonai
-112:1 Halleluyah! Happy is the man who fears </span><span class="it"><span class="sc"><span class="content">Adonai
+111:10 The fear of Adonai is the beginning of wisdom. All who follow His precepts have good understanding. His praise endures forever!
+112:1 Halleluyah! Happy is the man who fears Adonai, who delights greatly in His mitzvot.
 112:2 His offspring will be mighty in the land. The generation of the upright will be blessed. 
 112:3 Wealth and riches are in his house, and his righteousness endures forever. 
 112:4 Light shines in the darkness for the upright. Gracious, compassionate and just is he. 
 112:5 Good comes to a man who is gracious and lends. He will order his affairs with fairness. 
 112:6 Surely he will never be shaken. The righteous are remembered forever. 
-112:7 He is not afraid of bad news— his heart is steadfast, trusting in </span><span class="it"><span class="sc"><span class="content">Adonai
+112:7 He is not afraid of bad news— his heart is steadfast, trusting in Adonai.
 112:8 His heart is secure, he will not fear— until he gazes on his foes. 
 112:9 He gives freely to the poor. His righteousness endures forever. His horn is lifted high in honor. 
 112:10 The wicked will see it and be indignant. He will gnash with his teeth and waste away. The desire of the wicked will perish. 
-113:1 Halleluyah! Praise, O servants of </span><span class="it"><span class="sc"><span class="content">Adonai
-113:2 Blessed be the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-113:3 From the rising of the sun to its going down the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-113:4  is high above all nations, His glory is above the heavens. 
-113:5 Who is like </span><span class="it"><span class="sc"><span class="content">Adonai
-113:6 who brings Himself down to look upon heaven and upon earth? 
-113:7 He raises the poor from the dust, lifts up the needy out of the dunghill, 
-113:8 to seat him with princes, with the princes of His people. 
+113:1 Halleluyah! Praise, O servants of Adonai, praise the Name of Adonai.
+113:2 Blessed be the Name of Adonai from now and forever.
+113:3 From the rising of the sun to its going down the Name of Adonai is to be praised.
+113:4 Adonai is high above all nations, His glory is above the heavens.
+113:5 Who is like Adonai our God, enthroned on high,
+113:6 who brings Himself down to look upon heaven and upon earth?
+113:7 He raises the poor from the dust, lifts up the needy out of the dunghill,
+113:8 to seat him with princes, with the princes of His people.
 113:9 He settles the barren woman in her home as a joyful mother of children. Halleluyah!
-114:1 When Israel came out of Egypt, Jacob’s house from a people foreign-speaking, 
-114:2 Judah became His Sanctuary, Israel His dominion. 
-114:3 The sea saw and fled, the Jordan turned back. 
-114:4 The mountains skipped like rams, the hills like lambs. 
-114:5 Why was it, O sea, that you fled? O Jordan, that you turned back? 
-114:6 O mountains, that you skipped like rams? O hills, like lambs? 
-114:7 Tremble, O earth, at the presence of the Lord, at the presence of the God of Jacob, 
+114:1 When Israel came out of Egypt, Jacob’s house from a people foreign-speaking,
+114:2 Judah became His Sanctuary, Israel His dominion.
+114:3 The sea saw and fled, the Jordan turned back.
+114:4 The mountains skipped like rams, the hills like lambs.
+114:5 Why was it, O sea, that you fled? O Jordan, that you turned back?
+114:6 O mountains, that you skipped like rams? O hills, like lambs?
+114:7 Tremble, O earth, at the presence of the Lord, at the presence of the God of Jacob,
 114:8 who turned the rock into a pool of water, the flint into a spring of water.
-115:1 Not to us, </span><span class="it"><span class="sc"><span class="content">Adonai
-115:2 Why should the nations say: “Where is their God now?” 
-115:3 Our God is in the heavens— He does whatever pleases Him! 
-115:4 Their idols are silver and gold, the work of human hands. 
-115:5 They have mouths, but cannot speak; eyes, but cannot see. 
-115:6 They have ears, but cannot hear; noses, but cannot smell. 
-115:7 They have hands, but cannot feel; feet, but cannot walk, nor utter a sound with their throat. 
-115:8 Those making them will become like them —everyone trusting in them. 
-115:9 O Israel, trust in </span><span class="it"><span class="sc"><span class="content">Adonai
-115:10 O house of Aaron, trust in </span><span class="it"><span class="sc"><span class="content">Adonai
-115:11 O you who fear </span><span class="it"><span class="sc"><span class="content">Adonai
-115:12  has been mindful of us, He will bless: He will bless the house of Israel; He will bless the house of Aaron; 
-115:13 He will bless those who fear </span><span class="it"><span class="sc"><span class="content">Adonai
-115:14 May </span><span class="it"><span class="sc"><span class="content">Adonai
-115:15 May you be blessed by </span><span class="it"><span class="sc"><span class="content">Adonai
-115:16 The heavens are the heavens of </span><span class="it"><span class="sc"><span class="content">Adonai
-115:17 The dead do not praise </span><span class="it"><span class="sc"><span class="content">Adonai
-115:18 But we—we will bless </span><span class="it"><span class="sc"><span class="content">Adonai
+115:1 Not to us, Adonai, not to us, but to Your Name be the glory— because of Your love and Your faithfulness.
+115:2 Why should the nations say: “Where is their God now?”
+115:3 Our God is in the heavens— He does whatever pleases Him!
+115:4 Their idols are silver and gold, the work of human hands.
+115:5 They have mouths, but cannot speak; eyes, but cannot see.
+115:6 They have ears, but cannot hear; noses, but cannot smell.
+115:7 They have hands, but cannot feel; feet, but cannot walk, nor utter a sound with their throat.
+115:8 Those making them will become like them —everyone trusting in them.
+115:9 O Israel, trust in Adonai— He is their help and their shield!
+115:10 O house of Aaron, trust in Adonai— He is their help and their shield!
+115:11 O you who fear Adonai, trust in Adonai— He is their help and their shield!
+115:12 Adonai has been mindful of us, He will bless: He will bless the house of Israel; He will bless the house of Aaron;
+115:13 He will bless those who fear Adonai, the small together with the great.
+115:14 May Adonai increase you more and more —you and your children.
+115:15 May you be blessed by Adonai, Maker of heaven and earth.
+115:16 The heavens are the heavens of Adonai, but the earth He gave to the children of men.
+115:17 The dead do not praise Adonai, nor do any who go down into silence.
+115:18 But we—we will bless Adonai both now and forever. Halleluyah!
 116:1 I love </span><span class="it"><span class="sc"><span class="content">Adonai
 116:2 Because He has turned His ear to me, I will call on Him all my days. 
 116:3 The ropes of death entangled me, and the torments of </span><span class="it"><span class="content">Sheol
