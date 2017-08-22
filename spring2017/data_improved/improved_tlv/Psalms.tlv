@@ -1921,239 +1921,239 @@
 115:16 The heavens are the heavens of Adonai, but the earth He gave to the children of men.
 115:17 The dead do not praise Adonai, nor do any who go down into silence.
 115:18 But we—we will bless Adonai both now and forever. Halleluyah!
-116:1 I love </span><span class="it"><span class="sc"><span class="content">Adonai
-116:2 Because He has turned His ear to me, I will call on Him all my days. 
-116:3 The ropes of death entangled me, and the torments of </span><span class="it"><span class="content">Sheol
-116:4 Then I called upon the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-116:5  is gracious and righteous— yes, our God is compassionate. 
-116:6  protects the simple-hearted. When I was brought low, He saved me. 
-116:7 Return to your rest, my soul, for </span><span class="it"><span class="sc"><span class="content">Adonai
-116:8 For You delivered my soul from death, my eyes from tears, my feet from stumbling. 
-116:9 I will walk before </span><span class="it"><span class="sc"><span class="content">Adonai
-116:10 I trusted even when I said, “I am very afflicted”— 
-116:11 even when I said in my haste, “All men are liars.” 
-116:12 How can I repay </span><span class="it"><span class="sc"><span class="content">Adonai
-116:13 I will lift up the cup of salvation, and call on the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-116:14 I will fulfill my vows to </span><span class="it"><span class="sc"><span class="content">Adonai
-116:15 Precious in the sight of </span><span class="it"><span class="sc"><span class="content">Adonai
-116:16 O </span><span class="it"><span class="sc"><span class="content">Adonai
-116:17 To You I will offer a sacrifice of praise, and will call on the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-116:18 I will fulfill my vows to </span><span class="it"><span class="sc"><span class="content">Adonai
-116:19 in the courts of the House of </span><span class="it"><span class="sc"><span class="content">Adonai
-117:1 Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-117:2 For great is His lovingkindness toward us, and </span><span class="it"><span class="sc"><span class="content">Adonai
-118:1 Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-118:2 O let Israel say: For His lovingkindness endures forever. 
-118:3 O let the house of Aaron say: For His lovingkindness endures forever. 
-118:4 O let those who fear </span><span class="it"><span class="sc"><span class="content">Adonai
-118:5 Out of a tight place I called on </span><span class="it"><span class="sc"><span class="content">Adonai
-118:6  is for me—I will not fear! What can man do to me? 
-118:7  is for me, as my helper. I will see the downfall of those who hate me. 
-118:8 It is better to take refuge in </span><span class="it"><span class="sc"><span class="content">Adonai
-118:9 It is better to take refuge in </span><span class="it"><span class="sc"><span class="content">Adonai
-118:10 All nations surrounded me— in the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-118:11 They surrounded me, yes, all around me— in the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-118:12 They swarmed around me like bees— they were extinguished like burning thorns— in the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-118:13 You pushed me hard to make me fall, but </span><span class="it"><span class="sc"><span class="content">Adonai
-118:14  is my strength and song, and He has become my salvation. 
-118:15 Shouts of joy and victory are in the tents of the righteous: “</span><span class="it"><span class="sc"><span class="content">Adonai
-118:16 ’s right hand is mighty!” 
-118:17 I will not die, but live, and proclaim what </span><span class="it"><span class="sc"><span class="content">Adonai
-118:18  has chastened me hard, but has not given me over to death. 
-118:19 Open to me the gates of righteousness, that I may enter through them and praise </span><span class="it"><span class="sc"><span class="content">Adonai
-118:20 This is the gate of </span><span class="it"><span class="sc"><span class="content">Adonai
-118:21 I give You thanks, because You have answered me and have become my salvation. 
-118:22 The stone the builders rejected has become the capstone. 
-118:23 It is from </span><span class="it"><span class="sc"><span class="content">Adonai
-118:24 This is the day that </span><span class="it"><span class="sc"><span class="content">Adonai
-118:25 , prosper us! 
-118:26 Baruch haba b’Shem </span><span class="it"><span class="sc"><span class="content">Adonai
-118:27  is God, and He has given us light. Join the festival with branches, up to the horns of the altar. 
-118:28 You are my God, and I praise You. You are my God—I exalt You! 
-118:29 Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-119:1 Blessed are those whose way is blameless, who walk in the </span><span class="it"><span class="content">Torah
-119:2 Happy are those who keep His testimonies, who seek Him with a whole heart, 
-119:3 who also do no injustice, but walk in His ways. 
-119:4 You have commanded that Your precepts be kept diligently. 
-119:5 Oh that my ways were steadfast to observe Your decrees! 
-119:6 Then I would not be ashamed, when I consider all Your </span><span class="it"><span class="content">mitzvot
-119:7 I will praise You with an upright heart as I learn Your righteous judgments. 
-119:8 I will observe Your statutes. Never abandon me utterly! 
-119:9 How can a young man keep his way pure? By guarding it according to Your word. 
-119:10 With my whole heart have I sought You —let me not stray from Your </span><span class="it"><span class="content">mitzvot
-119:11 I have treasured Your word in my heart, so I might not sin against You. 
-119:12 Blessed are You, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:13 With my lips I rehearse all the rulings of Your mouth. 
-119:14 I rejoice in the way of Your testimonies above all wealth. 
-119:15 I will meditate on Your precepts, and regard Your ways. 
+116:1 I love Adonai, for He hears my voice, my cries.
+116:2 Because He has turned His ear to me, I will call on Him all my days.
+116:3 The ropes of death entangled me, and the torments of Sheol found me. I found trouble and sorrow.
+116:4 Then I called upon the Name of Adonai: “Adonai, save my soul!”
+116:5 Adonai is gracious and righteous— yes, our God is compassionate.
+116:6 Adonai protects the simple-hearted. When I was brought low, He saved me.
+116:7 Return to your rest, my soul, for Adonai has been good to you.
+116:8 For You delivered my soul from death, my eyes from tears, my feet from stumbling.
+116:9 I will walk before Adonai in the lands of the living.
+116:10 I trusted even when I said, “I am very afflicted”—
+116:11 even when I said in my haste, “All men are liars.”
+116:12 How can I repay Adonai for all His bounties to me?
+116:13 I will lift up the cup of salvation, and call on the Name of Adonai.
+116:14 I will fulfill my vows to Adonai in the presence of all His people.
+116:15 Precious in the sight of Adonai is the death of His kedoshim.
+116:16 O Adonai! Surely I am Your servant. I am Your servant, the son of Your maidservant. You have freed me from my bonds.
+116:17 To You I will offer a sacrifice of praise, and will call on the Name of Adonai.
+116:18 I will fulfill my vows to Adonai in the presence of all His people,
+116:19 in the courts of the House of Adonai, in your midst, O Jerusalem. Halleluyah!
+117:1 Praise Adonai, all you nations! Glorify Him, all you peoples.
+117:2 For great is His lovingkindness toward us, and Adonai’s truth endures forever. Halleluyah!
+118:1 Praise Adonai, for He is good, for His lovingkindness endures forever.
+118:2 O let Israel say: For His lovingkindness endures forever.
+118:3 O let the house of Aaron say: For His lovingkindness endures forever.
+118:4 O let those who fear Adonai say: For His lovingkindness endures forever.
+118:5 Out of a tight place I called on Adonai— Adonai answered me with a spacious place.
+118:6 Adonai is for me—I will not fear! What can man do to me?
+118:7 Adonai is for me, as my helper. I will see the downfall of those who hate me.
+118:8 It is better to take refuge in Adonai than to trust in man.
+118:9 It is better to take refuge in Adonai than to trust in princes.
+118:10 All nations surrounded me— in the Name of Adonai I cut them off.
+118:11 They surrounded me, yes, all around me— in the Name of Adonai I cut them off.
+118:12 They swarmed around me like bees— they were extinguished like burning thorns— in the Name of Adonai I cut them off.
+118:13 You pushed me hard to make me fall, but Adonai helped me.
+118:14 Adonai is my strength and song, and He has become my salvation.
+118:15 Shouts of joy and victory are in the tents of the righteous: “Adonai’s right hand is mighty!
+118:16 Adonai’s right hand is lifted high! Adonai’s right hand is mighty!”
+118:17 I will not die, but live, and proclaim what Adonai has done!
+118:18 Adonai has chastened me hard, but has not given me over to death.
+118:19 Open to me the gates of righteousness, that I may enter through them and praise Adonai.
+118:20 This is the gate of Adonai— the righteous will enter through it.
+118:21 I give You thanks, because You have answered me and have become my salvation.
+118:22 The stone the builders rejected has become the capstone.
+118:23 It is from Adonai: it is marvelous in our eyes!
+118:24 This is the day that Adonai has made! Let us rejoice and be glad in it!
+118:25 Hoshia-na! Please, Adonai, save now! We beseech You, Adonai, prosper us!
+118:26 Baruch haba b’Shem Adonai— Blessed is He who comes in the Name of Adonai. We bless you from the House of Adonai.
+118:27 Adonai is God, and He has given us light. Join the festival with branches, up to the horns of the altar.
+118:28 You are my God, and I praise You. You are my God—I exalt You!
+118:29 Praise Adonai, for He is good, for His lovingkindness endures forever.
+119:1 Blessed are those whose way is blameless, who walk in the Torah of Adonai.
+119:2 Happy are those who keep His testimonies, who seek Him with a whole heart,
+119:3 who also do no injustice, but walk in His ways.
+119:4 You have commanded that Your precepts be kept diligently.
+119:5 Oh that my ways were steadfast to observe Your decrees!
+119:6 Then I would not be ashamed, when I consider all Your mitzvot.
+119:7 I will praise You with an upright heart as I learn Your righteous judgments.
+119:8 I will observe Your statutes. Never abandon me utterly!
+119:9 How can a young man keep his way pure? By guarding it according to Your word.
+119:10 With my whole heart have I sought You —let me not stray from Your mitzvot.
+119:11 I have treasured Your word in my heart, so I might not sin against You.
+119:12 Blessed are You, Adonai. Teach me Your statutes.
+119:13 With my lips I rehearse all the rulings of Your mouth.
+119:14 I rejoice in the way of Your testimonies above all wealth.
+119:15 I will meditate on Your precepts, and regard Your ways.
 119:16 I will delight in Your decrees. I will never forget Your word.
-119:17 Do good to Your servant that I may live and keep Your word. 
-119:18 Open my eyes, so I may behold wonders from Your </span><span class="it"><span class="content">Torah
-119:19 I am a temporary dweller on earth— do not hide Your </span><span class="it"><span class="content">mitzvot
-119:20 My soul is crushed with longing for Your judgments at all times. 
-119:21 You rebuke the proud, who are cursed, who wander from Your </span><span class="it"><span class="content">mitzvot
-119:22 Take scorn and contempt away from me, for I have kept Your testimonies. 
-119:23 Though princes sit and talk against me, Your servant meditates on Your decrees. 
+119:17 Do good to Your servant that I may live and keep Your word.
+119:18 Open my eyes, so I may behold wonders from Your Torah.
+119:19 I am a temporary dweller on earth— do not hide Your mitzvot from me.
+119:20 My soul is crushed with longing for Your judgments at all times.
+119:21 You rebuke the proud, who are cursed, who wander from Your mitzvot.
+119:22 Take scorn and contempt away from me, for I have kept Your testimonies.
+119:23 Though princes sit and talk against me, Your servant meditates on Your decrees.
 119:24 For Your testimonies are my delight— they are also my counselors.
-119:25 My soul clings to the dust. Revive me according to Your word! 
-119:26 I told of my ways and You answered me. Teach me Your statutes. 
-119:27 Help me discern the way of Your precepts, so I may meditate on Your wonders. 
-119:28 My soul weeps with grief. Make me stand firm with Your word. 
-119:29 Turn me away from the deceitful way, and be gracious to me with Your </span><span class="it"><span class="content">Torah
-119:30 I have chosen the way of faithfulness. I have set my heart on Your judgments. 
-119:31 I cling to Your testimonies. </span><span class="it"><span class="sc"><span class="content">Adonai
-119:32 I run the course of Your </span><span class="it"><span class="content">mitzvot
-119:33 Teach me the way of Your decrees, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:34 Give me understanding, that I may keep Your </span><span class="it"><span class="content">Torah
-119:35 Help me walk in the path of Your </span><span class="it"><span class="content">mitzvot
-119:36 Turn my heart to Your testimonies and not to dishonest gain. 
-119:37 Turn my eyes away from gazing at vanity but revive me in Your ways. 
-119:38 Fulfill Your word to Your servant, which leads to reverence for You. 
-119:39 Make the disgrace I dread pass away, for Your judgments are good. 
+119:25 My soul clings to the dust. Revive me according to Your word!
+119:26 I told of my ways and You answered me. Teach me Your statutes.
+119:27 Help me discern the way of Your precepts, so I may meditate on Your wonders.
+119:28 My soul weeps with grief. Make me stand firm with Your word.
+119:29 Turn me away from the deceitful way, and be gracious to me with Your Torah.
+119:30 I have chosen the way of faithfulness. I have set my heart on Your judgments.
+119:31 I cling to Your testimonies. Adonai, do not put me to shame!
+119:32 I run the course of Your mitzvot, for You open wide my heart.
+119:33 Teach me the way of Your decrees, Adonai, and I will follow them to the end.
+119:34 Give me understanding, that I may keep Your Torah and observe it with all my heart.
+119:35 Help me walk in the path of Your mitzvot—for I delight in it.
+119:36 Turn my heart to Your testimonies and not to dishonest gain.
+119:37 Turn my eyes away from gazing at vanity but revive me in Your ways.
+119:38 Fulfill Your word to Your servant, which leads to reverence for You.
+119:39 Make the disgrace I dread pass away, for Your judgments are good.
 119:40 Behold, I long for Your precepts. Revive me by Your righteousness.
-119:41 May Your lovingkindnesses come to me, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:42 so I may answer the one taunting me, for I trust in Your word. 
-119:43 Never snatch out of my mouth a word of truth, for I hope in Your judgments. 
-119:44 So I may always keep Your </span><span class="it"><span class="content">Torah
-119:45 and walk about in freedom. For I have sought Your precepts. 
-119:46 I will speak of Your testimonies before kings, and never be ashamed. 
-119:47 I delight in Your </span><span class="it"><span class="content">mitzvot
-119:48 I reach out my hands for Your </span><span class="it"><span class="content">mitzvot
-119:49 Remember the word to Your servant, on which You have made me hope. 
-119:50 My comfort in my affliction is this: Your word has kept me alive. 
-119:51 The arrogant have viciously ridiculed me, yet I did not turn away from Your </span><span class="it"><span class="content">Torah
-119:52 I remember Your judgments from of old, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:53 Burning indignation grips me, because of the wicked who forsake Your </span><span class="it"><span class="content">Torah
-119:54 Your decrees have become my songs in the house where I dwell. 
-119:55 In the night I remember Your Name, </span><span class="it"><span class="sc"><span class="content">Adonai
+119:41 May Your lovingkindnesses come to me, Adonai— Your salvation according to Your word—
+119:42 so I may answer the one taunting me, for I trust in Your word.
+119:43 Never snatch out of my mouth a word of truth, for I hope in Your judgments.
+119:44 So I may always keep Your Torah, forever and ever,
+119:45 and walk about in freedom. For I have sought Your precepts.
+119:46 I will speak of Your testimonies before kings, and never be ashamed.
+119:47 I delight in Your mitzvot, which I love.
+119:48 I reach out my hands for Your mitzvot, which I love, and meditate on Your decrees.
+119:49 Remember the word to Your servant, on which You have made me hope.
+119:50 My comfort in my affliction is this: Your word has kept me alive.
+119:51 The arrogant have viciously ridiculed me, yet I did not turn away from Your Torah.
+119:52 I remember Your judgments from of old, Adonai, and comfort myself.
+119:53 Burning indignation grips me, because of the wicked who forsake Your Torah.
+119:54 Your decrees have become my songs in the house where I dwell.
+119:55 In the night I remember Your Name, Adonai, and keep watching over Your Torah.
 119:56 This is my own: that I keep Your precepts.
-119:57  is my portion. I promised to guard Your words. 
-119:58 I have entreated Your favor with all my heart. Be gracious to me according to Your word. 
-119:59 I have considered my ways and turned my feet back to Your testimonies. 
-119:60 I hasten and do not delay to obey Your </span><span class="it"><span class="content">mitzvot
-119:61 The ropes of the wicked are coiled around me, but I did not forget Your </span><span class="it"><span class="content">Torah
-119:62 At midnight I rise to praise You, because of Your righteous rulings. 
-119:63 I am a companion of all who fear You, of those who observe Your precepts. 
-119:64 The earth is full of Your lovingkindness. </span><span class="it"><span class="sc"><span class="content">Adonai
-119:65 You do good to Your servant, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:66 Teach me good sense and knowledge, for I trusted in Your </span><span class="it"><span class="content">mitzvot
-119:67 Before I was afflicted I went astray, but now I keep Your word. 
-119:68 You are good and keep doing good— teach me Your decrees. 
-119:69 Though the proud smeared a lie on me, with all my heart I keep Your precepts. 
-119:70 Their minds are insensible, but Your </span><span class="it"><span class="content">Torah
-119:71 It is good for me that I was afflicted, so that I may learn Your decrees. 
-119:72 The </span><span class="it"><span class="content">Torah
-119:73 Your hands have made me and formed me. Give me understanding that I may learn Your </span><span class="it"><span class="content">mitzvot
-119:74 Those in awe of You see me and rejoice, because I put my hope in Your word. 
-119:75 I know, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:76 May Your lovingkindness comfort me, according to Your promise to Your servant. 
-119:77 Let Your tender mercies reach me, Let me live, for Your </span><span class="it"><span class="content">Torah
-119:78 May the proud be put to shame for wronging me with a lie, but I will meditate on Your precepts. 
-119:79 Let those in awe of You return to me— those who know Your testimonies. 
+119:57 Adonai is my portion. I promised to guard Your words.
+119:58 I have entreated Your favor with all my heart. Be gracious to me according to Your word.
+119:59 I have considered my ways and turned my feet back to Your testimonies.
+119:60 I hasten and do not delay to obey Your mitzvot.
+119:61 The ropes of the wicked are coiled around me, but I did not forget Your Torah.
+119:62 At midnight I rise to praise You, because of Your righteous rulings.
+119:63 I am a companion of all who fear You, of those who observe Your precepts.
+119:64 The earth is full of Your lovingkindness. Adonai—teach me Your decrees.
+119:65 You do good to Your servant, Adonai, according to Your word.
+119:66 Teach me good sense and knowledge, for I trusted in Your mitzvot.
+119:67 Before I was afflicted I went astray, but now I keep Your word.
+119:68 You are good and keep doing good— teach me Your decrees.
+119:69 Though the proud smeared a lie on me, with all my heart I keep Your precepts.
+119:70 Their minds are insensible, but Your Torah is my delight.
+119:71 It is good for me that I was afflicted, so that I may learn Your decrees.
+119:72 The Torah from Your mouth is better to me than thousands of gold and silver pieces.
+119:73 Your hands have made me and formed me. Give me understanding that I may learn Your mitzvot.
+119:74 Those in awe of You see me and rejoice, because I put my hope in Your word.
+119:75 I know, Adonai, Your judgments are just. In faithfulness You have afflicted me.
+119:76 May Your lovingkindness comfort me, according to Your promise to Your servant.
+119:77 Let Your tender mercies reach me, Let me live, for Your Torah is my delight.
+119:78 May the proud be put to shame for wronging me with a lie, but I will meditate on Your precepts.
+119:79 Let those in awe of You return to me— those who know Your testimonies.
 119:80 My heart will have integrity in following Your decrees, so that I would not be ashamed.
-119:81 My soul faints with longing for Your salvation, but I still hope in Your word. 
-119:82 My eyes are worn out longing for Your promise, saying, “When will You comfort me?” 
-119:83 Though I became like a wineskin dried in smoke, I do not forget Your decrees. 
-119:84 How many are the days of Your servant? When will You execute judgment on my persecutors? 
-119:85 The proud have dug pits for me— that is not in accord with Your </span><span class="it"><span class="content">Torah
-119:86 All Your </span><span class="it"><span class="content">mitzvot
-119:87 They almost finished me off on earth. But I—I will not forsake Your precepts. 
+119:81 My soul faints with longing for Your salvation, but I still hope in Your word.
+119:82 My eyes are worn out longing for Your promise, saying, “When will You comfort me?”
+119:83 Though I became like a wineskin dried in smoke, I do not forget Your decrees.
+119:84 How many are the days of Your servant? When will You execute judgment on my persecutors?
+119:85 The proud have dug pits for me— that is not in accord with Your Torah!
+119:86 All Your mitzvot are faithful. They persecute me with a lie—help me!
+119:87 They almost finished me off on earth. But I—I will not forsake Your precepts.
 119:88 Revive me with Your lovingkindness, so I may keep Your mouth’s testimony.
-119:89 Forever, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:90 Your faithfulness endures from generation to generation. You established the earth, and it stands. 
-119:91 Your judgments stand today, for all things are Your servants. 
-119:92 If Your </span><span class="it"><span class="content">Torah
-119:93 I will never forget Your precepts. For with them You have kept me alive. 
-119:94 I am Yours, save me! For I have sought out Your precepts. 
-119:95 The wicked wait for me to destroy me. But I will study Your testimonies. 
+119:89 Forever, Adonai, Your word stands firm in the heavens.
+119:90 Your faithfulness endures from generation to generation. You established the earth, and it stands.
+119:91 Your judgments stand today, for all things are Your servants.
+119:92 If Your Torah had not been my delight, I would have perished in my affliction.
+119:93 I will never forget Your precepts. For with them You have kept me alive.
+119:94 I am Yours, save me! For I have sought out Your precepts.
+119:95 The wicked wait for me to destroy me. But I will study Your testimonies.
 119:96 I have seen a limit to all perfection, yet Your commandment is boundless.
-119:97 O how I love Your </span><span class="it"><span class="content">Torah
-119:98 Your </span><span class="it"><span class="content">mitzvot
-119:99 I have more insight than all my teachers, for Your testimonies are my meditation. 
-119:100 I have gained more understanding than all my elders, for I have kept Your precepts. 
-119:101 I kept my feet from every evil way, in order to follow Your word. 
-119:102 I do not turn away from Your rulings, for You Yourself have taught me. 
-119:103 How sweet is Your word to my taste— yes, sweeter than honey to my mouth! 
+119:97 O how I love Your Torah! It is my meditation all day.
+119:98 Your mitzvot make me wiser than my enemies —for they are mine forever.
+119:99 I have more insight than all my teachers, for Your testimonies are my meditation.
+119:100 I have gained more understanding than all my elders, for I have kept Your precepts.
+119:101 I kept my feet from every evil way, in order to follow Your word.
+119:102 I do not turn away from Your rulings, for You Yourself have taught me.
+119:103 How sweet is Your word to my taste— yes, sweeter than honey to my mouth!
 119:104 From Your precepts I get discernment, therefore I hate every false way.
-119:105 Your word is a lamp to my feet and a light to my path. 
-119:106 I have sworn and confirmed to observe Your righteous rulings. 
-119:107 I am severely afflicted. Keep me alive, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:108 Please accept the freewill offerings of my mouth, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:109 My soul is continually in danger, yet I have not forgotten Your </span><span class="it"><span class="content">Torah
-119:110 The wicked have set a snare for me, yet I did not stray from Your precepts. 
-119:111 Your testimonies I have as a heritage forever, for they are my heart’s joy. 
+119:105 Your word is a lamp to my feet and a light to my path.
+119:106 I have sworn and confirmed to observe Your righteous rulings.
+119:107 I am severely afflicted. Keep me alive, Adonai, according to Your word.
+119:108 Please accept the freewill offerings of my mouth, Adonai, and teach me Your rulings.
+119:109 My soul is continually in danger, yet I have not forgotten Your Torah.
+119:110 The wicked have set a snare for me, yet I did not stray from Your precepts.
+119:111 Your testimonies I have as a heritage forever, for they are my heart’s joy.
 119:112 I turned my heart to do Your decrees, forever, to the very end.
-119:113 I hate double-minded ones, but Your </span><span class="it"><span class="content">Torah
-119:114 You are my hiding place and my shield —in Your word I hope. 
-119:115 Away from me, evildoers, so I may keep the </span><span class="it"><span class="content">mitzvot
-119:116 Sustain me according to Your word, so I may live, and let me not be ashamed of my hope. 
-119:117 Support me and I will be saved, and study Your decrees continually. 
-119:118 You despise all who wander from Your decrees, for their deceitfulness is in vain. 
-119:119 All the wicked of the earth You remove like dross. Therefore I love Your testimonies. 
-119:120 My flesh shudders for fear of You, and I am in awe of Your judgments. 
-119:121 I did what is just and right. Do not leave me to my oppressors. 
-119:122 Guarantee Your servant’s well-being. Do not let arrogant ones oppress me. 
-119:123 My eyes fail, longing for Your salvation and for Your righteous word. 
-119:124 Deal with Your servant as befits Your lovingkindness, and teach me Your statutes. 
-119:125 I am Your servant, give me discernment, so I may understand Your testimonies. 
-119:126 It is time for </span><span class="it"><span class="sc"><span class="content">Adonai
-119:127 Therefore I love Your </span><span class="it"><span class="content">mitzvot
+119:113 I hate double-minded ones, but Your Torah I love.
+119:114 You are my hiding place and my shield —in Your word I hope.
+119:115 Away from me, evildoers, so I may keep the mitzvot of my God!
+119:116 Sustain me according to Your word, so I may live, and let me not be ashamed of my hope.
+119:117 Support me and I will be saved, and study Your decrees continually.
+119:118 You despise all who wander from Your decrees, for their deceitfulness is in vain.
+119:119 All the wicked of the earth You remove like dross. Therefore I love Your testimonies.
+119:120 My flesh shudders for fear of You, and I am in awe of Your judgments.
+119:121 I did what is just and right. Do not leave me to my oppressors.
+119:122 Guarantee Your servant’s well-being. Do not let arrogant ones oppress me.
+119:123 My eyes fail, longing for Your salvation and for Your righteous word.
+119:124 Deal with Your servant as befits Your lovingkindness, and teach me Your statutes.
+119:125 I am Your servant, give me discernment, so I may understand Your testimonies.
+119:126 It is time for Adonai to act— they have violated Your Torah!
+119:127 Therefore I love Your mitzvot more than gold, more than pure gold.
 119:128 Therefore I esteem all Your precepts as right in every way —every false way I hate.
-119:129 Your testimonies are wonderful. Therefore my soul obeys them. 
-119:130 The unfolding of Your words gives light, giving understanding to the simple. 
-119:131 I opened my mouth wide and panted, for I longed for Your </span><span class="it"><span class="content">mitzvot
-119:132 Turn to me and be gracious to me, as is fitting to those who love Your Name. 
-119:133 Direct my footsteps in Your word, and let no iniquity get mastery over me. 
-119:134 Redeem me from human oppression, and I will keep Your precepts. 
-119:135 Make Your face shine on Your servant, and teach me Your decrees. 
-119:136 Streams of water run down from my eyes, because they do not observe Your </span><span class="it"><span class="content">Torah
-119:137 Righteous are You, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:138 You have commanded righteousness, Your testimonies, and great faithfulness. 
-119:139 My zeal has consumed me, because my foes forgot Your words. 
-119:140 Your word is thoroughly refined, and Your servant loves it. 
-119:141 I am insignificant and despised, yet I have not forgotten Your precepts. 
-119:142 Your justice is righteousness forever, and Your </span><span class="it"><span class="content">Torah
-119:143 Trouble and anguish have overtaken me, yet Your </span><span class="it"><span class="content">mitzvot
+119:129 Your testimonies are wonderful. Therefore my soul obeys them.
+119:130 The unfolding of Your words gives light, giving understanding to the simple.
+119:131 I opened my mouth wide and panted, for I longed for Your mitzvot.
+119:132 Turn to me and be gracious to me, as is fitting to those who love Your Name.
+119:133 Direct my footsteps in Your word, and let no iniquity get mastery over me.
+119:134 Redeem me from human oppression, and I will keep Your precepts.
+119:135 Make Your face shine on Your servant, and teach me Your decrees.
+119:136 Streams of water run down from my eyes, because they do not observe Your Torah.
+119:137 Righteous are You, Adonai, and Your judgments are upright.
+119:138 You have commanded righteousness, Your testimonies, and great faithfulness.
+119:139 My zeal has consumed me, because my foes forgot Your words.
+119:140 Your word is thoroughly refined, and Your servant loves it.
+119:141 I am insignificant and despised, yet I have not forgotten Your precepts.
+119:142 Your justice is righteousness forever, and Your Torah is truth.
+119:143 Trouble and anguish have overtaken me, yet Your mitzvot are my delight.
 119:144 Your testimonies are righteous forever —make me understand, so I may live.
-119:145 I cried out with all my heart, “Answer me, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:146 I cried out to You, “Save me, and I will keep Your testimonies.” 
-119:147 I am up before dawn, crying for help— I put my hope in Your word. 
-119:148 My eyes are up before every night watch, as I meditate on Your word. 
-119:149 Hear my voice with Your lovingkindness. Revive me, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:150 Pursuers of wicked schemes draw near— they are far from Your </span><span class="it"><span class="content">Torah
-119:151 You are near, </span><span class="it"><span class="sc"><span class="content">Adonai
+119:145 I cried out with all my heart, “Answer me, Adonai! I will keep Your decrees.”
+119:146 I cried out to You, “Save me, and I will keep Your testimonies.”
+119:147 I am up before dawn, crying for help— I put my hope in Your word.
+119:148 My eyes are up before every night watch, as I meditate on Your word.
+119:149 Hear my voice with Your lovingkindness. Revive me, Adonai, with Your judgments.
+119:150 Pursuers of wicked schemes draw near— they are far from Your Torah.
+119:151 You are near, Adonai, and all Your mitzvot are truth.
 119:152 Long ago I learned from Your testimonies that You founded them firmly forever.
-119:153 See my affliction and rescue me, for I do not forget Your </span><span class="it"><span class="content">Torah
-119:154 Defend my cause and redeem me. Restore my life through Your word. 
-119:155 Salvation is far from the wicked, for they do not seek after Your decrees. 
-119:156 Great are Your mercies, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:157 Many are my persecutors and my foes. Yet I do not turn from Your testimonies. 
-119:158 I see the treacherous and loathe them, because they do not keep Your word. 
-119:159 See how I loved Your precepts. Restore my life, </span><span class="it"><span class="sc"><span class="content">Adonai
+119:153 See my affliction and rescue me, for I do not forget Your Torah.
+119:154 Defend my cause and redeem me. Restore my life through Your word.
+119:155 Salvation is far from the wicked, for they do not seek after Your decrees.
+119:156 Great are Your mercies, Adonai. Restore my life with Your judgments.
+119:157 Many are my persecutors and my foes. Yet I do not turn from Your testimonies.
+119:158 I see the treacherous and loathe them, because they do not keep Your word.
+119:159 See how I loved Your precepts. Restore my life, Adonai, with Your lovingkindness.
 119:160 Truth is the essence of Your word, and all Your righteous rulings are eternal.
-119:161 Princes persecute me for no reason, but my heart is in awe of Your words. 
-119:162 I rejoice in Your word, as one who finds great spoil. 
-119:163 I hate and abhor falsehood, but Your </span><span class="it"><span class="content">Torah
-119:164 Seven times a day I praise You, because of Your righteous judgments. 
-119:165 Great peace have they who love Your </span><span class="it"><span class="content">Torah
-119:166 I hope for Your salvation, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:167 My soul has observed Your testimonies and I love them exceedingly. 
+119:161 Princes persecute me for no reason, but my heart is in awe of Your words.
+119:162 I rejoice in Your word, as one who finds great spoil.
+119:163 I hate and abhor falsehood, but Your Torah I love.
+119:164 Seven times a day I praise You, because of Your righteous judgments.
+119:165 Great peace have they who love Your Torah, and nothing causes them to stumble.
+119:166 I hope for Your salvation, Adonai, and do Your mitzvot.
+119:167 My soul has observed Your testimonies and I love them exceedingly.
 119:168 I observe Your precepts and Your laws, for all my ways are before You.
-119:169 Let my cry come to You, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:170 Let my supplication come before You. Deliver me, according to Your promise. 
-119:171 My lips utter praise, for You teach me Your statutes. 
-119:172 My tongue sings of Your word, for all Your </span><span class="it"><span class="content">mitzvot
-119:173 Let Your hand be ready to help me, for I have chosen Your precepts. 
-119:174 I long for Your deliverance, </span><span class="it"><span class="sc"><span class="content">Adonai
-119:175 Let my soul live and praise You, and may Your rulings help me. 
-119:176 I have strayed like a lost sheep— seek Your servant. For I did not forget Your </span><span class="it"><span class="content">mitzvot
-120:1 A Song of Ascents. In my trouble I cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-120:2 , deliver my soul from lying lips, from a deceitful tongue. 
-120:3 What can be given to you, and what more can be done to you, O deceitful tongue?— 
-120:4 sharp arrows of the mighty, with burning coals of a broom tree! 
-120:5 Woe to me, for I sojourn in Meshech, for I dwell among the tents of Kedar! 
-120:6 My soul has too long dwelt with those who hate </span><span class="it"><span class="content">shalom
-120:7 I am for </span><span class="it"><span class="content">shalom
+119:169 Let my cry come to You, Adonai. Grant me understanding by Your word.
+119:170 Let my supplication come before You. Deliver me, according to Your promise.
+119:171 My lips utter praise, for You teach me Your statutes.
+119:172 My tongue sings of Your word, for all Your mitzvot are righteous.
+119:173 Let Your hand be ready to help me, for I have chosen Your precepts.
+119:174 I long for Your deliverance, Adonai, and Your Torah is my delight.
+119:175 Let my soul live and praise You, and may Your rulings help me.
+119:176 I have strayed like a lost sheep— seek Your servant. For I did not forget Your mitzvot.
+120:1 A Song of Ascents. In my trouble I cried out to Adonai, and He answered me.
+120:2 Adonai, deliver my soul from lying lips, from a deceitful tongue.
+120:3 What can be given to you, and what more can be done to you, O deceitful tongue?—
+120:4 sharp arrows of the mighty, with burning coals of a broom tree!
+120:5 Woe to me, for I sojourn in Meshech, for I dwell among the tents of Kedar!
+120:6 My soul has too long dwelt with those who hate shalom.
+120:7 I am for shalom and thus I speak, but they are for war!
 121:1 A Song of Ascents. I will lift up my eyes to the mountains— from where does my help come? 
 121:2 My help comes from </span><span class="it"><span class="sc"><span class="content">Adonai
 121:3 He will not let your foot slip. Your Keeper will not slumber. 
