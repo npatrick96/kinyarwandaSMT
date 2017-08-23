@@ -2154,40 +2154,40 @@
 120:5 Woe to me, for I sojourn in Meshech, for I dwell among the tents of Kedar!
 120:6 My soul has too long dwelt with those who hate shalom.
 120:7 I am for shalom and thus I speak, but they are for war!
-121:1 A Song of Ascents. I will lift up my eyes to the mountains— from where does my help come? 
-121:2 My help comes from </span><span class="it"><span class="sc"><span class="content">Adonai
-121:3 He will not let your foot slip. Your Keeper will not slumber. 
-121:4 Behold, the Keeper of Israel neither slumbers nor sleeps. 
-121:5  is your shadow at your right hand. 
-121:6 The sun will not strike you by day, nor the moon by night. 
-121:7  will protect you from all evil. He will guard your life. 
-121:8  will watch over your coming and your going from this time forth and forevermore.
-122:1 A Song of Ascents. Of David. I rejoiced when they said to me, “Let us go to the House of </span><span class="it"><span class="sc"><span class="content">Adonai
-122:2 Our feet are standing in your gates, Jerusalem— 
-122:3 Jerusalem, built as a city joined together. 
-122:4 There the tribes go up, the tribes of </span><span class="it"><span class="sc"><span class="content">Adonai
-122:5 For there thrones for judgment are set up, the thrones of the house of David. 
-122:6 Pray for the peace of Jerusalem— “May those who love you be at peace! 
-122:7 May there be </span><span class="it"><span class="content">shalom
-122:8 For the sake of my brothers and friends, I now say: “</span><span class="it"><span class="content">Shalom
-122:9 For the sake of the House of </span><span class="it"><span class="sc"><span class="content">Adonai
-123:1 A Song of Ascents. To You I lift up my eyes— You enthroned in the heavens. 
-123:2 Behold, as the eyes of slaves to the hand of their master, as the eyes of a slave-girl to the hand of her mistress— so our eyes look to </span><span class="it"><span class="sc"><span class="content">Adonai
-123:3 Show us favor, </span><span class="it"><span class="sc"><span class="content">Adonai
+121:1 A Song of Ascents. I will lift up my eyes to the mountains— from where does my help come?
+121:2 My help comes from Adonai, Maker of heaven and earth.
+121:3 He will not let your foot slip. Your Keeper will not slumber.
+121:4 Behold, the Keeper of Israel neither slumbers nor sleeps.
+121:5 Adonai is your Keeper. Adonai is your shadow at your right hand.
+121:6 The sun will not strike you by day, nor the moon by night.
+121:7 Adonai will protect you from all evil. He will guard your life.
+121:8 Adonai will watch over your coming and your going from this time forth and forevermore.
+122:1 A Song of Ascents. Of David. I rejoiced when they said to me, “Let us go to the House of Adonai.”
+122:2 Our feet are standing in your gates, Jerusalem—
+122:3 Jerusalem, built as a city joined together.
+122:4 There the tribes go up, the tribes of Adonai —as a testimony to Israel— to praise the Name of Adonai.
+122:5 For there thrones for judgment are set up, the thrones of the house of David.
+122:6 Pray for the peace of Jerusalem— “May those who love you be at peace!
+122:7 May there be shalom within your walls— quietness within your palaces.”
+122:8 For the sake of my brothers and friends, I now say: “Shalom be within you.”
+122:9 For the sake of the House of Adonai our God, I will seek your good.
+123:1 A Song of Ascents. To You I lift up my eyes— You enthroned in the heavens.
+123:2 Behold, as the eyes of slaves to the hand of their master, as the eyes of a slave-girl to the hand of her mistress— so our eyes look to Adonai our God, till He shows us favor.
+123:3 Show us favor, Adonai, show us favor! For we have endured much contempt.
 123:4 Our soul has had enough of the scorn of those at ease, the contempt of the proud.
-124:1 A Song of Ascents. Of David. “Had </span><span class="it"><span class="sc"><span class="content">Adonai
-124:2 “Had </span><span class="it"><span class="sc"><span class="content">Adonai
-124:3 then they would have swallowed us alive, when their wrath burned against us. 
-124:4 Then the waters would have engulfed us, the torrent would have swept over our soul, 
-124:5 then the raging waters would have swept over our soul.” 
-124:6 Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
-124:7 Our soul has escaped like a bird out of the snare of the trappers— the snare is broken, and we escaped! 
-124:8 Our help is in the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-125:1 A Song of Ascents. Those who trust in </span><span class="it"><span class="sc"><span class="content">Adonai
-125:2 As the mountains are around Jerusalem, so </span><span class="it"><span class="sc"><span class="content">Adonai
-125:3 For a scepter of wickedness will not rest over the land of the righteous— lest the righteous set their hands to evil. 
-125:4 Do good, </span><span class="it"><span class="sc"><span class="content">Adonai
-125:5 But as for those who turn aside to their crooked ways, </span><span class="it"><span class="sc"><span class="content">Adonai
+124:1 A Song of Ascents. Of David. “Had Adonai not been on our side” —let Israel now say—
+124:2 “Had Adonai not been on our side, when men rose up against us,
+124:3 then they would have swallowed us alive, when their wrath burned against us.
+124:4 Then the waters would have engulfed us, the torrent would have swept over our soul,
+124:5 then the raging waters would have swept over our soul.”
+124:6 Blessed be Adonai, who has not given us as prey for their teeth.
+124:7 Our soul has escaped like a bird out of the snare of the trappers— the snare is broken, and we escaped!
+124:8 Our help is in the Name of Adonai, Maker of heaven and earth.
+125:1 A Song of Ascents. Those who trust in Adonai are like Mount Zion— it cannot be moved, but endures forever.
+125:2 As the mountains are around Jerusalem, so Adonai is all around His people, both now and forever.
+125:3 For a scepter of wickedness will not rest over the land of the righteous— lest the righteous set their hands to evil.
+125:4 Do good, Adonai, to the good, and to those upright in their hearts.
+125:5 But as for those who turn aside to their crooked ways, Adonai will lead them away with evildoers. Shalom be upon Israel.
 126:1 A Song of Ascents. When </span><span class="it"><span class="sc"><span class="content">Adonai
 126:2 Then our mouth was filled with laughter, and our tongue with a song of joy. Then they said among the nations, “</span><span class="it"><span class="sc"><span class="content">Adonai
 126:3  has done great things for us —we are joyful! 
