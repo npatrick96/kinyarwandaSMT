@@ -2188,42 +2188,42 @@
 125:3 For a scepter of wickedness will not rest over the land of the righteous— lest the righteous set their hands to evil.
 125:4 Do good, Adonai, to the good, and to those upright in their hearts.
 125:5 But as for those who turn aside to their crooked ways, Adonai will lead them away with evildoers. Shalom be upon Israel.
-126:1 A Song of Ascents. When </span><span class="it"><span class="sc"><span class="content">Adonai
-126:2 Then our mouth was filled with laughter, and our tongue with a song of joy. Then they said among the nations, “</span><span class="it"><span class="sc"><span class="content">Adonai
-126:3  has done great things for us —we are joyful! 
-126:4 Restore us from captivity, </span><span class="it"><span class="sc"><span class="content">Adonai
-126:5 Those who sow in tears will reap with a song of joy. 
-126:6 Whoever keeps going out weeping, carrying his bag of seed, will surely come back with a song of joy, carrying his sheaves. 
-127:1 A Song of Ascents. Of Solomon. Unless </span><span class="it"><span class="sc"><span class="content">Adonai
-127:2 In vain you rise up early and stay up late, eating the bread of toil— for He provides for His beloved ones even in their sleep. 
-127:3 Behold, children are a heritage of </span><span class="it"><span class="sc"><span class="content">Adonai
-127:4 As arrows in the hand of a mighty man, so are the children of one’s youth. 
-127:5 Happy is the man whose quiver is full of them. They will not be put to shame when they speak with their enemies at the gate. 
-128:1 A Song of Ascents. Happy is everyone in awe of </span><span class="it"><span class="sc"><span class="content">Adonai
-128:2 for you will eat the labor of your hands. You will be blessed and it will be good for you. 
-128:3 Your wife will be like a fruitful vine within your house. Your children will be like olive saplings around your table. 
-128:4 Behold, thus will the man be blessed who fears </span><span class="it"><span class="sc"><span class="content">Adonai
-128:5 May </span><span class="it"><span class="sc"><span class="content">Adonai
-128:6 and may you live to see your children’s children. </span><span class="it"><span class="content">Shalom
-129:1 A Song of Ascents. “How many times they have been hostile to me, even from my youth” —let Israel now say— 
-129:2 “How greatly they have been hostile to me, even from my youth. Yet they have not prevailed against me. 
-129:3 Plowmen plowed on my back— they made their furrows long!” 
-129:4  is righteous— He has cut the ropes of the wicked. 
-129:5 May all who hate Zion be driven back in disgrace. 
-129:6 Let them be like grass on the roofs, which withers before it springs up— 
-129:7 with it a reaper cannot fill his hand, nor can a binder of sheaves fill his lap. 
-129:8 So the passersby may never say: “The blessing of </span><span class="it"><span class="sc"><span class="content">Adonai
-130:1 A Song of Ascents. Out of the depths I cry to You, </span><span class="it"><span class="sc"><span class="content">Adonai
-130:2 Lord, hear my voice! Let Your ears be attentive to the sound of my supplications. 
-130:3 If You, </span><span class="it"><span class="sc"><span class="content">Adonai
-130:4 For with You there is forgiveness, so You may be revered. 
-130:5 I wait for </span><span class="it"><span class="sc"><span class="content">Adonai
-130:6 My soul waits for my Lord, more than watchmen for the morning, watchmen for the morning. 
-130:7 O Israel, wait for </span><span class="it"><span class="sc"><span class="content">Adonai
+126:1 A Song of Ascents. When Adonai restored the captives of Zion, it was as if we were dreaming.
+126:2 Then our mouth was filled with laughter, and our tongue with a song of joy. Then they said among the nations, “Adonai has done great things for them.”
+126:3 Adonai has done great things for us —we are joyful!
+126:4 Restore us from captivity, Adonai, like streams in the Negev.
+126:5 Those who sow in tears will reap with a song of joy.
+126:6 Whoever keeps going out weeping, carrying his bag of seed, will surely come back with a song of joy, carrying his sheaves.
+127:1 A Song of Ascents. Of Solomon. Unless Adonai builds the house, the builders labor in vain. Unless Adonai watches over the city, the watchman stands guard in vain.
+127:2 In vain you rise up early and stay up late, eating the bread of toil— for He provides for His beloved ones even in their sleep.
+127:3 Behold, children are a heritage of Adonai —the fruit of the womb is a reward.
+127:4 As arrows in the hand of a mighty man, so are the children of one’s youth.
+127:5 Happy is the man whose quiver is full of them. They will not be put to shame when they speak with their enemies at the gate.
+128:1 A Song of Ascents. Happy is everyone in awe of Adonai, who walks in His ways,
+128:2 for you will eat the labor of your hands. You will be blessed and it will be good for you.
+128:3 Your wife will be like a fruitful vine within your house. Your children will be like olive saplings around your table.
+128:4 Behold, thus will the man be blessed who fears Adonai.
+128:5 May Adonai bless you out of Zion, and may you see Jerusalem in prosperity all the days of your life,
+128:6 and may you live to see your children’s children. Shalom be upon Israel!
+129:1 A Song of Ascents. “How many times they have been hostile to me, even from my youth” —let Israel now say—
+129:2 “How greatly they have been hostile to me, even from my youth. Yet they have not prevailed against me.
+129:3 Plowmen plowed on my back— they made their furrows long!”
+129:4 Adonai is righteous— He has cut the ropes of the wicked.
+129:5 May all who hate Zion be driven back in disgrace.
+129:6 Let them be like grass on the roofs, which withers before it springs up—
+129:7 with it a reaper cannot fill his hand, nor can a binder of sheaves fill his lap.
+129:8 So the passersby may never say: “The blessing of Adonai be upon you— we bless you in the Name of Adonai.”
+130:1 A Song of Ascents. Out of the depths I cry to You, Adonai!
+130:2 Lord, hear my voice! Let Your ears be attentive to the sound of my supplications.
+130:3 If You, Adonai, kept a record of iniquities— my Lord, who could stand?
+130:4 For with You there is forgiveness, so You may be revered.
+130:5 I wait for Adonai, my soul waits, and in His word I hope.
+130:6 My soul waits for my Lord, more than watchmen for the morning, watchmen for the morning.
+130:7 O Israel, wait for Adonai. For with Adonai there is lovingkindness, and with Him is full redemption,
 130:8 and He will redeem Israel from all its iniquities.
-131:1 A Song of Ascents. Of David. </span><span class="it"><span class="sc"><span class="content">Adonai
-131:2 But I have calmed and quieted my soul— like a weaned child with his mother, like a weaned child is my soul within me. 
-131:3 O Israel, put your hope in </span><span class="it"><span class="sc"><span class="content">Adonai
+131:1 A Song of Ascents. Of David. Adonai, my heart is not proud, nor my eyes lofty, nor do I go after things too great or too difficult for me.
+131:2 But I have calmed and quieted my soul— like a weaned child with his mother, like a weaned child is my soul within me.
+131:3 O Israel, put your hope in Adonai from this time forth and forever.
 132:1 A Song of Ascents. </span><span class="it"><span class="sc"><span class="content">Adonai
 132:2 and how he swore to </span><span class="it"><span class="sc"><span class="content">Adonai
 132:3 “I will not enter the tent of my house nor lie on my bed, 
