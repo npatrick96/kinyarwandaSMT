@@ -2224,51 +2224,51 @@
 131:1 A Song of Ascents. Of David. Adonai, my heart is not proud, nor my eyes lofty, nor do I go after things too great or too difficult for me.
 131:2 But I have calmed and quieted my soul— like a weaned child with his mother, like a weaned child is my soul within me.
 131:3 O Israel, put your hope in Adonai from this time forth and forever.
-132:1 A Song of Ascents. </span><span class="it"><span class="sc"><span class="content">Adonai
-132:2 and how he swore to </span><span class="it"><span class="sc"><span class="content">Adonai
-132:3 “I will not enter the tent of my house nor lie on my bed, 
-132:4 nor will I will give sleep to my eyes, nor slumber to my eyelids, 
-132:5 till I find a place for </span><span class="it"><span class="sc"><span class="content">Adonai
-132:6 Behold, we heard of it in Ephratha, we found it in the fields of Joar. 
-132:7 Let us go into His dwelling place, let us bow at His footstool. 
-132:8 Arise, </span><span class="it"><span class="sc"><span class="content">Adonai
-132:9 Let Your </span><span class="it"><span class="content">kohanim
-132:10 For Your servant David’s sake do not turn away the face of Your anointed. 
-132:11  has sworn to David a true promise He will not revoke: “From the fruit of your body I will set one upon your throne— 
-132:12 if your children keep My covenant and My law that I will teach them, then their sons will sit on your throne forever.” 
-132:13 For </span><span class="it"><span class="sc"><span class="content">Adonai
-132:14 “This is My resting place forever. Here I dwell, for I have desired it. 
-132:15 I will abundantly bless her food. I will satisfy her needy ones with bread. 
-132:16 I will clothe her </span><span class="it"><span class="content">kohanim
-132:17 There will I make a horn spring up for David, I have set up a lamp for My anointed. 
+132:1 A Song of Ascents. Adonai, remember David, all his afflictions,
+132:2 and how he swore to Adonai, vowed to the Mighty One of Jacob:
+132:3 “I will not enter the tent of my house nor lie on my bed,
+132:4 nor will I will give sleep to my eyes, nor slumber to my eyelids,
+132:5 till I find a place for Adonai, a dwelling for the Mighty One of Jacob.”
+132:6 Behold, we heard of it in Ephratha, we found it in the fields of Joar.
+132:7 Let us go into His dwelling place, let us bow at His footstool.
+132:8 Arise, Adonai, to Your resting place— You, and the Ark of Your might.
+132:9 Let Your kohanim wear righteousness, and let Your godly ones sing for joy.
+132:10 For Your servant David’s sake do not turn away the face of Your anointed.
+132:11 Adonai has sworn to David a true promise He will not revoke: “From the fruit of your body I will set one upon your throne—
+132:12 if your children keep My covenant and My law that I will teach them, then their sons will sit on your throne forever.”
+132:13 For Adonai has chosen Zion, He has desired it for His dwelling:
+132:14 “This is My resting place forever. Here I dwell, for I have desired it.
+132:15 I will abundantly bless her food. I will satisfy her needy ones with bread.
+132:16 I will clothe her kohanim with salvation, and her godly ones will sing aloud for joy.
+132:17 There will I make a horn spring up for David, I have set up a lamp for My anointed.
 132:18 His enemies I will clothe with shame, but upon himself his crown will shine.”
-133:1 A Song of Ascents. Of David. Behold, how good and how pleasant it is for brothers to dwell together in unity! 
-133:2 It is like the precious oil upon the head, coming down upon the beard —Aaron’s beard— coming down on the collar of his robes. 
-133:3 It is like the dew of Hermon, coming down upon the mountains of Zion. For there </span><span class="it"><span class="sc"><span class="content">Adonai
-134:1 A Song of Ascents. Behold, bless </span><span class="it"><span class="sc"><span class="content">Adonai
-134:2 Lift up your hands to the Sanctuary and bless </span><span class="it"><span class="sc"><span class="content">Adonai
-134:3 May </span><span class="it"><span class="sc"><span class="content">Adonai
-135:1 Halleluyah! Praise the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-135:2 standing in the House of </span><span class="it"><span class="sc"><span class="content">Adonai
-135:3 Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-135:4 For </span><span class="it"><span class="sc"><span class="content">Adonai
-135:5 For I have known that </span><span class="it"><span class="sc"><span class="content">Adonai
-135:6 Whatever </span><span class="it"><span class="sc"><span class="content">Adonai
-135:7 He makes clouds rise from the ends of the earth. He makes lightning for the rain. He brings wind out of His storehouses. 
-135:8 He struck down the firstborn of Egypt, both man and beast. 
-135:9 He sent signs and wonders among you, O Egypt, on Pharaoh and all his servants. 
-135:10 He struck down many nations and slew mighty kings: 
-135:11 Sihon, king of the Amorites, and Og, king of Bashan, and all the kingdoms of Canaan, 
-135:12 and gave their land as an inheritance, an inheritance to His people Israel. 
-135:13 , from generation to generation. 
-135:14 For </span><span class="it"><span class="sc"><span class="content">Adonai
-135:15 The idols of the nations are silver and gold, the work of human hands. 
-135:16 They have mouths, but cannot speak, eyes, but cannot see; 
-135:17 they have ears, but cannot hear, nor is there any breath in their mouths. 
-135:18 Those who make them will be like them— so will all who keep trusting in them. 
-135:19 O house of Israel, bless </span><span class="it"><span class="sc"><span class="content">Adonai
-135:20 O house of Levi, bless </span><span class="it"><span class="sc"><span class="content">Adonai
-135:21 Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
+133:1 A Song of Ascents. Of David. Behold, how good and how pleasant it is for brothers to dwell together in unity!
+133:2 It is like the precious oil upon the head, coming down upon the beard —Aaron’s beard— coming down on the collar of his robes.
+133:3 It is like the dew of Hermon, coming down upon the mountains of Zion. For there Adonai commanded the blessing —life forevermore!
+134:1 A Song of Ascents. Behold, bless Adonai, all servants of Adonai, who stand by night in the House of Adonai.
+134:2 Lift up your hands to the Sanctuary and bless Adonai.
+134:3 May Adonai bless you out of Zion— Maker of heaven and earth.
+135:1 Halleluyah! Praise the Name of Adonai. Give praise, O servants of Adonai—
+135:2 standing in the House of Adonai, in the courts of the House of our God.
+135:3 Praise Adonai, for Adonai is good. Sing praises to His Name, for it is delightful.
+135:4 For Adonai has chosen Jacob for Himself, Israel as His treasured possession.
+135:5 For I have known that Adonai is great, and that our Lord is above all gods.
+135:6 Whatever Adonai pleases, He does, in heaven and in earth, in the seas and in all deeps.
+135:7 He makes clouds rise from the ends of the earth. He makes lightning for the rain. He brings wind out of His storehouses.
+135:8 He struck down the firstborn of Egypt, both man and beast.
+135:9 He sent signs and wonders among you, O Egypt, on Pharaoh and all his servants.
+135:10 He struck down many nations and slew mighty kings:
+135:11 Sihon, king of the Amorites, and Og, king of Bashan, and all the kingdoms of Canaan,
+135:12 and gave their land as an inheritance, an inheritance to His people Israel.
+135:13 Adonai, Your Name endures forever, Your renown, Adonai, from generation to generation.
+135:14 For Adonai will vindicate His people, and have compassion on His servants.
+135:15 The idols of the nations are silver and gold, the work of human hands.
+135:16 They have mouths, but cannot speak, eyes, but cannot see;
+135:17 they have ears, but cannot hear, nor is there any breath in their mouths.
+135:18 Those who make them will be like them— so will all who keep trusting in them.
+135:19 O house of Israel, bless Adonai! O house of Aaron, bless Adonai!
+135:20 O house of Levi, bless Adonai! You who revere Adonai, bless Adonai!
+135:21 Blessed be Adonai out of Zion, who dwells in Jerusalem. Halleluyah!
 136:1 Praise </span><span class="it"><span class="sc"><span class="content">Adonai
 136:2 Praise the God of gods, for His lovingkindness endures forever. 
 136:3 Praise the Lord of lords, for His lovingkindness endures forever, 
