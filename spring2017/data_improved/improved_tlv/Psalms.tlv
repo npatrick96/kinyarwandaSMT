@@ -2336,140 +2336,142 @@
 139:22 I have nothing but hatred for them; I count them my enemies.
 139:23 Search me, God, and know my heart; test me and know my anxious thoughts.
 139:24 See if there is any offensive way in me, and lead me in the way everlasting.
-140:1 For the music director: a psalm of David. 
-140:2 Rescue me, </span><span class="it"><span class="sc"><span class="content">Adonai
-140:3 who devise evil in their heart— every day they stir up wars. 
-140:4 They sharpen their tongue like a serpent’s —viper’s venom is under their lips. Selah 
-140:5 Keep me safe, </span><span class="it"><span class="sc"><span class="content">Adonai
-140:6 The proud have hidden a trap and cords for me. They spread out a net by the path. They set snares for me. Selah 
-140:7 I said to </span><span class="it"><span class="sc"><span class="content">Adonai
-140:8 God my Lord, the strength of my deliverance, You shield my head in the day of battle. 
-140:9 Grant not, </span><span class="it"><span class="sc"><span class="content">Adonai
-140:10 As for the head of those surrounding me, may the mischief of their lips overwhelm them. 
-140:11 Let burning coals fall upon them. May they be cast into the fire, into deep pits, never to rise again. 
-140:12 May a slanderer not endure in the land. May calamity hunt down a violent man. 
-140:13 I know </span><span class="it"><span class="sc"><span class="content">Adonai
-141:1 A psalm of David. </span><span class="it"><span class="sc"><span class="content">Adonai
-141:2 May my prayer be set before You like incense. May the lifting up of my hands be like the evening sacrifice. 
-141:3 Set a guard, </span><span class="it"><span class="sc"><span class="content">Adonai
-141:4 Let not my heart turn to any evil thing, to practice deeds of wickedness with men that work iniquity, nor let me eat of their delicacies. 
-141:5 Let the righteous strike me— it is kindness. Let him correct me— it is oil on my head —my head will not refuse it. Yet still my prayer is against their wickedness. 
-141:6 Their judges are thrown down from a cliff. Then they will hear my words, since they are sweet. 
-141:7 As when one plows and breaks open the earth, so our bones are scattered at the mouth of </span><span class="it"><span class="content">Sheol
-141:8 For my eyes are toward You, God my Lord. In You I have taken refuge— do not expose my soul. 
-141:9 Keep me from the jaws of the trap they have laid for me, and from the snares of the evildoers. 
-141:10 Let the wicked fall into their own nets, while I pass by safely. 
-142:1 A contemplative poem of David, when he was in the cave, a prayer. 
-142:2 I cry aloud with my voice to </span><span class="it"><span class="sc"><span class="content">Adonai
-142:3 I pour out my complaint before Him, before Him I tell my trouble. 
-142:4 When my spirit grows faint within me, You know my path. In the way where I walk they have hidden a trap for me. 
-142:5 Look at my right hand and see, for no one cares about me. I have no refuge— no one cares for my soul. 
-142:6 I have cried out to You, </span><span class="it"><span class="sc"><span class="content">Adonai
-142:7 Listen to my cry, for I am brought very low. Rescue me from my persecutors, for they are too strong for me. 
-143:1 A psalm of David. Hear my prayer, </span><span class="it"><span class="sc"><span class="content">Adonai
-143:2 Do not bring Your servant into judgment, for in Your eyes no one living is righteous. 
-143:3 For an enemy pursues my soul. He crushes my life down to the ground. He makes me dwell in darkness, like those long dead. 
-143:4 So my spirit grows faint within me. My heart is shocked within me. 
-143:5 I remember the days of old. I meditate on all You have done. I ponder the work of Your hands. 
-143:6 I spread forth my hands to You. My soul longs for You as a parched land. Selah 
-143:7 Answer me speedily, </span><span class="it"><span class="sc"><span class="content">Adonai
-143:8 Make me hear Your lovingkindness in the morning, for in You I trust. Show me the way I should go, for to You I lift up my soul. 
-143:9 Deliver me from my enemies, </span><span class="it"><span class="sc"><span class="content">Adonai
-143:10 Teach me to do Your will, for You are my God. Let Your good </span><span class="it"><span class="content">Ruach
-143:11 For Your Name’s sake, </span><span class="it"><span class="sc"><span class="content">Adonai
-143:12 In Your mercy cut off my enemies and destroy all who harass my soul, for I am Your servant.
-144:1 Of David. Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
-144:2 He is my lovingkindness, my fortress, my strong tower, and my deliverer, my shield, in whom I take refuge, who subdues my people under me. 
-144:3 , what is man, that You take note of him? Or the son of man, that You consider him? 
-144:4 Man is like a breath— his days are like a passing shadow. 
-144:5 , part Your heavens and come down. Touch the mountains, so they smoke. 
-144:6 Flash forth lightning and scatter them. Send out Your arrows and confuse them. 
-144:7 Stretch forth Your hands from on high. Snatch me, deliver me out of deep waters, out of the hand of foreigners, 
-144:8 whose mouth speaks falsehood, whose right hand is a right hand of deceit. 
-144:9 God, I sing a new song to You, on a ten-string harp I sing praises to You— 
-144:10 who gives salvation to kings, who rescues Your servant David from the evil sword. 
-144:11 Snatch me, deliver me out of the hand of foreigners, whose mouth speaks falsehood, whose right hand is a right hand of deceit. 
-144:12 Then our sons will be like plants nurtured in their youth, our daughters like corner pillars carved for the construction of a palace. 
-144:13 Our storehouses are full, supplying every kind of produce. Our flocks increase by thousands and ten thousands in our fields. 
-144:14 Our oxen bear a heavy load. There is no breach, no going into captivity, no outcry in our streets. 
-144:15 Happy are such a people! Blessed are the people whose God is </span><span class="it"><span class="sc"><span class="content">Adonai
-145:1 A psalm of praise. Of David. I will exalt You, my God, the King, and I will bless Your Name forever and ever. 
-145:2 Every day I will bless You, and praise Your Name forever and ever! 
-145:3 Great is </span><span class="it"><span class="sc"><span class="content">Adonai
-145:4 One generation will praise Your works to another and declare Your mighty acts. 
-145:5 I will meditate on the glorious splendor of Your majesty and Your wonders. 
-145:6 They will speak of the might of Your awesome deeds, and I will proclaim Your greatness. 
-145:7 They will pour out the renown of Your great goodness, and sing joyfully of Your righteousness. 
-145:8  is gracious and compassionate, slow to anger and great in lovingkindness. 
-145:9  is good to all. He has compassion on all His creatures. 
-145:10 All Your works praise You, </span><span class="it"><span class="sc"><span class="content">Adonai
-145:11 They declare the glory of Your kingdom and speak of Your might, 
-145:12 to make known to the sons of men His mighty acts and the glory of the majesty of His kingdom. 
-145:13 Your kingdom is a kingdom for all ages, and Your dominion endures from generation to generation. 
-145:14  upholds all who fall and raises up all who are bowed down. 
-145:15 The eyes of all look to You and You give them their food on time. 
-145:16 You open Your hand and satisfy every living thing with favor. 
-145:17  is righteous in all His ways and kind in all His deeds. 
-145:18  is near to all who call on Him, to all who call on Him in truth. 
-145:19 He will fulfill the desire of those who fear Him. He will hear their cry and save them. 
-145:20  watches over all who love Him, but all the wicked He will destroy. 
-145:21 My mouth declares the praise of </span><span class="it"><span class="sc"><span class="content">Adonai
-146:1 Halleluyah! Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-146:2 I will praise </span><span class="it"><span class="sc"><span class="content">Adonai
-146:3 Do not put your trust in princes— in man, in whom there is no salvation. 
-146:4 His breath departs, he returns to his dust. In that very day his plans perish. 
-146:5 Happy is he whose help is the God of Jacob, whose hope is in </span><span class="it"><span class="sc"><span class="content">Adonai
-146:6 who made heaven and earth, the sea, and all that is in them, who keeps truth forever, 
-146:7 who executes justice for the oppressed, who gives bread to the hungry. </span><span class="it"><span class="sc"><span class="content">Adonai
-146:8  loves the righteous. 
-146:9  protects outsiders, upholds the fatherless and the widow, but thwarts the way of the wicked. 
-146:10  will reign forever, your God, O Zion, from generation to generation. Halleluyah! 
-147:1 Halleluyah! How good it is to sing praises to our God. How pleasant and fitting is praise. 
-147:2  builds up Jerusalem. He gathers together the exiles of Israel. 
-147:3 He heals the brokenhearted and binds up their wounds. 
-147:4 He determines the number of the stars. He gives them all their names. 
-147:5 Great is our Lord and mighty in power— His understanding is infinite! 
-147:6  upholds the humble. He brings the wicked to the ground. 
-147:7 Sing to </span><span class="it"><span class="sc"><span class="content">Adonai
-147:8 He covers the sky with clouds. He provides rain for the earth. He makes grass sprout on the hills. 
-147:9 He gives food to the cattle and to the young ravens which cry. 
-147:10 He delights not in the horse’s strength, nor takes pleasure in a man’s legs. 
-147:11  delights in those who revere Him, in those who trust in His lovingkindness. 
-147:12 Exalt </span><span class="it"><span class="sc"><span class="content">Adonai
-147:13 For He strengthens the bars of your gates. He blesses your children within you. 
-147:14 He puts </span><span class="it"><span class="content">shalom
-147:15 He sends earth His command— His word runs swiftly. 
-147:16 He gives snow like wool. He scatters frost like ashes. 
-147:17 He hurls down His hail like pebbles— who can stand before His cold? 
-147:18 He sends forth His word and melts them. He makes His wind blow and waters flow. 
-147:19 He declares His word to Jacob, His decrees and His rulings to Israel. 
-147:20 He has not done so with any other nation. They have not known His judgments. Halleluyah! 
-148:1 Halleluyah! Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-148:2 Praise Him all His angels! Praise Him all His armies. 
-148:3 Praise Him, sun and moon! Praise Him, all stars of light. 
-148:4 Praise Him, highest heavens, and waters above the heavens. 
-148:5 Let them praise the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-148:6 He set them in place forever and ever. He made a decree that will never pass away. 
-148:7 Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-148:8 fire and hail, snow and vapor, storm wind doing His bidding, 
-148:9 mountains and all hills, fruit trees and all cedars, 
-148:10 beasts and all cattle, crawling things and winged birds, 
-148:11 kings of the earth and all peoples, princes and all rulers of earth, 
-148:12 both young men and maidens, old men and children. 
-148:13 Let them praise the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-148:14 He has raised up a horn for His people, a praise for all His </span><span class="it"><span class="content">kedoshim
-149:1 Halleluyah! Sing to </span><span class="it"><span class="sc"><span class="content">Adonai
-149:2 Let Israel rejoice in its Maker. Let the children of Zion be glad in their King. 
-149:3 Let them praise His Name with dancing. Let them sing praises to Him with tambourine and harp. 
-149:4 For </span><span class="it"><span class="sc"><span class="content">Adonai
-149:5 Let the </span><span class="it"><span class="content">kedoshim
-149:6 Let God’s high praises be in their mouth and a two-edged sword in their hand— 
-149:7 to execute vengeance upon the nations and rebukes on the peoples, 
-149:8 to bind their kings with chains and their nobles with fetters of iron, 
-149:9 to carry out the sentence decreed— this is the glory of all His </span><span class="it"><span class="content">kedoshim
-150:1 Halleluyah! Praise God in His Sanctuary! Praise Him in His mighty expanse. 
-150:2 Praise Him for His acts of power. Praise Him for His enormous greatness. 
-150:3 Praise Him with the blast of the </span><span class="it"><span class="content">shofar
-150:4 Praise Him with tambourine and dance. Praise Him with string instruments and flute. 
-150:5 Praise Him with clash of cymbals. Praise Him with resounding cymbals. 
-150:6 Let every thing that has breath praise </span><span class="it"><span class="sc"><span class="content">Adonai
+140:1 To the chief Musician, A Psalm of David. 
+140:2 Deliver me, O Lord, from the evil man: preserve me from the violent man
+140:3 Which imagine mischiefs in their heart; continually are they gathered together for war.
+140:4 They have sharpened their tongues like a serpent; adders' poison is under their lips. Selah.
+140:5 Keep me, O Lord, from the hands of the wicked; preserve me from the violent man; who have purposed to overthrow my goings.
+140:6 The proud have hid a snare for me, and cords; they have spread a net by the wayside; they have set gins for me. Selah.
+140:7 I said unto the Lord, Thou art my God: hear the voice of my supplications, O Lord.
+140:8 O God the Lord, the strength of my salvation, thou hast covered my head in the day of battle.
+140:9 Grant not, O Lord, the desires of the wicked: further not his wicked device; lest they exalt themselves. Selah.lest…: or, let them not be exalted
+140:10 As for the head of those that compass me about, let the mischief of their own lips cover them.
+140:11 Let burning coals fall upon them: let them be cast into the fire; into deep pits, that they rise not up again.
+140:12 Let not an evil speaker be established in the earth: evil shall hunt the violent man to overthrow him.
+140:13 I know that the Lord will maintain the cause of the afflicted, and the right of the poor.
+140:14 Surely the righteous shall give thanks unto thy name: the upright shall dwell in thy presence.
+141:1 A Psalm of David. 
+141:2 Lord, I cry unto thee: make haste unto me; give ear unto my voice, when I cry unto thee.
+141:3 Let my prayer be set forth before thee as incense; and the lifting up of my hands as the evening sacrifice.
+141:4 Set a watch, O Lord, before my mouth; keep the door of my lips.
+141:5 Incline not my heart to any evil thing, to practise wicked works with men that work iniquity: and let me not eat of their dainties.
+141:6 Let the righteous smite me; it shall be a kindness: and let him reprove me; it shall be an excellent oil, which shall not break my head: for yet my prayer also shall be in their calamities.
+141:7 When their judges are overthrown in stony places, they shall hear my words; for they are sweet.
+141:8 Our bones are scattered at the grave's mouth, as when one cutteth and cleaveth wood upon the earth.
+141:9 But mine eyes are unto thee, O God the Lord: in thee is my trust; leave not my soul destitute.leave…: Heb. make not my soul bare
+141:10 Keep me from the snares which they have laid for me, and the gins of the workers of iniquity.
+141:11 Let the wicked fall into their own nets, whilst that I withal escape.
+142:1 Maschil of David; A Prayer when he was in the cave. I cried unto the Lord with my voice; with my voice unto the Lord did I make my supplication.Maschil…: or, A Psalm of David, giving instruction
+142:2 I poured out my complaint before him; I shewed before him my trouble.
+142:3 When my spirit was overwhelmed within me, then thou knewest my path. In the way wherein I walked have they privily laid a snare for me.
+142:4 I looked on my right hand, and beheld, but there was no man that would know me: refuge failed me; no man cared for my soul.I looked…: or, Look on the right hand, and seefailed…: Heb. perished from mecared…: Heb. sought after
+142:5 I cried unto thee, O Lord: I said, Thou art my refuge and my portion in the land of the living.
+142:6 Attend unto my cry; for I am brought very low: deliver me from my persecutors; for they are stronger than I.
+142:7 Bring my soul out of prison, that I may praise thy name: the righteous shall compass me about; for thou shalt deal bountifully with me.
+143:1  A Psalm of David. Hear my prayer, O Lord, give ear to my supplications: in thy faithfulness answer me, and in thy righteousness.
+143:2 And enter not into judgment with thy servant: for in thy sight shall no man living be justified.
+143:3 For the enemy hath persecuted my soul; he hath smitten my life down to the ground; he hath made me to dwell in darkness, as those that have been long dead.
+143:4 Therefore is my spirit overwhelmed within me; my heart within me is desolate.
+143:5 I remember the days of old; I meditate on all thy works; I muse on the work of thy hands.
+143:6 I stretch forth my hands unto thee: my soul thirsteth after thee, as a thirsty land. Selah.
+143:7 Hear me speedily, O Lord: my spirit faileth: hide not thy face from me, lest I be like unto them that go down into the pit.lest…: or, for I am become like, etc.
+143:8 Cause me to hear thy lovingkindness in the morning; for in thee do I trust: cause me to know the way wherein I should walk; for I lift up my soul unto thee.
+143:9 Deliver me, O Lord, from mine enemies: I flee unto thee to hide me.flee…: Heb. hide me with thee
+143:10 Teach me to do thy will; for thou art my God: thy spirit is good; lead me into the land of uprightness.
+143:11 Quicken me, O Lord, for thy name's sake: for thy righteousness' sake bring my soul out of trouble.
+143:12 And of thy mercy cut off mine enemies, and destroy all them that afflict my soul: for I am thy servant.
+144:1  A Psalm of David. Blessed be the Lord my strength, which teacheth my hands to war, and my fingers to fight:
+144:2 My goodness, and my fortress; my high tower, and my deliverer; my shield, and he in whom I trust; who subdueth my people under me.
+144:3 Lord, what is man, that thou takest knowledge of him! or the son of man, that thou makest account of him!
+144:4 Man is like to vanity: his days are as a shadow that passeth away.
+144:5 Bow thy heavens, O Lord, and come down: touch the mountains, and they shall smoke.
+144:6 Cast forth lightning, and scatter them: shoot out thine arrows, and destroy them.
+144:7 Send thine hand from above; rid me, and deliver me out of great waters, from the hand of strange children;
+144:8 Whose mouth speaketh vanity, and their right hand is a right hand of falsehood.
+144:9 I will sing a new song unto thee, O God: upon a psaltery and an instrument of ten strings will I sing praises unto thee.
+144:10 It is he that giveth salvation unto kings: who delivereth David his servant from the hurtful sword.
+144:11 Rid me, and deliver me from the hand of strange children, whose mouth speaketh vanity, and their right hand is a right hand of falsehood:
+144:12 TThat our sons may be as plants grown up in their youth; that our daughters may be as corner stones, polished after the similitude of a palace:
+144:13 That our garners may be full, affording all manner of store: that our sheep may bring forth thousands and ten thousands in our streets:
+144:14 That our oxen may be strong to labour; that there be no breaking in, nor going out; that there be no complaining in our streets.
+144:15 Happy is that people, that is in such a case: yea, happy is that people, whose God is the Lord.
+145:1 David's Psalm of praise. I will extol thee, my God, O king; and I will bless thy name for ever and ever.
+145:2 Every day will I bless thee; and I will praise thy name for ever and ever.
+145:3 Great is the Lord, and greatly to be praised; and his greatness is unsearchable.and his…: Heb. and of his greatness there is no search
+145:4 One generation shall praise thy works to another, and shall declare thy mighty acts.
+145:5 I will speak of the glorious honour of thy majesty, and of thy wondrous works.works: Heb. things, or, words
+145:6 And men shall speak of the might of thy terrible acts: and I will declare thy greatness.declare: Heb. declare it
+145:7 They shall abundantly utter the memory of thy great goodness, and shall sing of thy righteousness.
+145:8 The Lord is gracious, and full of compassion; slow to anger, and of great mercy.of great…: Heb. great in mercy
+145:9 The Lord is good to all: and his tender mercies are over all his works.
+145:10 All thy works shall praise thee, O Lord; and thy saints shall bless thee.
+145:11 They shall speak of the glory of thy kingdom, and talk of thy power;
+145:12 To make known to the sons of men his mighty acts, and the glorious majesty of his kingdom.
+145:13 Thy kingdom is an everlasting kingdom, and thy dominion endureth throughout all generations.an…: Heb. a kingdom of all ages
+145:14 The Lord upholdeth all that fall, and raiseth up all those that be bowed down.
+145:15 The eyes of all wait upon thee; and thou givest them their meat in due season.wait…: or, look unto
+145:16 Thou openest thine hand, and satisfiest the desire of every living thing.
+145:17 The Lord is righteous in all his ways, and holy in all his works.holy: or, merciful, or, bountiful
+145:18 The Lord is nigh unto all them that call upon him, to all that call upon him in truth.
+145:19 He will fulfil the desire of them that fear him: he also will hear their cry, and will save them.
+145:20 The Lord preserveth all them that love him: but all the wicked will he destroy.
+145:21 My mouth shall speak the praise of the Lord: and let all flesh bless his holy name for ever and ever.
+146:1 Praise ye the Lord. Praise the Lord, O my soul.Praise ye…: Heb. Hallelujah
+146:2 While I live will I praise the Lord: I will sing praises unto my God while I have any being.
+146:3 Put not your trust in princes, nor in the son of man, in whom there is no help.help: or, salvation
+146:4 His breath goeth forth, he returneth to his earth; in that very day his thoughts perish.
+146:5 Happy is he that hath the God of Jacob for his help, whose hope is in the Lord his God:
+146:6 Which made heaven, and earth, the sea, and all that therein is: which keepeth truth for ever:
+146:7 Which executeth judgment for the oppressed: which giveth food to the hungry. The Lord looseth the prisoners:
+146:8 The Lord openeth the eyes of the blind: the Lord raiseth them that are bowed down: the Lord loveth the righteous:
+146:9 The Lord preserveth the strangers; he relieveth the fatherless and widow: but the way of the wicked he turneth upside down.
+146:10 The Lord shall reign for ever, even thy God, O Zion, unto all generations. Praise ye the Lord.
+147:1 Praise ye the Lord: for it is good to sing praises unto our God; for it is pleasant; and praise is comely.
+147:2 The Lord doth build up Jerusalem: he gathereth together the outcasts of Israel.
+147:3 He healeth the broken in heart, and bindeth up their wounds.wounds: Heb. griefs
+147:4 He telleth the number of the stars; he calleth them all by their names.
+147:5 Great is our Lord, and of great power: his understanding is infinite.his…: Heb. of his understanding there is no number
+147:6 The Lord lifteth up the meek: he casteth the wicked down to the ground.
+147:7 Sing unto the Lord with thanksgiving; sing praise upon the harp unto our God:
+147:8 Who covereth the heaven with clouds, who prepareth rain for the earth, who maketh grass to grow upon the mountains.
+147:9 He giveth to the beast his food, and to the young ravens which cry.
+147:10 He delighteth not in the strength of the horse: he taketh not pleasure in the legs of a man.
+147:11 The Lord taketh pleasure in them that fear him, in those that hope in his mercy.
+147:12 Praise the Lord, O Jerusalem; praise thy God, O Zion.
+147:13 For he hath strengthened the bars of thy gates; he hath blessed thy children within thee.
+147:14 He maketh peace in thy borders, and filleth thee with the finest of the wheat.
+147:15 He sendeth forth his commandment upon earth: his word runneth very swiftly.
+147:16 He giveth snow like wool: he scattereth the hoarfrost like ashes.
+147:17 He casteth forth his ice like morsels: who can stand before his cold?
+147:18 He sendeth out his word, and melteth them: he causeth his wind to blow, and the waters flow.
+147:19 He sheweth his word unto Jacob, his statutes and his judgments unto Israel.his word: Heb. his words
+147:20 He hath not dealt so with any nation: and as for his judgments, they have not known them. Praise ye the Lord.
+148:1 Praise ye the Lord. Praise ye the Lord from the heavens: praise him in the heights.Praise ye the Lord. Praise: 
+148:2 Praise ye him, all his angels: praise ye him, all his hosts.
+148:3 Praise ye him, sun and moon: praise him, all ye stars of light.
+148:4 Praise him, ye heavens of heavens, and ye waters that be above the heavens.
+148:5 Let them praise the name of the Lord: for he commanded, and they were created.
+148:6 He hath also stablished them for ever and ever: he hath made a decree which shall not pass.
+148:7 Praise the Lord from the earth, ye dragons, and all deeps:
+148:8 Fire, and hail; snow, and vapour; stormy wind fulfilling his word:
+148:9 Mountains, and all hills; fruitful trees, and all cedars:
+148:10 Beasts, and all cattle; creeping things, and flying fowl 
+148:11 Kings of the earth, and all people; princes, and all judges of the earth:
+148:12 Both young men, and maidens; old men, and children:
+148:13 Let them praise the name of the Lord: for his name alone is excellent; his glory is above the earth and heaven.
+148:14 He also exalteth the horn of his people, the praise of all his saints; even of the children of Israel, a people near unto him. Praise ye the Lord.
+149:1 Praise ye the Lord. Sing unto the Lord a new song, and his praise in the congregation of saints.
+149:2 Let Israel rejoice in him that made him: let the children of Zion be joyful in their King.
+149:3 Let them praise his name in the dance: let them sing praises unto him with the timbrel and harp.in…: or, with the pipe
+149:4 For the Lord taketh pleasure in his people: he will beautify the meek with salvation.
+149:5 Let the saints be joyful in glory: let them sing aloud upon their beds.
+149:6 Let the high praises of God be in their mouth, and a twoedged sword in their hand;
+149:7 To execute vengeance upon the heathen, and punishments upon the people;
+149:8 To bind their kings with chains, and their nobles with fetters of iron;
+149:9 To execute upon them the judgment written: this honour have all his saints. Praise ye the Lord.
+150:1 Praise ye the Lord. Praise God in his sanctuary: praise him in the firmament of his power.
+150:2 Praise him for his mighty acts: praise him according to his excellent greatness.
+150:3 Praise him with the sound of the trumpet: praise him with the psaltery and harp.
+150:4 Praise him with the timbrel and dance: praise him with stringed instruments and organs.
+150:5 Praise him upon the loud cymbals: praise him upon the high sounding cymbals.
+150:6 Let every thing that hath breath praise the Lord. Praise ye the Lord.
