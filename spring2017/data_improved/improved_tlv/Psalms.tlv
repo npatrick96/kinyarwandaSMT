@@ -2269,73 +2269,73 @@
 135:19 O house of Israel, bless Adonai! O house of Aaron, bless Adonai!
 135:20 O house of Levi, bless Adonai! You who revere Adonai, bless Adonai!
 135:21 Blessed be Adonai out of Zion, who dwells in Jerusalem. Halleluyah!
-136:1 Praise </span><span class="it"><span class="sc"><span class="content">Adonai
-136:2 Praise the God of gods, for His lovingkindness endures forever. 
-136:3 Praise the Lord of lords, for His lovingkindness endures forever, 
-136:4 who alone did great wonders, for His lovingkindness endures forever, 
-136:5 who made the heavens by wisdom, for His lovingkindness endures forever, 
-136:6 who spread the earth on the waters, for His lovingkindness endures forever, 
-136:7 who made great lights, for His lovingkindness endures forever— 
-136:8 the sun to rule by day, for His lovingkindness endures forever, 
-136:9 the moon and stars to rule by night, for His lovingkindness endures forever, 
-136:10 who struck Egypt in their firstborn, for His lovingkindness endures forever, 
-136:11 and led out Israel from among them, for His lovingkindness endures forever, 
-136:12 with a strong hand and outstretched arm, for His lovingkindness endures forever, 
-136:13 who cut the Sea of Reeds into parts, for His lovingkindness endures forever, 
-136:14 and made Israel pass through the midst of it, for His lovingkindness endures forever, 
-136:15 but hurled Pharaoh and his army into the Sea of Reeds, for His lovingkindness endures forever, 
-136:16 who led His people through the desert, for His lovingkindness endures forever, 
-136:17 who struck down great kings, for His lovingkindness endures forever, 
-136:18 and slew mighty kings, for His lovingkindness endures forever, 
-136:19 Sihon, king of the Amorites, for His lovingkindness endures forever, 
-136:20 and Og, king of Bashan, for His lovingkindness endures forever, 
-136:21 and gave their land for an inheritance, for His lovingkindness endures forever, 
-136:22 an inheritance for Israel His servant, for His lovingkindness endures forever. 
-136:23 He remembered us in our lowly estate, for His lovingkindness endures forever, 
-136:24 and separated between us and He delivered us from our adversaries, for His lovingkindness endures forever, 
-136:25 who gives food to all flesh, for His lovingkindness endures forever. 
-136:26 Praise the God of heaven, for His lovingkindness endures forever! 
-137:1 By the rivers of Babylon, we sat down and wept, when we remembered Zion. 
-137:2 On the willows there we hung up our harps. 
-137:3 For there our captors demanded songs and our tormentors asked for joy: “Sing us one of the songs of Zion.” 
-137:4 How can we sing a song of </span><span class="it"><span class="sc"><span class="content">Adonai
-137:5 If I forget you, O Jerusalem, let my right hand wither. 
-137:6 May my tongue cling to the roof of my mouth if I cease to remember you, if I do not set Jerusalem above my chief joy. 
-137:7 Remember, </span><span class="it"><span class="sc"><span class="content">Adonai
-137:8 O daughter of Babylon, the devastated one, happy is the one who repays you as you have paid us. 
-137:9 Happy is the one who seizes your little ones and dashes them upon the rock.
-138:1 Of David. I praise You with all my heart. In the presence of the mighty I will sing praises to You. 
-138:2 I bow down toward Your holy Temple and praise Your Name for Your love and Your faithfulness. For You—magnified above all Your Name and Your word. 
-138:3 On the day I called, You answered me. You made me bold with strength in my soul. 
-138:4 All the kings of the earth will praise You, </span><span class="it"><span class="sc"><span class="content">Adonai
-138:5 So they will sing of the ways of </span><span class="it"><span class="sc"><span class="content">Adonai
-138:6 For though </span><span class="it"><span class="sc"><span class="content">Adonai
-138:7 Though I walk amid trouble, You revive me. You stretch out Your hand against the wrath of my enemies, and Your right hand delivers me. 
-138:8 , endures forever. Do not abandon the work of Your hands. 
-139:1 For the music director: a psalm of David. </span><span class="it"><span class="sc"><span class="content">Adonai
-139:2 Whenever I sit down or stand up, You know it. You discern my thinking from afar. 
-139:3 You observe my journeying and my resting and You are familiar with all my ways. 
-139:4 Even before a word is on my tongue, behold, </span><span class="it"><span class="sc"><span class="content">Adonai
-139:5 You hemmed me in behind and before, and laid Your hand upon me. 
-139:6 Such knowledge is too wonderful for me, too lofty for me to attain. 
-139:7 Where can I go from Your </span><span class="it"><span class="content">Ruach
-139:8 If I go up to heaven, You are there, and if I make my bed in </span><span class="it"><span class="content">Sheol
-139:9 If I take the wings of the dawn and settle on the other side of the sea, 
-139:10 even there Your hand will lead me, and Your right hand will lay hold of me. 
-139:11 If I say: “Surely darkness covers me, night keeps light at a distance from me,” 
-139:12 even darkness is not dark for You, and night is as bright as day— darkness and light are alike. 
-139:13 For You have created my conscience. You knit me together in my mother’s womb. 
-139:14 I praise You, for I am awesomely, wonderfully made! Wonderful are Your works— and my soul knows that very well. 
-139:15 My frame was not hidden from You when I was made in the secret place, when I was woven together in the depths of the earth. 
-139:16 Your eyes saw me when I was unformed, and in Your book were written the days that were formed— when not one of them had come to be. 
-139:17 How precious are Your thoughts, O God! How great is the sum of them! 
-139:18 Were I to count them, they would outnumber the grains of sand! When I awake, I am still with You. 
-139:19 If only You would slay the wicked, O God! Away from me, you bloody men! 
-139:20 For they speak about You with wicked intent. Your enemies reproach You in vain. 
-139:21 Do I not hate those who hate You, </span><span class="it"><span class="sc"><span class="content">Adonai
-139:22 I hate them with total hatred— I consider them my enemies. 
-139:23 Search me, O God, and know my heart. Examine me, and know my anxious thoughts, 
-139:24 and see if there be any offensive way within me, and lead me in the way everlasting.
+136:1 Give thanks to the Lord, for he is good. His love endures forever.
+136:2 Give thanks to the God of gods. His love endures forever.
+136:3 Give thanks to the Lord of lords: His love endures forever.
+136:4 to him who alone does great wonders, His love endures forever.
+136:5 who by his understanding made the heavens, His love endures forever.
+136:6 who spread out the earth upon the waters, His love endures forever.
+136:7 who made the great lights— His love endures forever.
+136:8 the sun to govern the day, His love endures forever.
+136:9 the moon and stars to govern the night; His love endures forever.
+136:10 to him who struck down the firstborn of Egypt His love endures forever.
+136:11 and brought Israel out from among them His love endures forever.
+136:12 with a mighty hand and outstretched arm; His love endures forever.
+136:13 to him who divided the Red Sea13 Or the Sea of Reeds; also in verse 15 asunder His love endures forever.
+136:14 and brought Israel through the midst of it, His love endures forever.
+136:15 but swept Pharaoh and his army into the Red Sea; His love endures forever.
+136:16 to him who led his people through the wilderness; His love endures forever.
+136:17 to him who struck down great kings, His love endures forever.
+136:18 and killed mighty kings— His love endures forever.
+136:19 Sihon king of the Amorites His love endures forever.
+136:20 and Og king of Bashan— His love endures forever.
+136:21 and gave their land as an inheritance, His love endures forever.
+136:22 an inheritance to his servant Israel. His love endures forever.
+136:23 He remembered us in our low estate His love endures forever.
+136:24 and freed us from our enemies. His love endures forever.
+136:25 He gives food to every creature. His love endures forever.
+136:26 Give thanks to the God of heaven. His love endures forever.
+137:1 By the rivers of Babylon we sat and wept when we remembered Zion.
+137:2 There on the poplars we hung our harps,
+137:3 for there our captors asked us for songs, our tormentors demanded songs of joy; they said, “Sing us one of the songs of Zion!”
+137:4 How can we sing the songs of the Lord while in a foreign land?
+137:5 If I forget you, Jerusalem, may my right hand forget its skill.
+137:6 May my tongue cling to the roof of my mouth if I do not remember you, if I do not consider Jerusalem my highest joy.
+137:7 Remember, Lord, what the Edomites did on the day Jerusalem fell. “Tear it down,” they cried, “tear it down to its foundations!”
+137:8 Daughter Babylon, doomed to destruction, happy is the one who repays you according to what you have done to us.
+137:9 Happy is the one who seizes your infants and dashes them against the rocks.
+138:1 Of David. I will praise you, Lord, with all my heart; before the “gods” I will sing your praise.
+138:2 I will bow down toward your holy temple and will praise your name for your unfailing love and your faithfulness, for you have so exalted your solemn decree that it surpasses your fame.
+138:3 When I called, you answered me; you greatly emboldened me.
+138:4 May all the kings of the earth praise you, Lord, when they hear what you have decreed.
+138:5 May they sing of the ways of the Lord, for the glory of the Lord is great.
+138:6 Though the Lord is exalted, he looks kindly on the lowly; though lofty, he sees them from afar.
+138:7 Though I walk in the midst of trouble, you preserve my life. You stretch out your hand against the anger of my foes; with your right hand you save me.
+138:8 The Lord will vindicate me; your love, Lord, endures forever— do not abandon the works of your hands.
+139:1 For the director of music. Of David. A psalm. You have searched me, Lord, and you know me.
+139:2 You know when I sit and when I rise; you perceive my thoughts from afar.
+139:3 You discern my going out and my lying down; you are familiar with all my ways.
+139:4 Before a word is on my tongue you, Lord, know it completely.
+139:5 You hem me in behind and before, and you lay your hand upon me.
+139:6 Such knowledge is too wonderful for me, too lofty for me to attain.
+139:7 Where can I go from your Spirit? Where can I flee from your presence?
+139:8 If I go up to the heavens, you are there; if I make my bed in the depths, you are there.
+139:9 If I rise on the wings of the dawn, if I settle on the far side of the sea,
+139:10 even there your hand will guide me, your right hand will hold me fast.
+139:11 If I say, “Surely the darkness will hide me and the light become night around me,”
+139:12 even the darkness will not be dark to you; the night will shine like the day, for darkness is as light to you.
+139:13 For you created my inmost being; you knit me together in my mother’s womb.
+139:14 I praise you because I am fearfully and wonderfully made; your works are wonderful, I know that full well.
+139:15 My frame was not hidden from you when I was made in the secret place, when I was woven together in the depths of the earth.
+139:16 Your eyes saw my unformed body; all the days ordained for me were written in your book before one of them came to be.
+139:17 How precious to me are your thoughts,17 Or How amazing are your thoughts concerning me God! How vast is the sum of them!
+139:18 Were I to count them, they would outnumber the grains of sand— when I awake, I am still with you.
+139:19 If only you, God, would slay the wicked! Away from me, you who are bloodthirsty!
+139:20 They speak of you with evil intent; your adversaries misuse your name.
+139:21 Do I not hate those who hate you, Lord, and abhor those who are in rebellion against you?
+139:22 I have nothing but hatred for them; I count them my enemies.
+139:23 Search me, God, and know my heart; test me and know my anxious thoughts.
+139:24 See if there is any offensive way in me, and lead me in the way everlasting.
 140:1 For the music director: a psalm of David. 
 140:2 Rescue me, </span><span class="it"><span class="sc"><span class="content">Adonai
 140:3 who devise evil in their heart— every day they stir up wars. 
