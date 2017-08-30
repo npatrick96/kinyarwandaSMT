@@ -1,15 +1,15 @@
-1:1 Now these are the names of </span><span class="it"><span class="content">Bnei-Yisrael
+1:1 Now these are the names of the children of Israel, which came into Egypt; every man and his household came with Jacob.
 1:2 Reuben, Simeon, Levi and Judah; 
 1:3 Issachar, Zebulun and Benjamin; 
 1:4 Dan, Naphtali, Gad and Asher. 
 1:5 The souls that came out of the line of Jacob numbered 70 in all, while Joseph was already in Egypt. 
 1:6 Then Joseph died, as did all his brothers and all that generation. 
-1:7 Yet </span><span class="it"><span class="content">Bnei-Yisrael
+1:7 And the children of Israel were fruitful, and increased abundantly, and multiplied, and waxed exceeding mighty; and the land was filled with them.
 1:8 Now there arose a new king over Egypt, who did not know Joseph. 
-1:9 He said to his people, “Look, the people of </span><span class="it"><span class="content">Bnei-Yisrael
+1:9 And he said unto his people, Behold, the people of the children of Israel are more and mightier than we:
 1:10 Come, we must deal shrewdly with them, or else they will grow even more numerous, so that if war breaks out, they may join our enemies, fight against us, and then escape from the land.” 
 1:11 So they set slave masters over them to afflict them with forced labor, and they built Pithom and Raamses as storage cities for Pharaoh. 
-1:12 But the more they afflicted them, the more they multiplied and the more they spread. So the Egyptians dreaded the presence of </span><span class="it"><span class="content">Bnei-Yisrael
+1:12 But the more they afflicted them, the more they multiplied and grew. And they were grieved because of the children of Israel
 1:13 They worked them harshly, 
 1:14 and made their lives bitter with hard labor with mortar and brick, doing all sorts of work in the fields. In all their labors they worked them with cruelty. 
 1:15 Moreover the king of Egypt spoke to the Hebrew midwives, one of whom was named Shiphrah and the other Puah, 
@@ -42,85 +42,85 @@
 2:20 “Where is he then?” he said to his daughters. “Why did you leave the man behind? Invite him to have some food to eat!” 
 2:21 Moses was content to stay on with the man. Later he gave Moses his daughter Zipporah. 
 2:22 She gave birth to a son and he named him Gershom, saying, “I have been an outsider in a foreign land.” 
-2:23 Now it came about over the course of those many days that the king of Egypt died. </span><span class="it"><span class="content">Bnei-Yisrael
+2:23 And it came to pass in process of time, that the king of Egypt died: and the children of Israel sighed by reason of the bondage, and they cried, and their cry came up unto God by reason of the bondage.
 2:24 God heard their sobbing and remembered His covenant with Abraham, Isaac, and Jacob. 
-2:25 God saw </span><span class="it"><span class="content">Bnei-Yisrael
+2:25 And God looked upon the children of Israel, and God had respect unto them.
 3:1 Now Moses was tending the flock of his father-in-law Jethro, the priest of Midian. So he led the flock to the farthest end of the wilderness, coming to the mountain of God, Horeb. 
-3:2 Then the angel of </span><span class="it"><span class="sc"><span class="content">Adonai
+3:2 And the angel of the Lord appeared unto him in a flame of fire out of the midst of a bush: and he looked, and, behold, the bush burned with fire, and the bush was not consumed.
 3:3 Moses thought, “I will go now, and see this great sight. Why is the bush not burnt?” 
-3:4 When </span><span class="it"><span class="sc"><span class="content">Adonai
+3:4 And when the Lord saw that he turned aside to see, God called unto him out of the midst of the bush, and said, Moses, Moses. And he said, Here am I.
 3:5 Then He said, “Come no closer. Take your sandals off your feet, for the place where you are standing is holy ground.” 
 3:6 Moreover He said, “I am the God of your father, the God of Abraham, Isaac and Jacob.” So Moses hid his face, because he was afraid to look at God. 
-3:7 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+3:7 And the Lord said, I have surely seen the affliction of my people which are in Egypt, and have heard their cry by reason of their taskmasters; for I know their sorrows;
 3:8 So I have come down to deliver them out of the hand of the Egyptians, to bring them up out of that land into a good and large land, a land flowing with milk and honey, into the place of the Canaanites, Hittites, Amorites, Perizzites, Hivites and Jebusites. 
-3:9 Now behold, the cry of </span><span class="it"><span class="content">Bnei-Yisrael
-3:10 Come now, I will send you to Pharaoh, so that you may bring My people </span><span class="it"><span class="content">Bnei-Yisrael
-3:11 But Moses said to God, “Who am I, that I should go to Pharaoh, and bring </span><span class="it"><span class="content">Bnei-Yisrael
+3:9 Now therefore, behold, the cry of the children of Israel is come unto me: and I have also seen the oppression wherewith the Egyptians oppress them.
+3:10 Come now therefore, and I will send thee unto Pharaoh, that thou mayest bring forth my people the children of Israel out of Egypt.
+3:11 And Moses said unto God, Who am I, that I should go unto Pharaoh, and that I should bring forth the children of Israel out of Egypt?
 3:12 So He said, “I will surely be with you. So that will be the sign to you that it is I who have sent you. When you have brought the people out of Egypt: you will worship God on this mountain.” 
-3:13 But Moses said to God, “Suppose I go to </span><span class="it"><span class="content">Bnei-Yisrael
-3:14 God answered Moses, “I AM WHO I AM. ” Then He said, “You are to say to </span><span class="it"><span class="content">Bnei-Yisrael
-3:15 God also said to Moses: “You are to say to </span><span class="it"><span class="content">Bnei-Yisrael
-3:16 “Go now, gather the elders of Israel together, and say to them: ‘</span><span class="it"><span class="sc"><span class="content">Adonai
-3:17 So I promise I will bring you up out of the affliction of Egypt, into the land of the Canaanites, Hittites, Amorites, Perizzites, Hivites and Jebusites, to a land flowing with milk and honey.’ 
-3:18 “They will listen to your voice. So you will go, you along with the elders of Israel, to the king of Egypt, and say to him: ‘</span><span class="it"><span class="sc"><span class="content">Adonai
-3:19 Nevertheless, I know that the king of Egypt will not let you go, except by a mighty hand. 
-3:20 So I will stretch out My hand and strike Egypt with all My wonders that I will do in the midst of it. After that, he will let you go. 
-3:21 “Then I shall grant these people favor in the eyes of the Egyptians. So it will happen that when you go, you will not leave empty-handed. 
-3:22 Every woman is to ask her neighbor and the woman who lives in her house for silver and gold jewelry and clothing. You will put them on your sons and your daughters. So you will plunder the Egyptians.”
-4:1 Then Moses said, “But look, they will not believe me or listen to my voice. They will say, ‘</span><span class="it"><span class="sc"><span class="content">Adonai
-4:2 So </span><span class="it"><span class="sc"><span class="content">Adonai
-4:3 Then He said, “Cast it on the ground.” When he cast it to the ground, it became a serpent, so Moses fled from before it. 
-4:4 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-4:5 “This is so that they may believe </span><span class="it"><span class="sc"><span class="content">Adonai
-4:6 —white as snow. 
-4:7 Then He said, “Put your hand back into your cloak.” So he put his hand back in, and when he took it out it was restored again as the rest of his skin. 
-4:8 Then He said, “If they do not believe you, or listen to the voice of the first sign, they will believe the message of the latter sign. 
-4:9 But if they do not believe even these two signs nor listen to your voice, you are to take the water of the river and pour it on the dry land. The water which you take out of the river will become blood on the ground.” 
-4:10 But Moses said to </span><span class="it"><span class="sc"><span class="content">Adonai
-4:11 So </span><span class="it"><span class="sc"><span class="content">Adonai
-4:12 Now go! I will be with your mouth and teach you what to say.” 
-4:13 But he said, “Please, please, send it by another hand.” 
-4:14 Then the anger of </span><span class="it"><span class="sc"><span class="content">Adonai
-4:15 You are to speak to him and put the words in his mouth. I will be with your mouth and with his, and teach you what to do. 
-4:16 He will be your spokesman to the people, so that he may act as a mouthpiece for you, and it will be as if you were as God for him. 
-4:17 Now then, you must take this staff in your hand to do the signs.”
-4:18 So Moses went, returned to his father-in-law Jethro and said to him, “Please let me go, so I may return to my kinsmen who are in Egypt and see whether they are still alive.” Jethro said to Moses, “Go in peace.” 
-4:19 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-4:20 So Moses took his wife and his sons, set them on a donkey and returned to the land of Egypt. Moses took the staff of God in his hand. 
-4:21  said to Moses, “When you go back to Egypt, see that you do all the wonders before Pharaoh that I have put in your hand. Still, I will harden his heart, and he will not let the people go. 
-4:22 You are to say to Pharaoh, “This is what </span><span class="it"><span class="sc"><span class="content">Adonai
-4:23 So I have said to you, Let My son go, that he may serve Me, but you have refused to let him go. Behold, I will slay your son, your firstborn.’” 
-4:24 It happened along the way, at a lodging place, that </span><span class="it"><span class="sc"><span class="content">Adonai
-4:25 But Zipporah took a flint, cut off the foreskin of her son, and threw it at his feet, saying, “You are surely a bridegroom of blood to me.” 
-4:26 She said, “A bridegroom of blood” because of the circumcision. Then He let him alone. 
-4:27 Now </span><span class="it"><span class="sc"><span class="content">Adonai
-4:28 Then Moses told Aaron all the words of </span><span class="it"><span class="sc"><span class="content">Adonai
-4:29 Then Moses and Aaron went and assembled all the elders of </span><span class="it"><span class="content">Bnei-Yisrael
-4:30 Aaron spoke all the words that </span><span class="it"><span class="sc"><span class="content">Adonai
-4:31 So the people believed. When they heard that </span><span class="it"><span class="sc"><span class="content">Adonai
-5:1 Afterward, Moses and Aaron went and said to Pharaoh, “This is what </span><span class="it"><span class="sc"><span class="content">Adonai
-5:2 But Pharaoh said, “Who is </span><span class="it"><span class="sc"><span class="content">Adonai
-5:3 They answered, “The God of the Hebrews has met with us. Please let us take a three-day journey into the wilderness, so we may sacrifice to </span><span class="it"><span class="sc"><span class="content">Adonai
-5:4 But the king of Egypt said to them, “Why do you, Moses and Aaron, make the people break loose from their work? Go to your labors!” 
-5:5 Then Pharaoh said, “Look, the people of the land are now so numerous, yet you would have them rest from their labors?” 
-5:6 Then on the same day Pharaoh commanded the slave masters of the people and their foremen saying, 
-5:7 “You are not to give the people any more straw to make bricks, as before. Let them go and gather straw for themselves. 
-5:8 But impose on them the quota of bricks that they made previously; don’t reduce it. For they are lazy—that’s why they cry out saying, ‘Let us go and sacrifice to our God.’ 
-5:9 Let even heavier work be laid upon the men, so that they must labor, paying no attention to deceptive words.” 
-5:10 Then the slave masters of the people went out, along with their officers, and they spoke to the people saying: “This is what Pharaoh says: I will not give you straw. 
-5:11 Go and get straw for yourselves wherever you can find it, for there will be no reduction of your work.” 
-5:12 So the people were scattered throughout all the land of Egypt to gather stubble for straw. 
-5:13 But the slave masters pressured, saying, “Fulfill your work, your daily amount, just as when there was straw.” 
-5:14 Moreover the foremen of </span><span class="it"><span class="content">Bnei-Yisrael
-5:15 The foremen of </span><span class="it"><span class="content">Bnei-Yisrael
-5:16 No straw is given to your servants, yet they say to us, ‘Make bricks!’ and look, your servants are beaten. But it is your own people at fault.” 
-5:17 But he said, “Lazy! You’re lazy! That’s why you were saying, ‘Let us go and sacrifice to </span><span class="it"><span class="sc"><span class="content">Adonai
-5:18 So go now and work! No straw will be given to you—but you must deliver the quota of bricks.” 
-5:19 So the foremen of </span><span class="it"><span class="content">Bnei-Yisrael
-5:20 Then they met Moses and Aaron, who were waiting for them as they came from Pharaoh. 
-5:21 So they said to them, “May </span><span class="it"><span class="sc"><span class="content">Adonai
-5:22 So Moses returned to </span><span class="it"><span class="sc"><span class="content">Adonai
-5:23 Ever since I came to Pharaoh to speak in Your Name, he has brought evil on these people. You have not delivered Your people at all.”
+3:13 And Moses said unto God, Behold, when I come unto the children of Israel, and shall say unto them, The God of your fathers hath sent me unto you; and they shall say to me, What is his name? what shall I say unto them?
+3:14 And God said unto Moses, I AM THAT I AM: and he said, Thus shalt thou say unto the children of Israel, I AM hath sent me unto you.
+3:15 And God said moreover unto Moses, Thus shalt thou say unto the children of Israel, The Lord God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath sent me unto you: this is my name for ever, and this is my memorial unto all generations.
+3:16 Go, and gather the elders of Israel together, and say unto them, The Lord God of your fathers, the God of Abraham, of Isaac, and of Jacob, appeared unto me, saying, I have surely visited you, and seen that which is done to you in Egypt:
+3:17 And I have said, I will bring you up out of the affliction of Egypt unto the land of the Canaanites, and the Hittites, and the Amorites, and the Perizzites, and the Hivites, and the Jebusites, unto a land flowing with milk and honey.
+3:18 And they shall hearken to thy voice: and thou shalt come, thou and the elders of Israel, unto the king of Egypt, and ye shall say unto him, The Lord God of the Hebrews hath met with us: and now let us go, we beseech thee, three days' journey into the wilderness, that we may sacrifice to the Lord our God.
+3:19 And I am sure that the king of Egypt will not let you go, no, not by a mighty hand.
+3:20 And I will stretch out my hand, and smite Egypt with all my wonders which I will do in the midst thereof: and after that he will let you go.
+3:21 And I will give this people favour in the sight of the Egyptians: and it shall come to pass, that, when ye go, ye shall not go empty:
+3:22 But every woman shall borrow of her neighbour, and of her that sojourneth in her house, jewels of silver, and jewels of gold, and raiment: and ye shall put them upon your sons, and upon your daughters; and ye shall spoil the Egyptians.
+4:1 And Moses answered and said, But, behold, they will not believe me, nor hearken unto my voice: for they will say, The Lord hath not appeared unto thee.
+4:2 And the Lord said unto him, What is that in thine hand? And he said, A rod.
+4:3 And he said, Cast it on the ground. And he cast it on the ground, and it became a serpent; and Moses fled from before it.
+4:4 And the Lord said unto Moses, Put forth thine hand, and take it by the tail. And he put forth his hand, and caught it, and it became a rod in his hand:
+4:5 That they may believe that the Lord God of their fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath appeared unto thee.
+4:6 And the Lord said furthermore unto him, Put now thine hand into thy bosom. And he put his hand into his bosom: and when he took it out, behold, his hand was leprous as snow.
+4:7 And he said, Put thine hand into thy bosom again. And he put his hand into his bosom again; and plucked it out of his bosom, and, behold, it was turned again as his other flesh.
+4:8 And it shall come to pass, if they will not believe thee, neither hearken to the voice of the first sign, that they will believe the voice of the latter sign.
+4:9 And it shall come to pass, if they will not believe also these two signs, neither hearken unto thy voice, that thou shalt take of the water of the river, and pour it upon the dry land: and the water which thou takest out of the river shall become blood upon the dry land.
+4:10 And Moses said unto the Lord, O my Lord, I am not eloquent, neither heretofore, nor since thou hast spoken unto thy servant: but I am slow of speech, and of a slow tongue.
+4:11 And the Lord said unto him, Who hath made man's mouth? or who maketh the dumb, or deaf, or the seeing, or the blind? have not I the Lord?
+4:12 Now therefore go, and I will be with thy mouth, and teach thee what thou shalt say.
+4:13 And he said, O my Lord, send, I pray thee, by the hand of him whom thou wilt send.
+4:14 And the anger of the Lord was kindled against Moses, and he said, Is not Aaron the Levite thy brother? I know that he can speak well. And also, behold, he cometh forth to meet thee: and when he seeth thee, he will be glad in his heart.
+4:15 And thou shalt speak unto him, and put words in his mouth: and I will be with thy mouth, and with his mouth, and will teach you what ye shall do.
+4:16 And he shall be thy spokesman unto the people: and he shall be, even he shall be to thee instead of a mouth, and thou shalt be to him instead of God.
+4:17 And thou shalt take this rod in thine hand, wherewith thou shalt do signs.
+4:18 And Moses went and returned to Jethro his father in law, and said unto him, Let me go, I pray thee, and return unto my brethren which are in Egypt, and see whether they be yet alive. And Jethro said to Moses, Go in peace.
+4:19 And the Lord said unto Moses in Midian, Go, return into Egypt: for all the men are dead which sought thy life.
+4:20 And Moses took his wife and his sons, and set them upon an ass, and he returned to the land of Egypt: and Moses took the rod of God in his hand.
+4:21 And the Lord said unto Moses, When thou goest to return into Egypt, see that thou do all those wonders before Pharaoh, which I have put in thine hand: but I will harden his heart, that he shall not let the people go.
+4:22 And thou shalt say unto Pharaoh, Thus saith the Lord, Israel is my son, even my firstborn:
+4:23 And I say unto thee, Let my son go, that he may serve me: and if thou refuse to let him go, behold, I will slay thy son, even thy firstborn.
+4:24 And it came to pass by the way in the inn, that the Lord met him, and sought to kill him.
+4:25 Then Zipporah took a sharp stone, and cut off the foreskin of her son, and cast it at his feet, and said, Surely a bloody husband art thou to me.
+4:26 So he let him go: then she said, A bloody husband thou art, because of the circumcision.
+4:27 And the Lord said to Aaron, Go into the wilderness to meet Moses. And he went, and met him in the mount of God, and kissed him.
+4:28 And Moses told Aaron all the words of the Lord who had sent him, and all the signs which he had commanded him.
+4:29 And Moses and Aaron went and gathered together all the elders of the children of Israel:
+4:30 And Aaron spake all the words which the Lord had spoken unto Moses, and did the signs in the sight of the people.
+4:31 And the people believed: and when they heard that the Lord had visited the children of Israel, and that he had looked upon their affliction, then they bowed their heads and worshipped.
+5:1 And afterward Moses and Aaron went in, and told Pharaoh, Thus saith the Lord God of Israel, Let my people go, that they may hold a feast unto me in the wilderness.
+5:2 And Pharaoh said, Who is the Lord, that I should obey his voice to let Israel go? I know not the Lord, neither will I let Israel go.
+5:3 And they said, The God of the Hebrews hath met with us: let us go, we pray thee, three days' journey into the desert, and sacrifice unto the Lord our God; lest he fall upon us with pestilence, or with the sword.
+5:4 And the king of Egypt said unto them, Wherefore do ye, Moses and Aaron, let the people from their works? get you unto your burdens.
+5:5 And Pharaoh said, Behold, the people of the land now are many, and ye make them rest from their burdens.
+5:6 And Pharaoh commanded the same day the taskmasters of the people, and their officers, saying,
+5:7 Ye shall no more give the people straw to make brick, as heretofore: let them go and gather straw for themselves.
+5:8 And the tale of the bricks, which they did make heretofore, ye shall lay upon them; ye shall not diminish ought thereof: for they be idle; therefore they cry, saying, Let us go and sacrifice to our God.
+5:9 Let there more work be laid upon the men, that they may labour therein; and let them not regard vain words.
+5:10 And the taskmasters of the people went out, and their officers, and they spake to the people, saying, Thus saith Pharaoh, I will not give you straw.
+5:11 Go ye, get you straw where ye can find it: yet not ought of your work shall be diminished.
+5:12 So the people were scattered abroad throughout all the land of Egypt to gather stubble instead of straw.
+5:13 And the taskmasters hasted them, saying, Fulfil your works, your daily tasks, as when there was straw.
+5:14 And the officers of the children of Israel, which Pharaoh's taskmasters had set over them, were beaten, and demanded, Wherefore have ye not fulfilled your task in making brick both yesterday and to day, as heretofore?
+5:15 Then the officers of the children of Israel came and cried unto Pharaoh, saying, Wherefore dealest thou thus with thy servants?
+5:16 There is no straw given unto thy servants, and they say to us, Make brick: and, behold, thy servants are beaten; but the fault is in thine own people.
+5:17 But he said, Ye are idle, ye are idle: therefore ye say, Let us go and do sacrifice to the Lord.
+5:18 Go therefore now, and work; for there shall no straw be given you, yet shall ye deliver the tale of bricks.
+5:19 And the officers of the children of Israel did see that they were in evil case, after it was said, Ye shall not minish ought from your bricks of your daily task.
+5:20 And they met Moses and Aaron, who stood in the way, as they came forth from Pharaoh:
+5:21 And they said unto them, The Lord look upon you, and judge; because ye have made our savour to be abhorred in the eyes of Pharaoh, and in the eyes of his servants, to put a sword in their hand to slay us.
+5:22 And Moses returned unto the Lord, and said, Lord, wherefore hast thou so evil entreated this people? why is it that thou hast sent me?
+5:23 For since I came to Pharaoh to speak in thy name, he hath done evil to this people; neither hast thou delivered thy people at all.
 6:1  said to Moses, “Now you will see what I am going to do to Pharaoh. By way of a strong hand he will let them go, and drive them out of his land.”
 6:2 God spoke further to Moses and said to him, “I am </span><span class="it"><span class="sc"><span class="content">Adonai
 6:3 I appeared to Abraham, to Isaac and to Jacob, as </span><span class="it"><span class="content">El Shaddai
