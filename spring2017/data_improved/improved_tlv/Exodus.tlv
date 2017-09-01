@@ -121,157 +121,157 @@
 5:21 And they said unto them, The Lord look upon you, and judge; because ye have made our savour to be abhorred in the eyes of Pharaoh, and in the eyes of his servants, to put a sword in their hand to slay us.
 5:22 And Moses returned unto the Lord, and said, Lord, wherefore hast thou so evil entreated this people? why is it that thou hast sent me?
 5:23 For since I came to Pharaoh to speak in thy name, he hath done evil to this people; neither hast thou delivered thy people at all.
-6:1  said to Moses, “Now you will see what I am going to do to Pharaoh. By way of a strong hand he will let them go, and drive them out of his land.”
-6:2 God spoke further to Moses and said to him, “I am </span><span class="it"><span class="sc"><span class="content">Adonai
-6:3 I appeared to Abraham, to Isaac and to Jacob, as </span><span class="it"><span class="content">El Shaddai
-6:4 I also established My covenant with them, to give them the land of Canaan, the land of their pilgrimage where they journeyed. 
-6:5 Furthermore, I have heard the groaning of </span><span class="it"><span class="content">Bnei-Yisrael
-6:6 Therefore say to </span><span class="it"><span class="content">Bnei-Yisrael
-6:7 I will take you to Myself as a people, and I will be your God. You will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-6:8 So I will bring you into the land that I swore to give to Abraham, to Isaac and to Jacob, and give it to you as an inheritance. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-6:9 Moses spoke this way to </span><span class="it"><span class="content">Bnei-Yisrael
-6:10 So </span><span class="it"><span class="sc"><span class="content">Adonai
-6:11 “Go, speak to Pharaoh king of Egypt, so that will he let </span><span class="it"><span class="content">Bnei-Yisrael
-6:12 But Moses said to </span><span class="it"><span class="sc"><span class="content">Adonai
-6:13 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-6:14 These are the heads of their father’s houses. The sons of Reuben the firstborn of Israel were Hanoch, Pallu, Hezron and Carmi. These are the families of Reuben. 
-6:15 The sons of Simeon were Jemuel, Jamin, Ohad, Jachin, Zohar and Shaul the son of a Canaanite woman. These are the families of Simeon. 
-6:16 These are the names of the sons of Levi ­according to their generations: Gershon, Kohath and Merari. Levi lived 137 years. 
-6:17 The sons of Gershon were Libni and Shimei, according to their families. 
-6:18 The sons of Kohath were Amram, Izhar, Hebron and Uzziel. Kohath lived 133 years. 
-6:19 The sons of Merari were Mahli and Mushi. These are the families of the Levites according to their generations. 
-6:20 Amram married Jochebed, his father’s sister, and she bore him Aaron and Moses. Amram lived 137 years. 
-6:21 The sons of Izhar were Korah, Nepheg and Zichri. 
-6:22 The sons of Uzziel were Mishael, Elzaphan and Sithri. 
-6:23 Aaron married Elisheba daughter of Amminadav, sister of Nahshon, and she bore him Nadab and Abihu, Eleazar and Ithamar. 
-6:24 The sons of Korah were Assir, Elkanah and Abiasaph. These are the families of the Korahites. 
-6:25 Eleazar, Aaron’s son, married one of the daughters of Putiel and she bore him Phinehas. These are the heads of the ancestral houses of the Levites according to their families. 
-6:26 These are the same Aaron and Moses to whom </span><span class="it"><span class="sc"><span class="content">Adonai
-6:27 These are the ones that spoke to Pharaoh king of Egypt, to bring </span><span class="it"><span class="content">Bnei-Yisrael
-6:28 So it happened on the day when </span><span class="it"><span class="sc"><span class="content">Adonai
-6:29 that </span><span class="it"><span class="sc"><span class="content">Adonai
-6:30 But Moses said to </span><span class="it"><span class="sc"><span class="content">Adonai
-7:1 So </span><span class="it"><span class="sc"><span class="content">Adonai
-7:2 You are to speak all that I command you and Aaron your brother is to speak to Pharaoh, so that he will let </span><span class="it"><span class="content">Bnei-Yisrael
-7:3 Yet I will harden Pharaoh’s heart, and multiply My signs and wonders in the land of Egypt. 
-7:4 But Pharaoh will not listen to you, so I will lay My hand upon Egypt, and bring forth My armies, My people </span><span class="it"><span class="content">Bnei-Yisrael
-7:5 The Egyptians will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-7:6 So Moses and Aaron did as </span><span class="it"><span class="sc"><span class="content">Adonai
-7:7 Moses was eighty years old and Aaron eighty-three years old when they spoke to Pharaoh. 
-7:8  told Moses and Aaron, 
-7:9 “When Pharaoh speaks to you saying, ‘Prove yourselves with a miracle,’ then you are to say to Aaron, ‘Take your staff and cast it down before Pharaoh, so that it may become a serpent.’” 
-7:10 So Moses and Aaron went in to Pharaoh and did as </span><span class="it"><span class="sc"><span class="content">Adonai
-7:11 Then Pharaoh called for the wise men and the sorcerers, and they too, the magicians of Egypt, did the same with their secret arts. 
-7:12 For each man threw down his staff, and they became serpents. But Aaron’s staff swallowed up their staffs. 
-7:13 Yet Pharaoh’s heart was hardened. So he did not listen to them— just as </span><span class="it"><span class="sc"><span class="content">Adonai
-7:14 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-7:15 Go to Pharaoh in the morning as he is coming out to the water, and stand ready to meet him by the bank of the Nile. Take the staff that was transformed into a serpent in your hand. 
-7:16 You are to say to him: </span><span class="it"><span class="sc"><span class="content">Adonai
-7:17 This is what </span><span class="it"><span class="sc"><span class="content">Adonai
-7:18 The fish that are in the river will die, the river will become foul, and the Egyptians will hate to drink water from the Nile.”’ 
-7:19  said to Moses, “Say to Aaron: Take your staff and stretch out your hand over the waters of Egypt, over their rivers, over their streams, over their pools and over all their ponds, so that they become blood. There will be blood throughout all the land of Egypt, even in wooden and stone containers.” 
-7:20 So Moses and Aaron did as </span><span class="it"><span class="sc"><span class="content">Adonai
-7:21 When the fish that were in the river died, the river became so foul that the Egyptians could not drink water from the river. The blood was throughout all the land of Egypt. 
-7:22 But the magicians of Egypt did the same with their secret arts. So Pharaoh’s heart was hardened, and he did not listen to them—just as </span><span class="it"><span class="sc"><span class="content">Adonai
-7:23 Pharaoh turned and went into his house, and did not even take it to heart. 
-7:24 So all the Egyptians dug around the river for water to drink, because they could not drink of the water from the Nile. 
-7:25 Seven days were fulfilled after </span><span class="it"><span class="sc"><span class="content">Adonai
-8:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-8:2 So Aaron stretched out his hand over the waters of Egypt, and the frogs came up and covered the land. 
-8:3 But the magicians did the same with their secret arts and brought up frogs over the land of Egypt. 
-8:4 Then Pharaoh called for Moses and Aaron and said, “Pray to </span><span class="it"><span class="sc"><span class="content">Adonai
-8:5 Moses answered Pharaoh, “Boast about me after I pray for you. When am I to pray for you, your servants and your people, that the frogs would be cut off from you and your houses, and remain only in the Nile?” 
-8:6 “Tomorrow,” he said. So he said, “Let it happen according to your word, so that you may know that there is none like </span><span class="it"><span class="sc"><span class="content">Adonai
-8:7 The frogs will depart from you, from your houses, from your servants and from your people. They will remain only in the Nile.” 
-8:8 After Moses and Aaron went out from Pharaoh, Moses cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-8:9 So </span><span class="it"><span class="sc"><span class="content">Adonai
-8:10 They piled them together in large heaps, and the land stank. 
-8:11 But when Pharaoh saw that there was relief, he hardened his heart and did not listen to them—just as </span><span class="it"><span class="sc"><span class="content">Adonai
-8:12 So </span><span class="it"><span class="sc"><span class="content">Adonai
-8:13 So they did. When Aaron stretched out his hand with his staff and struck the dust of the earth, there were gnats on men and animals. All the dust of the earth became gnats throughout all the land of Egypt. 
-8:14 When the magicians attempted the same with their secret arts to bring forth gnats, they could not. There were gnats on men and animals. 
-8:15 So the magicians said to Pharaoh, “This is the finger of God.” But Pharaoh’s heart was hardened, and he did not listen to them—just as </span><span class="it"><span class="sc"><span class="content">Adonai
-8:16 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-8:17 Or else, if you do not let My people go, I will send the swarm of flies on you and on your servants, on your people and into your houses. The houses of the Egyptians will be full of the swarm of flies including the ground that they stand on. 
-8:18 “But on that day I will set apart the land of Goshen, where My people are dwelling—except no swarm of flies will be there—so that you may know that I, </span><span class="it"><span class="sc"><span class="content">Adonai
-8:19 I will make a distinction between My people and your people. By tomorrow this sign will happen.” 
-8:20  did just so. A massive swarm of flies went into the house of Pharaoh and into his servant’s houses. All the land of Egypt was ruined because of the swarm of flies. 
-8:21 So Pharaoh called for Moses and for Aaron and said, “Go! Sacrifice to your God—in the land.” 
-8:22 But Moses said, “That would not be right. For the offerings we intend to sacrifice to </span><span class="it"><span class="sc"><span class="content">Adonai
-8:23 We must walk a three-day journey into the wilderness and sacrifice to </span><span class="it"><span class="sc"><span class="content">Adonai
-8:24 Pharaoh said, “I will let you go, so that you may sacrifice to </span><span class="it"><span class="sc"><span class="content">Adonai
-8:25 So Moses said, “See, I am leaving you, and I will pray to </span><span class="it"><span class="sc"><span class="content">Adonai
-8:26 Then Moses went out from Pharaoh and prayed to </span><span class="it"><span class="sc"><span class="content">Adonai
-8:27  acted according to the word of Moses, and removed the swarm of flies from Pharaoh, from his servants and from his people. Nothing remained. 
+6:1 Adonai said to Moses, “Now you will see what I am going to do to Pharaoh. By way of a strong hand he will let them go, and drive them out of his land.”
+6:2 God spoke further to Moses and said to him, “I am Adonai.
+6:3 I appeared to Abraham, to Isaac and to Jacob, as El Shaddai. Yet by My Name, Adonai, I made Myself known to them.
+6:4 I also established My covenant with them, to give them the land of Canaan, the land of their pilgrimage where they journeyed.
+6:5 Furthermore, I have heard the groaning of Bnei-Yisrael, whom the Egyptians are keeping in bondage. So I have remembered My covenant.
+6:6 Therefore say to Bnei-Yisrael: I am Adonai, and I will bring you out from under the burdens of the Egyptians. I will deliver you from their bondage, and I will redeem you with an outstretched arm and with great judgments.
+6:7 I will take you to Myself as a people, and I will be your God. You will know that I am Adonai your God, who brought you out from under the burdens of the Egyptians.
+6:8 So I will bring you into the land that I swore to give to Abraham, to Isaac and to Jacob, and give it to you as an inheritance. I am Adonai.”
+6:9 Moses spoke this way to Bnei-Yisrael, but they did not listen to him because of their broken spirit and cruel bondage.
+6:10 So Adonai told Moses,
+6:11 “Go, speak to Pharaoh king of Egypt, so that will he let Bnei-Yisrael go out of his land.”
+6:12 But Moses said to Adonai, “Bnei-Yisrael have not listened to me. So how would Pharaoh listen to me—I, who have uncircumcised lips?”
+6:13 Then Adonai spoke to Moses and to Aaron and gave to them a charge for Bnei-Yisrael and Pharaoh king of Egypt, to bring Bnei-Yisrael out of the land of Egypt.
+6:14 These are the heads of their father’s houses. The sons of Reuben the firstborn of Israel were Hanoch, Pallu, Hezron and Carmi. These are the families of Reuben.
+6:15 The sons of Simeon were Jemuel, Jamin, Ohad, Jachin, Zohar and Shaul the son of a Canaanite woman. These are the families of Simeon.
+6:16 These are the names of the sons of Levi ­according to their generations: Gershon, Kohath and Merari. Levi lived 137 years.
+6:17 The sons of Gershon were Libni and Shimei, according to their families.
+6:18 The sons of Kohath were Amram, Izhar, Hebron and Uzziel. Kohath lived 133 years.
+6:19 The sons of Merari were Mahli and Mushi. These are the families of the Levites according to their generations.
+6:20 Amram married Jochebed, his father’s sister, and she bore him Aaron and Moses. Amram lived 137 years.
+6:21 The sons of Izhar were Korah, Nepheg and Zichri.
+6:22 The sons of Uzziel were Mishael, Elzaphan and Sithri.
+6:23 Aaron married Elisheba daughter of Amminadav, sister of Nahshon, and she bore him Nadab and Abihu, Eleazar and Ithamar.
+6:24 The sons of Korah were Assir, Elkanah and Abiasaph. These are the families of the Korahites.
+6:25 Eleazar, Aaron’s son, married one of the daughters of Putiel and she bore him Phinehas. These are the heads of the ancestral houses of the Levites according to their families.
+6:26 These are the same Aaron and Moses to whom Adonai said, “Bring Bnei-Yisrael out from the land of Egypt according to their divisions.”
+6:27 These are the ones that spoke to Pharaoh king of Egypt, to bring Bnei-Yisrael out from Egypt. These are that same Moses and Aaron.
+6:28 So it happened on the day when Adonai spoke to Moses in the land of Egypt,
+6:29 that Adonai said to Moses, “I am Adonai. Tell Pharaoh king of Egypt everything that I tell to you.”
+6:30 But Moses said to Adonai, “I am of uncircumcised lips, so how would Pharaoh listen to me?”
+7:1 So Adonai said to Moses, “See, I have set you as God to Pharaoh, and Aaron your brother will be your prophet.
+7:2 You are to speak all that I command you and Aaron your brother is to speak to Pharaoh, so that he will let Bnei-Yisrael go out of his land.
+7:3 Yet I will harden Pharaoh’s heart, and multiply My signs and wonders in the land of Egypt.
+7:4 But Pharaoh will not listen to you, so I will lay My hand upon Egypt, and bring forth My armies, My people Bnei-Yisrael, out of the land of Egypt by great judgments.
+7:5 The Egyptians will know that I am Adonai, when I stretch out My hand against Egypt, and bring out Bnei-Yisrael from among them.”
+7:6 So Moses and Aaron did as Adonai commanded them.
+7:7 Moses was eighty years old and Aaron eighty-three years old when they spoke to Pharaoh.
+7:8 Adonai told Moses and Aaron,
+7:9 “When Pharaoh speaks to you saying, ‘Prove yourselves with a miracle,’ then you are to say to Aaron, ‘Take your staff and cast it down before Pharaoh, so that it may become a serpent.’”
+7:10 So Moses and Aaron went in to Pharaoh and did as Adonai had commanded. Aaron threw down his staff before Pharaoh and before his servants, and it became a serpent.
+7:11 Then Pharaoh called for the wise men and the sorcerers, and they too, the magicians of Egypt, did the same with their secret arts.
+7:12 For each man threw down his staff, and they became serpents. But Aaron’s staff swallowed up their staffs.
+7:13 Yet Pharaoh’s heart was hardened. So he did not listen to them— just as Adonai had said.
+7:14 Then Adonai said to Moses, “Pharaoh’s heart is stubborn; he refuses to let the people go.
+7:15 Go to Pharaoh in the morning as he is coming out to the water, and stand ready to meet him by the bank of the Nile. Take the staff that was transformed into a serpent in your hand.
+7:16 You are to say to him: Adonai, God of the Hebrews, has sent me to you, saying, ‘Let My people go, so they may serve Me in the wilderness,’ and behold, you have not listened.
+7:17 This is what Adonai says: ‘By this you will know that I am Adonai. Behold, I will strike the waters that are in the river with the staff that is in my hand, and they will be turned to blood.
+7:18 The fish that are in the river will die, the river will become foul, and the Egyptians will hate to drink water from the Nile.”’
+7:19 Adonai said to Moses, “Say to Aaron: Take your staff and stretch out your hand over the waters of Egypt, over their rivers, over their streams, over their pools and over all their ponds, so that they become blood. There will be blood throughout all the land of Egypt, even in wooden and stone containers.”
+7:20 So Moses and Aaron did as Adonai commanded. He lifted up the staff and struck the waters that were in the river in the sight of Pharaoh and his servants, and all the waters of the Nile turned to blood.
+7:21 When the fish that were in the river died, the river became so foul that the Egyptians could not drink water from the river. The blood was throughout all the land of Egypt.
+7:22 But the magicians of Egypt did the same with their secret arts. So Pharaoh’s heart was hardened, and he did not listen to them—just as Adonai had said.
+7:23 Pharaoh turned and went into his house, and did not even take it to heart.
+7:24 So all the Egyptians dug around the river for water to drink, because they could not drink of the water from the Nile.
+7:25 Seven days were fulfilled after Adonai had struck the Nile.
+7:26  Then Adonai said to Moses, “Go to Pharaoh and say to him: This is what Adonai says: ‘Let My people go, so they may serve Me.
+7:27 If you refuse to let them go, see, I will strike all your territory with frogs.
+7:28 The river will swarm with frogs. They will go up and enter your house, into your bedroom, upon your bed, into the houses of your servants, upon your people, into your ovens, and in your kneading bowls.
+7:29 The frogs will climb up on you, your people and all your servants.’”
+8:1 Then Adonai told Moses, “Say to Aaron: Stretch out your hand with your staff over the rivers, canals and pools, and cause frogs to come up over the land of Egypt.”
+8:2 So Aaron stretched out his hand over the waters of Egypt, and the frogs came up and covered the land.
+8:3 But the magicians did the same with their secret arts and brought up frogs over the land of Egypt.
+8:4 Then Pharaoh called for Moses and Aaron and said, “Pray to Adonai, that He would take the frogs away from me and from my people. Then I will let the people go, so they may sacrifice to Adonai.”
+8:5 Moses answered Pharaoh, “Boast about me after I pray for you. When am I to pray for you, your servants and your people, that the frogs would be cut off from you and your houses, and remain only in the Nile?”
+8:6 “Tomorrow,” he said. So he said, “Let it happen according to your word, so that you may know that there is none like Adonai our God.
+8:7 The frogs will depart from you, from your houses, from your servants and from your people. They will remain only in the Nile.”
+8:8 After Moses and Aaron went out from Pharaoh, Moses cried out to Adonai concerning the frogs, which He had brought upon Pharaoh.
+8:9 So Adonai acted according to the word of Moses, and the frogs died out in the houses, the courts and the fields.
+8:10 They piled them together in large heaps, and the land stank.
+8:11 But when Pharaoh saw that there was relief, he hardened his heart and did not listen to them—just as Adonai had said.
+8:12 So Adonai said to Moses, “Tell Aaron, ‘Stretch out your staff and strike the dust of the earth, and it will become gnats throughout all the land of Egypt.’”
+8:13 So they did. When Aaron stretched out his hand with his staff and struck the dust of the earth, there were gnats on men and animals. All the dust of the earth became gnats throughout all the land of Egypt.
+8:14 When the magicians attempted the same with their secret arts to bring forth gnats, they could not. There were gnats on men and animals.
+8:15 So the magicians said to Pharaoh, “This is the finger of God.” But Pharaoh’s heart was hardened, and he did not listen to them—just as Adonai had said.
+8:16 Then Adonai said to Moses, “Rise up early in the morning and stand before Pharaoh. As he comes to the water say to him, This is what Adonai says: Let My people go, that they may serve Me.
+8:17 Or else, if you do not let My people go, I will send the swarm of flies on you and on your servants, on your people and into your houses. The houses of the Egyptians will be full of the swarm of flies including the ground that they stand on.
+8:18 “But on that day I will set apart the land of Goshen, where My people are dwelling—except no swarm of flies will be there—so that you may know that I, Adonai, am in the midst of the earth.
+8:19 I will make a distinction between My people and your people. By tomorrow this sign will happen.”
+8:20 Adonai did just so. A massive swarm of flies went into the house of Pharaoh and into his servant’s houses. All the land of Egypt was ruined because of the swarm of flies.
+8:21 So Pharaoh called for Moses and for Aaron and said, “Go! Sacrifice to your God—in the land.”
+8:22 But Moses said, “That would not be right. For the offerings we intend to sacrifice to Adonai our God are an abomination to the Egyptians. If we sacrifice what is an abomination to the Egyptians, wouldn’t they stone us?
+8:23 We must walk a three-day journey into the wilderness and sacrifice to Adonai our God—just as He tells us.”
+8:24 Pharaoh said, “I will let you go, so that you may sacrifice to Adonai your God in the wilderness. Only you must not go very far away. Pray for me.”
+8:25 So Moses said, “See, I am leaving you, and I will pray to Adonai that the swarm of flies will depart from Pharaoh, his servants and from his people tomorrow. However, let Pharaoh no longer deal deceitfully by not letting the people go sacrifice to Adonai.”
+8:26 Then Moses went out from Pharaoh and prayed to Adonai.
+8:27 Adonai acted according to the word of Moses, and removed the swarm of flies from Pharaoh, from his servants and from his people. Nothing remained.
 8:28 But Pharaoh hardened his heart this time also, and did not let the people go.
-8:29
-8:30
-8:31
-8:32
-9:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-9:2 For if you refuse to let them go, and hold them still, 
-9:3 behold, the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
-9:4 But </span><span class="it"><span class="sc"><span class="content">Adonai
-9:5 Also </span><span class="it"><span class="sc"><span class="content">Adonai
-9:6 Then the next day, </span><span class="it"><span class="sc"><span class="content">Adonai
-9:7 When Pharaoh inquired, there was not so much as one of the cattle of </span><span class="it"><span class="content">Bnei-Yisrael
-9:8 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-9:9 It will become fine dust over all the land of Egypt, and will become boils erupting with sores on both men and animals throughout all the land.” 
-9:10 So they took soot from the furnace and stood before Pharaoh. When Moses threw it heavenward, it became boils erupting with sores on both men and animals. 
-9:11 Moreover, the magicians could not stand before Moses because of the boils, because they were on the magicians, as on all the Egyptians. 
-9:12 But </span><span class="it"><span class="sc"><span class="content">Adonai
-9:13 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-9:14 For this time I will send all My plagues to your heart, and on your servants and your people, so that you may know that there is none like Me in all the earth. 
-9:15 Surely by now I could have stretched out My hand and struck you and your people with a plague that would have wiped you off the earth. 
-9:16 However, I have let you stand for this reason: to show you My power, and that My Name might be proclaimed throughout all the earth. 
-9:17 Yet still you exalt yourself over My people, by not letting them go. 
-9:18 Behold, tomorrow at about this time, I will cause it to rain a very severe hailstorm, the likes of which has not occurred in Egypt since the day it was founded until now. 
-9:19 Send word, shelter your cattle and all that you have in the field. For every person and animal found in the field and not brought home, when the hail comes down on them, they will die.’” 
-9:20 Whoever feared the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-9:21 but whoever disregarded the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-9:22 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-9:23 So Moses stretched out his staff toward heaven, and </span><span class="it"><span class="sc"><span class="content">Adonai
-9:24 The hail fell very severely, with fire flashing up amidst the hail, the likes of which had not occurred in all the land of Egypt since it became a nation. 
-9:25 The hail struck down everything that was in the fields, both men and animals, all throughout the land of Egypt. It also struck every plant of the field and broke down every tree. 
-9:26 Only in the land of Goshen, where </span><span class="it"><span class="content">Bnei-Yisrael
-9:27 So Pharaoh sent, called for Moses and Aaron and said to them, “I have sinned this time. </span><span class="it"><span class="sc"><span class="content">Adonai
-9:28 Pray to </span><span class="it"><span class="sc"><span class="content">Adonai
-9:29 Moses said to him, “As soon as I am gone out of the city, I will stretch out my hands to </span><span class="it"><span class="sc"><span class="content">Adonai
-9:30 But as for you and your servants, I know that you do not yet fear </span><span class="it"><span class="sc"><span class="content">Adonai
-9:31 (The flax and the barley were destroyed, because the barley was in the ear, and the flax was in bloom. 
-9:32 But the wheat and the spelt were not destroyed, because they ripen later.) 
-9:33 Moses went out of the city, away from Pharaoh, and stretched out his hands to </span><span class="it"><span class="sc"><span class="content">Adonai
-9:34 But when Pharaoh saw that the rain, the hail and the thunder had ceased, he increased his sin and hardened his heart, both he and his servants. 
-9:35 So Pharaoh’s heart was hardened and he did not let </span><span class="it"><span class="content">Bnei-Yisrael
-10:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-10:2 and so you may tell your son and your grandchildren what I have done in Egypt, as well as My signs that I did among them, so you may know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-10:3 So Moses and Aaron went to Pharaoh and said to him, “This is what </span><span class="it"><span class="sc"><span class="content">Adonai
-10:4 Or else, if you refuse to let My people go, behold, tomorrow I will bring locusts into your borders. 
-10:5 Then they will cover the face of the earth, so that no one will be able to see the ground. They will eat the remainder of what escaped—whatever is left from the hail—and eat every tree that grows for you out in the field. 
-10:6 Your houses will be filled, as will the houses of all your servants and the houses of all the Egyptians, as neither your fathers nor your grandfathers have seen since the day they were on the earth until today!” Then he turned and went out from Pharaoh. 
-10:7 Pharaoh’s servants said to him, “How long will this man be a snare to us? Send the men, so they may serve </span><span class="it"><span class="sc"><span class="content">Adonai
-10:8 So Moses and Aaron were brought to Pharaoh again. “Go, serve </span><span class="it"><span class="sc"><span class="content">Adonai
-10:9 Moses answered, “We will go with our young and our elderly, our sons and our daughters. We will go with our flocks and our herds—for we must have </span><span class="it"><span class="sc"><span class="content">Adonai
-10:10 But he said to them, “So may </span><span class="it"><span class="sc"><span class="content">Adonai
-10:11 Not so! Go now—the men—and serve </span><span class="it"><span class="sc"><span class="content">Adonai
-10:12 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-10:13 So Moses stretched out his staff over the land of Egypt, and </span><span class="it"><span class="sc"><span class="content">Adonai
-10:14 The locusts came up over all the land of Egypt and rested on the entire territory of Egypt. So dense—there was nothing like it before them, nor will there ever be again. 
-10:15 For they covered the face of the whole earth so that the land was darkened, and they ate every plant in the land and all the fruit from the trees that the hail had left. No green thing remained, not a tree or a plant of the field throughout all the land of Egypt. 
-10:16 Then Pharaoh quickly called for Moses and Aaron and said, “I have sinned against </span><span class="it"><span class="sc"><span class="content">Adonai
-10:17 Now forgive my sin, only this once, please! So pray to </span><span class="it"><span class="sc"><span class="content">Adonai
-10:18 So he went out from Pharaoh and prayed to </span><span class="it"><span class="sc"><span class="content">Adonai
-10:19 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-10:20 But </span><span class="it"><span class="sc"><span class="content">Adonai
-10:21 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-10:22 So Moses stretched out his hand toward heaven, and there was a thick darkness in all the land of Egypt for three days. 
-10:23 They could not see one another, nor could anyone rise from his place for three days. Yet all </span><span class="it"><span class="content">Bnei-Yisrael
-10:24 Pharaoh called Moses and said, “Go, serve </span><span class="it"><span class="sc"><span class="content">Adonai
-10:25 But Moses said, “You must also put sacrifices and burnt offerings into our hand, then we will do it for </span><span class="it"><span class="sc"><span class="content">Adonai
-10:26 Our cattle must also go with us—not a hoof may be left behind. We must take from them to serve </span><span class="it"><span class="sc"><span class="content">Adonai
-10:27 But </span><span class="it"><span class="sc"><span class="content">Adonai
-10:28 So Pharaoh said to him, “Go away from me! Take heed never to see my face again, because on the day you do, you will die!” 
-10:29 “Right!” Moses said. “You said it! May I never see your face again!”
+9:1 Then Adonai said to Moses, “Go in to Pharaoh, and tell him: This is what Adonai, the God of the Hebrews, says: ‘Let My people go, so they may serve Me.’
+9:2 For if you refuse to let them go, and hold them still,
+9:3 behold, the hand of Adonai will fall upon your livestock that are in the field—on the horses, donkeys, camels, herds and flocks. There will be a crushing plague.
+9:4 But Adonai will make a distinction between the cattle of Israel and the cattle of Egypt, and nothing will die that belongs to Bnei-Yisrael.”
+9:5 Also Adonai set a specific time, saying, “Tomorrow Adonai will do this thing in the land.”
+9:6 Then the next day, Adonai did the deed. All the cattle of Egypt died, yet of the cattle of Bnei-Yisrael, not one died.
+9:7 When Pharaoh inquired, there was not so much as one of the cattle of Bnei-Yisrael dead. But the heart of Pharaoh was stubborn, and he did not let the people go.
+9:8 Then Adonai said to Moses and Aaron, “Take handfuls of soot from the furnace, and have Moses throw it heavenward in the sight of Pharaoh.
+9:9 It will become fine dust over all the land of Egypt, and will become boils erupting with sores on both men and animals throughout all the land.”
+9:10 So they took soot from the furnace and stood before Pharaoh. When Moses threw it heavenward, it became boils erupting with sores on both men and animals.
+9:11 Moreover, the magicians could not stand before Moses because of the boils, because they were on the magicians, as on all the Egyptians.
+9:12 But Adonai hardened the heart of Pharaoh, so he did not listen to them—just as Adonai had said to Moses.
+9:13 Then Adonai said to Moses, “Rise up early in the morning, stand before Pharaoh and say to him: This is what Adonai the God of the Hebrews says: ‘Let My people go, so they may serve Me.
+9:14 For this time I will send all My plagues to your heart, and on your servants and your people, so that you may know that there is none like Me in all the earth.
+9:15 Surely by now I could have stretched out My hand and struck you and your people with a plague that would have wiped you off the earth.
+9:16 However, I have let you stand for this reason: to show you My power, and that My Name might be proclaimed throughout all the earth.
+9:17 Yet still you exalt yourself over My people, by not letting them go.
+9:18 Behold, tomorrow at about this time, I will cause it to rain a very severe hailstorm, the likes of which has not occurred in Egypt since the day it was founded until now.
+9:19 Send word, shelter your cattle and all that you have in the field. For every person and animal found in the field and not brought home, when the hail comes down on them, they will die.’”
+9:20 Whoever feared the word of Adonai among the servants of Pharaoh had his own servants and cattle flee into the houses,
+9:21 but whoever disregarded the word of Adonai left his servants and cattle in the field.
+9:22 Then Adonai said to Moses, “Stretch out your hand toward heaven and let there be hail in all the land of Egypt, on people, animals and every plant of the field, throughout all the land.”
+9:23 So Moses stretched out his staff toward heaven, and Adonai sent thunder and hail. Fire came down on the earth, as Adonai rained hail on the land of Egypt.
+9:24 The hail fell very severely, with fire flashing up amidst the hail, the likes of which had not occurred in all the land of Egypt since it became a nation.
+9:25 The hail struck down everything that was in the fields, both men and animals, all throughout the land of Egypt. It also struck every plant of the field and broke down every tree.
+9:26 Only in the land of Goshen, where Bnei-Yisrael were, was there no hail.
+9:27 So Pharaoh sent, called for Moses and Aaron and said to them, “I have sinned this time. Adonai is righteous, while I and my people are wicked.
+9:28 Pray to Adonai—there has been enough of God’s thunders and hail! I will let you go. You don’t have to stay any longer.”
+9:29 Moses said to him, “As soon as I am gone out of the city, I will stretch out my hands to Adonai. The thunder will cease and there will be no more hail—so you may know that the earth is Adonai’s.
+9:30 But as for you and your servants, I know that you do not yet fear Adonai Elohim.”
+9:31 (The flax and the barley were destroyed, because the barley was in the ear, and the flax was in bloom.
+9:32 But the wheat and the spelt were not destroyed, because they ripen later.)
+9:33 Moses went out of the city, away from Pharaoh, and stretched out his hands to Adonai. Then the thunder and hail ceased, and rain no longer poured down on the earth.
+9:34 But when Pharaoh saw that the rain, the hail and the thunder had ceased, he increased his sin and hardened his heart, both he and his servants.
+9:35 So Pharaoh’s heart was hardened and he did not let Bnei-Yisrael go—just as Adonai had said by Moses’ hand.
+10:1 Then Adonai said to Moses, “Go to Pharaoh, because I have hardened his heart and the heart of his servants, so that I might show these My signs in their midst,
+10:2 and so you may tell your son and your grandchildren what I have done in Egypt, as well as My signs that I did among them, so you may know that I am Adonai.”
+10:3 So Moses and Aaron went to Pharaoh and said to him, “This is what Adonai, the God of the Hebrews, says: How long would you refuse to humble yourself before Me? Let My people go, so they may serve Me.
+10:4 Or else, if you refuse to let My people go, behold, tomorrow I will bring locusts into your borders.
+10:5 Then they will cover the face of the earth, so that no one will be able to see the ground. They will eat the remainder of what escaped—whatever is left from the hail—and eat every tree that grows for you out in the field.
+10:6 Your houses will be filled, as will the houses of all your servants and the houses of all the Egyptians, as neither your fathers nor your grandfathers have seen since the day they were on the earth until today!” Then he turned and went out from Pharaoh.
+10:7 Pharaoh’s servants said to him, “How long will this man be a snare to us? Send the men, so they may serve Adonai their God. Don’t you realize yet that Egypt is being destroyed?”
+10:8 So Moses and Aaron were brought to Pharaoh again. “Go, serve Adonai your God,” he said. “But who will be going?”
+10:9 Moses answered, “We will go with our young and our elderly, our sons and our daughters. We will go with our flocks and our herds—for we must have Adonai’s feast for Him.”
+10:10 But he said to them, “So may Adonai be with you, if I ever do let you go, with your little ones. See clearly now! Evil is in your face.
+10:11 Not so! Go now—the men—and serve Adonai! For that’s what you were seeking.” Then they were driven out from Pharaoh’s presence.
+10:12 Then Adonai said to Moses, “Stretch out your hand over the land of Egypt for the locusts, so they may come up onto Egypt and eat every plant in the land—everything the hail has left.”
+10:13 So Moses stretched out his staff over the land of Egypt, and Adonai brought an east wind over the land all that day and all night. When it was morning, the east wind brought the locusts.
+10:14 The locusts came up over all the land of Egypt and rested on the entire territory of Egypt. So dense—there was nothing like it before them, nor will there ever be again.
+10:15 For they covered the face of the whole earth so that the land was darkened, and they ate every plant in the land and all the fruit from the trees that the hail had left. No green thing remained, not a tree or a plant of the field throughout all the land of Egypt.
+10:16 Then Pharaoh quickly called for Moses and Aaron and said, “I have sinned against Adonai your God and against you.
+10:17 Now forgive my sin, only this once, please! So pray to Adonai your God—just so He would take this death away from me!”
+10:18 So he went out from Pharaoh and prayed to Adonai.
+10:19 Then Adonai turned the wind from the west, very strong, and it carried off the locusts and drove them into the Sea of Reeds. Not one locust remained in all the territory of Egypt.
+10:20 But Adonai hardened Pharaoh’s heart, and he did not let Bnei-Yisrael go.
+10:21 Then Adonai said to Moses, “Stretch out your hand toward heaven, and there will be darkness over the land of Egypt—a darkness that may be felt.”
+10:22 So Moses stretched out his hand toward heaven, and there was a thick darkness in all the land of Egypt for three days.
+10:23 They could not see one another, nor could anyone rise from his place for three days. Yet all Bnei-Yisrael had light within their dwellings.
+10:24 Pharaoh called Moses and said, “Go, serve Adonai. Only let your flocks and your herds remain. Your little ones may also go with you.”
+10:25 But Moses said, “You must also put sacrifices and burnt offerings into our hand, then we will do it for Adonai our God.
+10:26 Our cattle must also go with us—not a hoof may be left behind. We must take from them to serve Adonai our God. We ourselves will not know how we will serve Adonai until we ­arrive there.”
+10:27 But Adonai hardened Pharaoh’s heart, and he was unwilling to let them go.
+10:28 So Pharaoh said to him, “Go away from me! Take heed never to see my face again, because on the day you do, you will die!”
+10:29 “Right!” Moses said. “You said it! May I never see your face again!
 11:1 Now </span><span class="it"><span class="sc"><span class="content">Adonai
 11:2 Speak now into the ears of the people, and let every man ask from his neighbor and every woman from her neighbor for articles of silver and gold.” 
 11:3  gave the people favor in the eyes of the Egyptians. Indeed, the man Moses was very great in the land of Egypt, in the eyes of Pharaoh’s servants and in the eyes of the people. 
