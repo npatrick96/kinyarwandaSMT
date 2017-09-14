@@ -272,120 +272,120 @@
 10:27 But Adonai hardened Pharaoh’s heart, and he was unwilling to let them go.
 10:28 So Pharaoh said to him, “Go away from me! Take heed never to see my face again, because on the day you do, you will die!”
 10:29 “Right!” Moses said. “You said it! May I never see your face again!
-11:1 Now </span><span class="it"><span class="sc"><span class="content">Adonai
+11:1 Now Adonai had said to Moses, “I will bring one more plague upon Pharaoh and on Egypt. After that, he will let you go from here. When he lets you go, he will surely thrust you out altogether from here.
 11:2 Speak now into the ears of the people, and let every man ask from his neighbor and every woman from her neighbor for articles of silver and gold.” 
 11:3  gave the people favor in the eyes of the Egyptians. Indeed, the man Moses was very great in the land of Egypt, in the eyes of Pharaoh’s servants and in the eyes of the people. 
-11:4 So Moses said, “This is what </span><span class="it"><span class="sc"><span class="content">Adonai
+11:4 So Moses said, “This is what Adonai says: At around midnight I will go out into the midst of Egypt,
 11:5 and all the firstborn in the land of Egypt will die—from the firstborn of Pharaoh sitting on his throne to the firstborn of the maidservant behind the mill, along with all the firstborn cattle. 
 11:6 There will be a great cry throughout all the land of Egypt, the likes of which has never been before nor will ever be again. 
-11:7 But not so much as a dog will growl against any of </span><span class="it"><span class="content">Bnei-Yisrael
+11:7 But not so much as a dog will growl against any of Bnei-Yisrael, neither man nor beast—so that you may know that Adonai makes a distinction between the Egyptians and Israel.
 11:8 All these servants of yours will come down to me and bow down to me, saying, ‘Get out, you and all the people who follow you!’ After that, I will go.” Then he went out from Pharaoh hot with anger. 
 11:9  had said to Moses, “Pharaoh will not listen to you, so that My wonders may be multiplied in the land of Egypt.” 
-11:10 So Moses and Aaron did all these wonders before Pharaoh, yet </span><span class="it"><span class="sc"><span class="content">Adonai
-12:1 Now </span><span class="it"><span class="sc"><span class="content">Adonai
+11:10 So Moses and Aaron did all these wonders before Pharaoh, yet Adonai hardened Pharaoh’s heart, so he did not let Bnei-Yisrael go out of his land.
+12:1 Now Adonai spoke to Moses and Aaron in the land of Egypt saying,
 12:2 “This month will mark the beginning of months for you; it is to be the first month of the year for you. 
 12:3 Tell all the congregation of Israel that on the tenth day of this month, each man is to take a lamb for his family one lamb for the household. 
 12:4 But if the household is too small for a lamb, then he and his nearest neighbor are to take one according to the number of the people. According to each person eating, you are to make your count for the lamb. 
 12:5 Your lamb is to be without blemish, a year old male. You may take it from the sheep or from the goats. 
 12:6 You must watch over it until the fourteenth day of the same month. Then the whole assembly of the congregation of Israel is to slaughter it at twilight. 
 12:7 They are to take the blood and put it on the two doorposts and on the crossbeam of the houses where they will eat it. 
-12:8 They are to eat the meat that night, roasted over a fire. With </span><span class="it"><span class="content">matzot
+12:8 They are to eat the meat that night, roasted over a fire. With matzot and bitter herbs they are to eat it.
 12:9 Do not eat any of it raw or boiled with water, but only roasted with fire—its head with its legs and its innards. 
 12:10 So let nothing of it remain until the morning. Whatever remains until the morning you are to burn with fire. 
-12:11 Also you are to eat it this way: with your loins girded, your shoes on your feet and your staff in your hand. You are to eat it in haste. It is </span><span class="it"><span class="sc"><span class="content">Adonai
-12:12 “For I will go through the land of Egypt on that night and strike down every firstborn, both men and animals, and I will execute judgments against all the gods of Egypt. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+12:11 Also you are to eat it this way: with your loins girded, your shoes on your feet and your staff in your hand. You are to eat it in haste. It is Adonai’s Passover.
+12:12 “For I will go through the land of Egypt on that night and strike down every firstborn, both men and animals, and I will execute judgments against all the gods of Egypt. I am Adonai.
 12:13 The blood will be a sign for you on the houses where you are. When I see the blood, I will pass over you. So there will be no plague among you to destroy you when I strike the land of Egypt. 
-12:14 “This day is to be a memorial for you. You are to keep it as a feast to </span><span class="it"><span class="sc"><span class="content">Adonai
-12:15 For seven days you are to eat </span><span class="it"><span class="content">matzot
+12:14 “This day is to be a memorial for you. You are to keep it as a feast to Adonai. Throughout your generations you are to keep it as an eternal ordinance.
+12:15 For seven days you are to eat matzot , but on the first day you must remove hametz from your houses, for whoever eats hametz from the first day until the seventh day, that soul will be cut off from Israel.
 12:16 The first day is to be a holy assembly for you as well as the seventh day. No manner of work is to be done on those days, except what is to be eaten by every person—that alone may be prepared by you. 
 12:17 So you are to observe the Feast of Matzot, for on this very same day have I brought your ranks out of the land of Egypt. Therefore you are to observe this day throughout your generations as an eternal ordinance. 
-12:18 During the first month in the evening of the fourteenth day of the month, you are to eat </span><span class="it"><span class="content">matzot
-12:19 For seven days no </span><span class="it"><span class="content">hametz
-12:20 You are to eat no </span><span class="it"><span class="content">hametz
+12:18 During the first month in the evening of the fourteenth day of the month, you are to eat matzot , until the evening of the twenty-first day of the month
+12:19 For seven days no hametz is to be found in your houses, for whoever eats hametz, that soul will be cut off from the congregation of Israel, whether he is an outsider or one who is born in the land.
+12:20 You are to eat no hametz; in all your houses you are to eat matzot .”
 12:21 Then Moses called for all the elders of Israel and said to them, “Go, select lambs for your families and slaughter the Passover lamb. 
 12:22 You are to take a bundle of hyssop, dip it in the blood that is in the basin, and apply it to the crossbeam and two doorposts with the blood from the basin. None of you may go out the door of his house until morning. 
-12:23  will pass over that door, and will not allow the destroyer to come into your houses to strike you down. 
-12:24 Also you are to observe this event as an eternal ordinance, for you and your children. 
-12:25 “When you come into the land which </span><span class="it"><span class="sc"><span class="content">Adonai
+12:23 Adonai will pass through to strike down the Egyptians, but when He sees the blood on the crossbeam and the two doorposts, Adonai will pass over that door, and will not allow the destroyer to come into your houses to strike you down. 
+12:24 Also you are to observe this event as an eternal ordinance, for you and your children.
+12:25 “When you come into the land which Adonai will give you as He has promised, you are to keep this ceremony.
 12:26  Now when it happens that your children ask you, ‘What does this ceremony mean to you?’ 
-12:27  You are to say, ‘It is the sacrifice of </span><span class="it"><span class="sc"><span class="content">Adonai
-12:28 Then </span><span class="it"><span class="content">Bnei-Yisrael
-12:29 So it came about at midnight that </span><span class="it"><span class="sc"><span class="content">Adonai
+12:27  You are to say, ‘It is the sacrifice of Adonai’s Passover, because He passed over the houses of Bnei-Yisrael in Egypt, when He struck down the Egyptians, but spared our households.’” So the people bowed their heads and worshipped.
+12:28 Then Bnei-Yisrael went and did it. They did just as Adonai had commanded Moses and Aaron.
+12:29 So it came about at midnight that Adonai struck down all the firstborn in the land of Egypt, from the firstborn of Pharaoh sitting on his throne to the firstborn of the captive who was in the dungeon, and all the firstborn cattle.
 12:30 Then Pharaoh rose up in the night, he and all his servants and all the Egyptians, and there was loud wailing in Egypt. For there was not a house where someone was not dead. 
-12:31 So he called for Moses and Aaron at night and said, “Rise up, go out from my people, both you and </span><span class="it"><span class="content">Bnei-Yisrael
+12:31 So he called for Moses and Aaron at night and said, “Rise up, go out from my people, both you and </span><span class="it"><span class="content">Bnei-Yisrael, go, serve Adonai as you have said.
 12:32 Take your flocks and your herds, as you said, and be gone! But bless me, too.” 
 12:33 Now the Egyptians urged the people, sending them out of the land quickly, for they thought, “We will all be dead!” 
 12:34 So the people took their dough before it was leavened, with their kneading bowls bound up in their clothes on their shoulders. 
-12:35 So </span><span class="it"><span class="content">Bnei-Yisrael
-12:36  gave the people favor in the eyes of the Egyptians and let them have what they asked for. So they plundered the Egyptians. 
-12:37 Then </span><span class="it"><span class="content">Bnei-Yisrael
+12:35 So Bnei-Yisrael acted ­according to the word of Moses. They asked the Egyptians for articles of silver and gold, and for clothing.
+12:36 Adonai gave the people favor in the eyes of the Egyptians and let them have what they asked for. So they plundered the Egyptians. 
+12:37 Then Bnei-Yisrael journeyed from Rameses to Succoth, about 600,000 men on foot, as well as children.
 12:38 Also a mixed multitude went up with them, along with the flocks, herds and heavy livestock. 
-12:39 They had baked </span><span class="it"><span class="content">matzot
-12:40 Now the time that </span><span class="it"><span class="content">Bnei-Yisrael
-12:41 So it happened at the end of 430 years, to the very day, that all the armies of </span><span class="it"><span class="sc"><span class="content">Adonai
-12:42 It was a night of watching for </span><span class="it"><span class="sc"><span class="content">Adonai
-12:43 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+12:39 They had baked matzot cakes from the dough that they brought out of Egypt. It had no hametz, because they were thrust out of Egypt and could not delay, so they had not made provisions for themselves.
+12:40 Now the time that Bnei-Yisrael lived in Egypt was 430 years.
+12:41 So it happened at the end of 430 years, to the very day, that all the armies of Adonai went out from the land of Egypt.
+12:42 It was a night of watching for Adonai to bring them out of the land of Egypt. This same night is a night of vigil for Adonai, for all Bnei-Yisrael throughout their generations.
+12:43 Then Adonai said to Moses and Aaron, “This is the ordinance of the Passover. No foreigner may eat it,
 12:44 but every man’s servant that is bought for money, after you have circumcised him, may eat it. 
 12:45 Nor should a visitor or hired servant eat it. 
 12:46 It is to be eaten inside a single house. You are not to carry the meat out of the house, nor are you to break any of its bones. 
 12:47 All the congregation of Israel must keep it. 
-12:48 But if an outsider dwells with you, who would keep the Passover for </span><span class="it"><span class="sc"><span class="content">Adonai
-12:49 The same </span><span class="it"><span class="content">Torah
-12:50 So all </span><span class="it"><span class="content">Bnei-Yisrael
-12:51 It was on that very day that </span><span class="it"><span class="sc"><span class="content">Adonai
-13:1  spoke to Moses saying, 
-13:2 “Consecrate to Me all the firstborn, from every womb of </span><span class="it"><span class="content">Bnei-Yisrael
-13:3 Moses said to the people, “Remember this day, on which you came out from Egypt, out of the house of bondage. For by a strong hand </span><span class="it"><span class="sc"><span class="content">Adonai
-13:4 This day, in the month of Aviv, you are going out. 
-13:5 When </span><span class="it"><span class="sc"><span class="content">Adonai
-13:6 For seven days you are to eat </span><span class="it"><span class="content">matzah
-13:7 Matzot is to be eaten throughout the seven days, and no </span><span class="it"><span class="content">hametz
-13:8 “You are to tell your son on that day saying, ‘It is because of what </span><span class="it"><span class="sc"><span class="content">Adonai
-13:9 So it will be like a sign on your hand and a reminder between your eyes, so that the </span><span class="it"><span class="content">Torah
-13:10 You are to keep this ordinance as a </span><span class="it"><span class="content">moed
-13:11 “Now when </span><span class="it"><span class="sc"><span class="content">Adonai
-13:12 you are to set apart to </span><span class="it"><span class="sc"><span class="content">Adonai
-13:13 Every firstborn donkey you are to redeem with a lamb, and if you do not redeem it, then you are to break its neck. But you are to redeem every firstborn male among your sons. 
-13:14 “So when your son asks you in times to come, ‘What is this?’ say to him, ‘By a strong hand </span><span class="it"><span class="sc"><span class="content">Adonai
-13:15 and when Pharaoh refused to let us go, </span><span class="it"><span class="sc"><span class="content">Adonai
-13:16 So it will be like a sign on your hand and like frontlets between your eyes, for by a strong hand </span><span class="it"><span class="sc"><span class="content">Adonai
-13:17 After Pharaoh had let the people go, God did not lead them along the road to the land of the Philistines, although that was nearby, for God said, “The people might change their minds if they see war and return to Egypt.” 
-13:18 So God led the people around by the way of the wilderness to the Sea of Reeds, and </span><span class="it"><span class="content">Bnei-Yisrael
-13:19 Moses also took the bones of Joseph with him, for he had made </span><span class="it"><span class="content">Bnei-Yisrael
-13:20 So they journeyed from Succoth and encamped in Etham, on the edge of the wilderness. 
-13:21  went before them in a pillar of cloud by day to lead the way and in a pillar of fire by night to give them light. So they could travel both day and night. 
+12:48 But if an outsider dwells with you, who would keep the Passover for Adonai, all his males must be circumcised. Then let him draw near and keep it. He will be like one who is native to the land. But no uncircumcised person may eat from it.
+12:49 The same Torah applies to the native as well as the outsider who dwells among you.”
+12:50 So all Bnei-Yisrael did so. They did just as Adonai commanded Moses and Aaron.
+12:51 It was on that very day that Adonai brought Bnei-Yisrael out of the land of Egypt as armies.
+13:1 Adonai spoke to Moses saying,
+13:2 “Consecrate to Me all the firstborn, from every womb of Bnei-Yisrael, both men and animals—this is Mine.”
+13:3 Moses said to the people, “Remember this day, on which you came out from Egypt, out of the house of bondage. For by a strong hand Adonai brought you out from this place. No hametz may be eaten.
+13:4 This day, in the month of Aviv, you are going out.
+13:5 When Adonai brings you into the land of the Canaanites, the Hittites, the Amorites, the Hivites and the Jebusites, which He swore to your fathers to give you, a land flowing with milk and honey, you are to observe this service during this month.
+13:6 For seven days you are to eat matzah , and the seventh day is to be a feast to Adonai.
+13:7 Matzot is to be eaten throughout the seven days, and no hametz is to be seen among you, nor within any of your borders.
+13:8 “You are to tell your son on that day saying, ‘It is because of what Adonai did for me when I came out of Egypt.
+13:9 So it will be like a sign on your hand and a reminder between your eyes, so that the Torah of Adonai may be in your mouth. For with a strong hand Adonai has brought you out of Egypt.
+13:10 You are to keep this ordinance as a moed from year to year.
+13:11 “Now when Adonai brings you into the land of the Canaanite, as He swore to you and your fathers and gives it you,
+13:12 you are to set apart to Adonai every firstborn from the womb, and every firstborn male animal you have will be Adonai’s.
+13:13 Every firstborn donkey you are to redeem with a lamb, and if you do not redeem it, then you are to break its neck. But you are to redeem every firstborn male among your sons.
+13:14 “So when your son asks you in times to come, ‘What is this?’ say to him, ‘By a strong hand Adonai brought us out from Egypt, the house of bondage,
+13:15 and when Pharaoh refused to let us go, Adonai slew all the firstborn in the land of Egypt, both men and animals. So I sacrifice to Adonai all firstborn males, but I redeem the firstborn of my sons.’
+13:16 So it will be like a sign on your hand and like frontlets between your eyes, for by a strong hand Adonai brought us out of Egypt.”
+13:17 After Pharaoh had let the people go, God did not lead them along the road to the land of the Philistines, although that was nearby, for God said, “The people might change their minds if they see war and return to Egypt.”
+13:18 So God led the people around by the way of the wilderness to the Sea of Reeds, and Bnei-Yisrael went up out of the land of Egypt armed.
+13:19 Moses also took the bones of Joseph with him, for he had made Bnei-Yisrael swear an oath saying, “God will surely remember you, and then you are to carry my bones away with you.”
+13:20 So they journeyed from Succoth and encamped in Etham, on the edge of the wilderness.
+13:21 Adonai went before them in a pillar of cloud by day to lead the way and in a pillar of fire by night to give them light. So they could travel both day and night.
 13:22 The pillar of cloud by day and the pillar of fire by night never departed from the people.
-14:1  spoke to Moses saying, 
-14:2 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
-14:3 Pharaoh will say concerning </span><span class="it"><span class="content">Bnei-Yisrael
-14:4 I will harden Pharaoh’s heart, so he will follow after them. Then I will be glorified over Pharaoh along with all his army, and the Egyptians will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-14:5 When the king of Egypt was told that the people had fled, Pharaoh and his servants had a change of heart toward the people, and they said, “What is this we have done, that we let Israel go from serving us?” 
-14:6 So he prepared his chariots and took his people with him. 
-14:7 He took 600 of the finest chariots, along with all other chariots of Egypt, and captains over them. 
-14:8  went out with a high hand. 
-14:9 But the Egyptians pursued them with all the horses and chariots of Pharaoh, as well as his charioteers and his army, and overtook them as they were encamped by the sea, beside Pi-hahiroth opposite Baal-zephon. 
-14:10 When Pharaoh drew near, </span><span class="it"><span class="content">Bnei-Yisrael
-14:11 They said to Moses, “Have you taken us away to die in the wilderness because there were no graves in Egypt? Why have you dealt this way with us, to bring us out of Egypt? 
-14:12 Did we not say to you in Egypt, ‘Let us alone, so that we may serve the Egyptians?’ It was better for us to serve the Egyptians than to die in the wilderness!” 
-14:13 But Moses said to the people, “Don’t be afraid! Stand still, and see the salvation of </span><span class="it"><span class="sc"><span class="content">Adonai
-14:14  will fight for you, while you hold your peace.” 
-14:15 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-14:16 Lift up your staff, stretch out your hand over the sea, and divide it. Then </span><span class="it"><span class="content">Bnei-Yisrael
-14:17 Then I, behold, I will harden the hearts of the Egyptians, and they will go in after them, so that I will be glorified over Pharaoh and all his army, his chariots and his horsemen. 
-14:18 Then the Egyptians will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-14:19 Then the angel of God, who went before the camp of Israel, moved and went behind them. Also the pillar of cloud moved from in front and stood behind them, 
-14:20 and so came between the camp of Egypt and the camp of Israel—there was the cloud and the darkness over here, yet it gave light by night over there—neither one came near the other all night long. 
-14:21 Then Moses stretched out his hand over the sea. </span><span class="it"><span class="sc"><span class="content">Adonai
-14:22 Then </span><span class="it"><span class="content">Bnei-Yisrael
-14:23 But the Egyptians pursued and went in after them into the midst of the sea, all Pharaoh’s horses, his chariots and his horsemen. 
-14:24 Now it came about during the morning watch that </span><span class="it"><span class="sc"><span class="content">Adonai
-14:25 He took off their chariot wheels and caused them to drive heavily, so that the Egyptians said, “Get away from the presence of Israel! For </span><span class="it"><span class="sc"><span class="content">Adonai
-14:26 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-14:27 So Moses stretched his hand out over the waters, and the sea returned to its strength at the break of dawn. The Egyptians were fleeing from it, but </span><span class="it"><span class="sc"><span class="content">Adonai
-14:28 The waters returned and covered the chariots, the horsemen and the entire army of Pharaoh that went after them into the sea. Not one of them remained. 
-14:29 But </span><span class="it"><span class="content">Bnei-Yisrael
-14:30 So </span><span class="it"><span class="sc"><span class="content">Adonai
-14:31 When Israel saw the great work that </span><span class="it"><span class="sc"><span class="content">Adonai
+14:1 Adonai spoke to Moses saying,
+14:2 “Speak to Bnei-Yisrael, so that they turn back and encamp before Pi-hahiroth, between Migdol and the sea. You are to camp by the sea, opposite Baal-zephon.
+14:3 Pharaoh will say concerning Bnei-Yisrael, ‘They are wandering aimlessly in the land—the wilderness has shut them in!’
+14:4 I will harden Pharaoh’s heart, so he will follow after them. Then I will be glorified over Pharaoh along with all his army, and the Egyptians will know that I am Adonai.” So they did so.
+14:5 When the king of Egypt was told that the people had fled, Pharaoh and his servants had a change of heart toward the people, and they said, “What is this we have done, that we let Israel go from serving us?”
+14:6 So he prepared his chariots and took his people with him.
+14:7 He took 600 of the finest chariots, along with all other chariots of Egypt, and captains over them.
+14:8 Adonai hardened the heart of Pharaoh king of Egypt, so he pursued Bnei-Yisrael, for Bnei-Yisrael went out with a high hand.
+14:9 But the Egyptians pursued them with all the horses and chariots of Pharaoh, as well as his charioteers and his army, and overtook them as they were encamped by the sea, beside Pi-hahiroth opposite Baal-zephon.
+14:10 When Pharaoh drew near, Bnei-Yisrael lifted up their eyes, and behold, the Egyptians were marching after them! So they were terrified, and Bnei-Yisrael cried out to Adonai.
+14:11 They said to Moses, “Have you taken us away to die in the wilderness because there were no graves in Egypt? Why have you dealt this way with us, to bring us out of Egypt?
+14:12 Did we not say to you in Egypt, ‘Let us alone, so that we may serve the Egyptians?’ It was better for us to serve the Egyptians than to die in the wilderness!”
+14:13 But Moses said to the people, “Don’t be afraid! Stand still, and see the salvation of Adonai, which He will perform for you today. You have seen the Egyptians today, but you will never see them again, ever!
+14:14 Adonai will fight for you, while you hold your peace.”
+14:15 Then Adonai said to Moses, “Why are you crying to Me? Tell Bnei-Yisrael to go forward.
+14:16 Lift up your staff, stretch out your hand over the sea, and divide it. Then Bnei-Yisrael will go into the midst of the sea on dry ground.
+14:17 Then I, behold, I will harden the hearts of the Egyptians, and they will go in after them, so that I will be glorified over Pharaoh and all his army, his chariots and his horsemen.
+14:18 Then the Egyptians will know that I am Adonai, when I have been glorified over Pharaoh, his chariots and his horsemen.”
+14:19 Then the angel of God, who went before the camp of Israel, moved and went behind them. Also the pillar of cloud moved from in front and stood behind them,
+14:20 and so came between the camp of Egypt and the camp of Israel—there was the cloud and the darkness over here, yet it gave light by night over there—neither one came near the other all night long.
+14:21 Then Moses stretched out his hand over the sea. Adonai drove the sea back with a strong east wind throughout the night and turned the sea into dry land. So the waters were divided.
+14:22 Then Bnei-Yisrael went into the midst of the sea on the dry ground, while the waters were like walls to them on their right and on their left.
+14:23 But the Egyptians pursued and went in after them into the midst of the sea, all Pharaoh’s horses, his chariots and his horsemen.
+14:24 Now it came about during the morning watch that Adonai looked at the army of the Egyptians through the pillar of fire and cloud and caused the army of the Egyptians to panic.
+14:25 He took off their chariot wheels and caused them to drive heavily, so that the Egyptians said, “Get away from the presence of Israel! For Adonai fights for them against the Egyptians!”
+14:26 Then Adonai said to Moses, “Stretch out your hand over the sea, so that the waters come back upon the Egyptians, over their chariots and their horsemen.”
+14:27 So Moses stretched his hand out over the waters, and the sea returned to its strength at the break of dawn. The Egyptians were fleeing from it, but Adonai overthrew them in the midst of the sea.
+14:28 The waters returned and covered the chariots, the horsemen and the entire army of Pharaoh that went after them into the sea. Not one of them remained.
+14:29 But Bnei-Yisrael had walked on dry land in the midst of the sea, and the waters were like walls to them on their right hand and on their left.
+14:30 So Adonai saved Israel that day out of the hand of the Egyptians, and Israel saw the Egyptians dead on the seashore.
+14:31 When Israel saw the great work that Adonai did over the Egyptians, the people feared Adonai, and they believed in Adonai and in His servant Moses.
 15:1 Then Moses and </span><span class="it"><span class="content">Bnei-Yisrael
 15:2  is my strength and song, and He has become my salvation. This is my God, and I will glorify Him, my father’s God, and I will exalt Him. 
 15:3  is His Name! 
