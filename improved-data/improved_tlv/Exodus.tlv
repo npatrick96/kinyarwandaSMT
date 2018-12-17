@@ -465,7 +465,7 @@
 17:14 Adonai said to Moses, “Write this for a memorial in the book, and rehearse it in the hearing of Joshua, for I will utterly blot out the memory of the Amalekites from under heaven.”
 17:15 Then Moses built an altar, and called the name of it Adonai-Nissi.
 17:16 Then he said, “By the hand upon the throne of Adonai, Adonai will have war with Amalek from generation to generation.”
-18:1 Now Jethro, the priest of Midian and Moses’ father-in-law, heard about everything God had done for Moses and for His people Israel, and how Adonai had brought Israel out of Egypt. (
+19:1 Now Jethro, the priest of Midian and Moses’ father-in-law, heard about everything God had done for Moses and for His people Israel, and how Adonai had brought Israel out of Egypt. (
 18:2 Jethro, Moses’ father-in-law, had taken in Moses’ wife Zipporah, after he had sent her away
 18:3 with her two sons. One was named Gershom because he said, “I have been an outsider in a foreign land,”
 18:4 and the name of the other was Eliezer because he said, “For my father’s God is my help , and delivered me from the sword of Pharaoh.”)
