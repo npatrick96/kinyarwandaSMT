@@ -1,62 +1,62 @@
 1:1 Now these are the names of the children of Israel, which came into Egypt; every man and his household came with Jacob.
-1:2 Reuben, Simeon, Levi and Judah; 
-1:3 Issachar, Zebulun and Benjamin; 
-1:4 Dan, Naphtali, Gad and Asher. 
-1:5 The souls that came out of the line of Jacob numbered 70 in all, while Joseph was already in Egypt. 
-1:6 Then Joseph died, as did all his brothers and all that generation. 
+1:2 Reuben, Simeon, Levi and Judah;
+1:3 Issachar, Zebulun and Benjamin;
+1:4 Dan, Naphtali, Gad and Asher.
+1:5 The souls that came out of the line of Jacob numbered 70 in all, while Joseph was already in Egypt.
+1:6 Then Joseph died, as did all his brothers and all that generation.
 1:7 And the children of Israel were fruitful, and increased abundantly, and multiplied, and waxed exceeding mighty; and the land was filled with them.
-1:8 Now there arose a new king over Egypt, who did not know Joseph. 
+1:8 Now there arose a new king over Egypt, who did not know Joseph.
 1:9 And he said unto his people, Behold, the people of the children of Israel are more and mightier than we:
-1:10 Come, we must deal shrewdly with them, or else they will grow even more numerous, so that if war breaks out, they may join our enemies, fight against us, and then escape from the land.” 
-1:11 So they set slave masters over them to afflict them with forced labor, and they built Pithom and Raamses as storage cities for Pharaoh. 
+1:10 Come, we must deal shrewdly with them, or else they will grow even more numerous, so that if war breaks out, they may join our enemies, fight against us, and then escape from the land.”
+1:11 So they set slave masters over them to afflict them with forced labor, and they built Pithom and Raamses as storage cities for Pharaoh.
 1:12 But the more they afflicted them, the more they multiplied and grew. And they were grieved because of the children of Israel
-1:13 They worked them harshly, 
-1:14 and made their lives bitter with hard labor with mortar and brick, doing all sorts of work in the fields. In all their labors they worked them with cruelty. 
-1:15 Moreover the king of Egypt spoke to the Hebrew midwives, one of whom was named Shiphrah and the other Puah, 
-1:16 and said, “When you help the Hebrew women during childbirth, look at the sex. If it’s a son, then kill him, but if it’s a daughter, she may live.” 
-1:17 Yet the midwives feared God, so they did not do as the king of Egypt commanded them, but let the boys live. 
-1:18 So the king of Egypt summoned the midwives and said to them, “Why have you done this—let the boys live?” 
-1:19 The midwives told Pharaoh, “Because the Hebrew women are not like Egyptian women. They are like animals, and give birth before the midwife comes to them.” 
-1:20 So God was good to the midwives, and the people multiplied, growing very numerous. 
-1:21 Because the midwives feared God, He gave them families of their own. 
+1:13 They worked them harshly,
+1:14 and made their lives bitter with hard labor with mortar and brick, doing all sorts of work in the fields. In all their labors they worked them with cruelty.
+1:15 Moreover the king of Egypt spoke to the Hebrew midwives, one of whom was named Shiphrah and the other Puah,
+1:16 and said, “When you help the Hebrew women during childbirth, look at the sex. If it’s a son, then kill him, but if it’s a daughter, she may live.”
+1:17 Yet the midwives feared God, so they did not do as the king of Egypt commanded them, but let the boys live.
+1:18 So the king of Egypt summoned the midwives and said to them, “Why have you done this—let the boys live?”
+1:19 The midwives told Pharaoh, “Because the Hebrew women are not like Egyptian women. They are like animals, and give birth before the midwife comes to them.”
+1:20 So God was good to the midwives, and the people multiplied, growing very numerous.
+1:21 Because the midwives feared God, He gave them families of their own.
 1:22 But Pharaoh charged all his people saying, “You are to cast every son that is born into the river, but let every daughter live.”
-2:1 Now a man from the house of Levi took as his wife a daughter of Levi. 
-2:2 The woman conceived and gave birth to a son. Now when she saw that he was delightful, she hid him for three months. 
-2:3 But when she could no longer hide him, she took a basket of papyrus reeds, coated it with tar and pitch, put the child inside, and laid it in the reeds by the bank of the Nile. 
-2:4 His sister stood off at a distance to see what would happen to him. 
-2:5 Then the daughter of Pharaoh came down to bathe, while her maidens walked along by the riverside. When she saw the basket among the reeds, she sent her handmaiden to fetch it. 
-2:6 When she opened it, she saw the child—look, a baby boy crying! She had compassion on him and said, “This is one of the Hebrew children.” 
-2:7 Then his sister said to Pharaoh’s daughter, “Should I go and call a nurse from the Hebrews to nurse the child for you?” 
-2:8 Pharaoh’s daughter told her, “Go!” So the girl went and called the child’s mother. 
-2:9 Then Pharaoh’s daughter said to her, “Take this child and nurse him for me, and I will pay you your wages.” So the woman took the child and nursed him. 
-2:10 After the boy grew older she brought him to Pharaoh’s daughter and he became her son. So she named him Moses saying, “Because I drew him out of the water.” 
-2:11 Now it happened in those days, after Moses had grown up, that he went out to his brothers and saw their burdens. He noticed an Egyptian beating a Hebrew, one of his own people. 
-2:12 So he looked around and when he saw that there was nobody, he killed the Egyptian and hid him in the sand. 
-2:13 Then he went out the following day, and saw two Hebrew men fighting. So he said to the guilty one, “Why are you beating your companion?” 
-2:14 But the man answered, “Who made you a ruler and a judge over us? Are you saying you’re going to kill me—just as you killed the Egyptian?” Then Moses was afraid, and thought, “For sure the deed had become known.” 
-2:15 When Pharaoh heard about this, he tried to kill Moses. But Moses fled from Pharaoh and settled in the land of Midian, where he sat down by a well. 
-2:16 Now the priest of Midian had seven daughters who came and drew water. They filled the troughs to water their father’s flock. 
-2:17 But shepherds came and drove them away, so Moses stood up, helped them and watered their flock. 
-2:18 When they came to Reuel their father, he said, “How come you’ve returned so soon today?” 
-2:19 So they told him, “An Egyptian delivered us out of the hand of the shepherds. He also drew water for us and watered the flock.” 
-2:20 “Where is he then?” he said to his daughters. “Why did you leave the man behind? Invite him to have some food to eat!” 
-2:21 Moses was content to stay on with the man. Later he gave Moses his daughter Zipporah. 
-2:22 She gave birth to a son and he named him Gershom, saying, “I have been an outsider in a foreign land.” 
+2:1 Now a man from the house of Levi took as his wife a daughter of Levi.
+2:2 The woman conceived and gave birth to a son. Now when she saw that he was delightful, she hid him for three months.
+2:3 But when she could no longer hide him, she took a basket of papyrus reeds, coated it with tar and pitch, put the child inside, and laid it in the reeds by the bank of the Nile.
+2:4 His sister stood off at a distance to see what would happen to him.
+2:5 Then the daughter of Pharaoh came down to bathe, while her maidens walked along by the riverside. When she saw the basket among the reeds, she sent her handmaiden to fetch it.
+2:6 When she opened it, she saw the child—look, a baby boy crying! She had compassion on him and said, “This is one of the Hebrew children.”
+2:7 Then his sister said to Pharaoh’s daughter, “Should I go and call a nurse from the Hebrews to nurse the child for you?”
+2:8 Pharaoh’s daughter told her, “Go!” So the girl went and called the child’s mother.
+2:9 Then Pharaoh’s daughter said to her, “Take this child and nurse him for me, and I will pay you your wages.” So the woman took the child and nursed him.
+2:10 After the boy grew older she brought him to Pharaoh’s daughter and he became her son. So she named him Moses saying, “Because I drew him out of the water.”
+2:11 Now it happened in those days, after Moses had grown up, that he went out to his brothers and saw their burdens. He noticed an Egyptian beating a Hebrew, one of his own people.
+2:12 So he looked around and when he saw that there was nobody, he killed the Egyptian and hid him in the sand.
+2:13 Then he went out the following day, and saw two Hebrew men fighting. So he said to the guilty one, “Why are you beating your companion?”
+2:14 But the man answered, “Who made you a ruler and a judge over us? Are you saying you’re going to kill me—just as you killed the Egyptian?” Then Moses was afraid, and thought, “For sure the deed had become known.”
+2:15 When Pharaoh heard about this, he tried to kill Moses. But Moses fled from Pharaoh and settled in the land of Midian, where he sat down by a well.
+2:16 Now the priest of Midian had seven daughters who came and drew water. They filled the troughs to water their father’s flock.
+2:17 But shepherds came and drove them away, so Moses stood up, helped them and watered their flock.
+2:18 When they came to Reuel their father, he said, “How come you’ve returned so soon today?”
+2:19 So they told him, “An Egyptian delivered us out of the hand of the shepherds. He also drew water for us and watered the flock.”
+2:20 “Where is he then?” he said to his daughters. “Why did you leave the man behind? Invite him to have some food to eat!”
+2:21 Moses was content to stay on with the man. Later he gave Moses his daughter Zipporah.
+2:22 She gave birth to a son and he named him Gershom, saying, “I have been an outsider in a foreign land.”
 2:23 And it came to pass in process of time, that the king of Egypt died: and the children of Israel sighed by reason of the bondage, and they cried, and their cry came up unto God by reason of the bondage.
-2:24 God heard their sobbing and remembered His covenant with Abraham, Isaac, and Jacob. 
+2:24 God heard their sobbing and remembered His covenant with Abraham, Isaac, and Jacob.
 2:25 And God looked upon the children of Israel, and God had respect unto them.
-3:1 Now Moses was tending the flock of his father-in-law Jethro, the priest of Midian. So he led the flock to the farthest end of the wilderness, coming to the mountain of God, Horeb. 
+3:1 Now Moses was tending the flock of his father-in-law Jethro, the priest of Midian. So he led the flock to the farthest end of the wilderness, coming to the mountain of God, Horeb.
 3:2 And the angel of the Lord appeared unto him in a flame of fire out of the midst of a bush: and he looked, and, behold, the bush burned with fire, and the bush was not consumed.
-3:3 Moses thought, “I will go now, and see this great sight. Why is the bush not burnt?” 
+3:3 Moses thought, “I will go now, and see this great sight. Why is the bush not burnt?”
 3:4 And when the Lord saw that he turned aside to see, God called unto him out of the midst of the bush, and said, Moses, Moses. And he said, Here am I.
-3:5 Then He said, “Come no closer. Take your sandals off your feet, for the place where you are standing is holy ground.” 
-3:6 Moreover He said, “I am the God of your father, the God of Abraham, Isaac and Jacob.” So Moses hid his face, because he was afraid to look at God. 
+3:5 Then He said, “Come no closer. Take your sandals off your feet, for the place where you are standing is holy ground.”
+3:6 Moreover He said, “I am the God of your father, the God of Abraham, Isaac and Jacob.” So Moses hid his face, because he was afraid to look at God.
 3:7 And the Lord said, I have surely seen the affliction of my people which are in Egypt, and have heard their cry by reason of their taskmasters; for I know their sorrows;
-3:8 So I have come down to deliver them out of the hand of the Egyptians, to bring them up out of that land into a good and large land, a land flowing with milk and honey, into the place of the Canaanites, Hittites, Amorites, Perizzites, Hivites and Jebusites. 
+3:8 So I have come down to deliver them out of the hand of the Egyptians, to bring them up out of that land into a good and large land, a land flowing with milk and honey, into the place of the Canaanites, Hittites, Amorites, Perizzites, Hivites and Jebusites.
 3:9 Now therefore, behold, the cry of the children of Israel is come unto me: and I have also seen the oppression wherewith the Egyptians oppress them.
 3:10 Come now therefore, and I will send thee unto Pharaoh, that thou mayest bring forth my people the children of Israel out of Egypt.
 3:11 And Moses said unto God, Who am I, that I should go unto Pharaoh, and that I should bring forth the children of Israel out of Egypt?
-3:12 So He said, “I will surely be with you. So that will be the sign to you that it is I who have sent you. When you have brought the people out of Egypt: you will worship God on this mountain.” 
+3:12 So He said, “I will surely be with you. So that will be the sign to you that it is I who have sent you. When you have brought the people out of Egypt: you will worship God on this mountain.”
 3:13 And Moses said unto God, Behold, when I come unto the children of Israel, and shall say unto them, The God of your fathers hath sent me unto you; and they shall say to me, What is his name? what shall I say unto them?
 3:14 And God said unto Moses, I AM THAT I AM: and he said, Thus shalt thou say unto the children of Israel, I AM hath sent me unto you.
 3:15 And God said moreover unto Moses, Thus shalt thou say unto the children of Israel, The Lord God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath sent me unto you: this is my name for ever, and this is my memorial unto all generations.
@@ -273,62 +273,62 @@
 10:28 So Pharaoh said to him, “Go away from me! Take heed never to see my face again, because on the day you do, you will die!”
 10:29 “Right!” Moses said. “You said it! May I never see your face again!
 11:1 Now Adonai had said to Moses, “I will bring one more plague upon Pharaoh and on Egypt. After that, he will let you go from here. When he lets you go, he will surely thrust you out altogether from here.
-11:2 Speak now into the ears of the people, and let every man ask from his neighbor and every woman from her neighbor for articles of silver and gold.” 
-11:3  gave the people favor in the eyes of the Egyptians. Indeed, the man Moses was very great in the land of Egypt, in the eyes of Pharaoh’s servants and in the eyes of the people. 
+11:2 Speak now into the ears of the people, and let every man ask from his neighbor and every woman from her neighbor for articles of silver and gold.”
+11:3  gave the people favor in the eyes of the Egyptians. Indeed, the man Moses was very great in the land of Egypt, in the eyes of Pharaoh’s servants and in the eyes of the people.
 11:4 So Moses said, “This is what Adonai says: At around midnight I will go out into the midst of Egypt,
-11:5 and all the firstborn in the land of Egypt will die—from the firstborn of Pharaoh sitting on his throne to the firstborn of the maidservant behind the mill, along with all the firstborn cattle. 
-11:6 There will be a great cry throughout all the land of Egypt, the likes of which has never been before nor will ever be again. 
+11:5 and all the firstborn in the land of Egypt will die—from the firstborn of Pharaoh sitting on his throne to the firstborn of the maidservant behind the mill, along with all the firstborn cattle.
+11:6 There will be a great cry throughout all the land of Egypt, the likes of which has never been before nor will ever be again.
 11:7 But not so much as a dog will growl against any of Bnei-Yisrael, neither man nor beast—so that you may know that Adonai makes a distinction between the Egyptians and Israel.
-11:8 All these servants of yours will come down to me and bow down to me, saying, ‘Get out, you and all the people who follow you!’ After that, I will go.” Then he went out from Pharaoh hot with anger. 
-11:9  had said to Moses, “Pharaoh will not listen to you, so that My wonders may be multiplied in the land of Egypt.” 
+11:8 All these servants of yours will come down to me and bow down to me, saying, ‘Get out, you and all the people who follow you!’ After that, I will go.” Then he went out from Pharaoh hot with anger.
+11:9  had said to Moses, “Pharaoh will not listen to you, so that My wonders may be multiplied in the land of Egypt.”
 11:10 So Moses and Aaron did all these wonders before Pharaoh, yet Adonai hardened Pharaoh’s heart, so he did not let Bnei-Yisrael go out of his land.
 12:1 Now Adonai spoke to Moses and Aaron in the land of Egypt saying,
-12:2 “This month will mark the beginning of months for you; it is to be the first month of the year for you. 
-12:3 Tell all the congregation of Israel that on the tenth day of this month, each man is to take a lamb for his family one lamb for the household. 
-12:4 But if the household is too small for a lamb, then he and his nearest neighbor are to take one according to the number of the people. According to each person eating, you are to make your count for the lamb. 
-12:5 Your lamb is to be without blemish, a year old male. You may take it from the sheep or from the goats. 
-12:6 You must watch over it until the fourteenth day of the same month. Then the whole assembly of the congregation of Israel is to slaughter it at twilight. 
-12:7 They are to take the blood and put it on the two doorposts and on the crossbeam of the houses where they will eat it. 
+12:2 “This month will mark the beginning of months for you; it is to be the first month of the year for you.
+12:3 Tell all the congregation of Israel that on the tenth day of this month, each man is to take a lamb for his family one lamb for the household.
+12:4 But if the household is too small for a lamb, then he and his nearest neighbor are to take one according to the number of the people. According to each person eating, you are to make your count for the lamb.
+12:5 Your lamb is to be without blemish, a year old male. You may take it from the sheep or from the goats.
+12:6 You must watch over it until the fourteenth day of the same month. Then the whole assembly of the congregation of Israel is to slaughter it at twilight.
+12:7 They are to take the blood and put it on the two doorposts and on the crossbeam of the houses where they will eat it.
 12:8 They are to eat the meat that night, roasted over a fire. With matzot and bitter herbs they are to eat it.
-12:9 Do not eat any of it raw or boiled with water, but only roasted with fire—its head with its legs and its innards. 
-12:10 So let nothing of it remain until the morning. Whatever remains until the morning you are to burn with fire. 
+12:9 Do not eat any of it raw or boiled with water, but only roasted with fire—its head with its legs and its innards.
+12:10 So let nothing of it remain until the morning. Whatever remains until the morning you are to burn with fire.
 12:11 Also you are to eat it this way: with your loins girded, your shoes on your feet and your staff in your hand. You are to eat it in haste. It is Adonai’s Passover.
 12:12 “For I will go through the land of Egypt on that night and strike down every firstborn, both men and animals, and I will execute judgments against all the gods of Egypt. I am Adonai.
-12:13 The blood will be a sign for you on the houses where you are. When I see the blood, I will pass over you. So there will be no plague among you to destroy you when I strike the land of Egypt. 
+12:13 The blood will be a sign for you on the houses where you are. When I see the blood, I will pass over you. So there will be no plague among you to destroy you when I strike the land of Egypt.
 12:14 “This day is to be a memorial for you. You are to keep it as a feast to Adonai. Throughout your generations you are to keep it as an eternal ordinance.
 12:15 For seven days you are to eat matzot , but on the first day you must remove hametz from your houses, for whoever eats hametz from the first day until the seventh day, that soul will be cut off from Israel.
-12:16 The first day is to be a holy assembly for you as well as the seventh day. No manner of work is to be done on those days, except what is to be eaten by every person—that alone may be prepared by you. 
-12:17 So you are to observe the Feast of Matzot, for on this very same day have I brought your ranks out of the land of Egypt. Therefore you are to observe this day throughout your generations as an eternal ordinance. 
+12:16 The first day is to be a holy assembly for you as well as the seventh day. No manner of work is to be done on those days, except what is to be eaten by every person—that alone may be prepared by you.
+12:17 So you are to observe the Feast of Matzot, for on this very same day have I brought your ranks out of the land of Egypt. Therefore you are to observe this day throughout your generations as an eternal ordinance.
 12:18 During the first month in the evening of the fourteenth day of the month, you are to eat matzot , until the evening of the twenty-first day of the month
 12:19 For seven days no hametz is to be found in your houses, for whoever eats hametz, that soul will be cut off from the congregation of Israel, whether he is an outsider or one who is born in the land.
 12:20 You are to eat no hametz; in all your houses you are to eat matzot .”
-12:21 Then Moses called for all the elders of Israel and said to them, “Go, select lambs for your families and slaughter the Passover lamb. 
-12:22 You are to take a bundle of hyssop, dip it in the blood that is in the basin, and apply it to the crossbeam and two doorposts with the blood from the basin. None of you may go out the door of his house until morning. 
-12:23 Adonai will pass through to strike down the Egyptians, but when He sees the blood on the crossbeam and the two doorposts, Adonai will pass over that door, and will not allow the destroyer to come into your houses to strike you down. 
+12:21 Then Moses called for all the elders of Israel and said to them, “Go, select lambs for your families and slaughter the Passover lamb.
+12:22 You are to take a bundle of hyssop, dip it in the blood that is in the basin, and apply it to the crossbeam and two doorposts with the blood from the basin. None of you may go out the door of his house until morning.
+12:23 Adonai will pass through to strike down the Egyptians, but when He sees the blood on the crossbeam and the two doorposts, Adonai will pass over that door, and will not allow the destroyer to come into your houses to strike you down.
 12:24 Also you are to observe this event as an eternal ordinance, for you and your children.
 12:25 “When you come into the land which Adonai will give you as He has promised, you are to keep this ceremony.
-12:26  Now when it happens that your children ask you, ‘What does this ceremony mean to you?’ 
+12:26  Now when it happens that your children ask you, ‘What does this ceremony mean to you?’
 12:27  You are to say, ‘It is the sacrifice of Adonai’s Passover, because He passed over the houses of Bnei-Yisrael in Egypt, when He struck down the Egyptians, but spared our households.’” So the people bowed their heads and worshipped.
 12:28 Then Bnei-Yisrael went and did it. They did just as Adonai had commanded Moses and Aaron.
 12:29 So it came about at midnight that Adonai struck down all the firstborn in the land of Egypt, from the firstborn of Pharaoh sitting on his throne to the firstborn of the captive who was in the dungeon, and all the firstborn cattle.
-12:30 Then Pharaoh rose up in the night, he and all his servants and all the Egyptians, and there was loud wailing in Egypt. For there was not a house where someone was not dead. 
+12:30 Then Pharaoh rose up in the night, he and all his servants and all the Egyptians, and there was loud wailing in Egypt. For there was not a house where someone was not dead.
 12:31 So he called for Moses and Aaron at night and said, “Rise up, go out from my people, both you and </span><span class="it"><span class="content">Bnei-Yisrael, go, serve Adonai as you have said.
-12:32 Take your flocks and your herds, as you said, and be gone! But bless me, too.” 
-12:33 Now the Egyptians urged the people, sending them out of the land quickly, for they thought, “We will all be dead!” 
-12:34 So the people took their dough before it was leavened, with their kneading bowls bound up in their clothes on their shoulders. 
+12:32 Take your flocks and your herds, as you said, and be gone! But bless me, too.”
+12:33 Now the Egyptians urged the people, sending them out of the land quickly, for they thought, “We will all be dead!”
+12:34 So the people took their dough before it was leavened, with their kneading bowls bound up in their clothes on their shoulders.
 12:35 So Bnei-Yisrael acted ­according to the word of Moses. They asked the Egyptians for articles of silver and gold, and for clothing.
-12:36 Adonai gave the people favor in the eyes of the Egyptians and let them have what they asked for. So they plundered the Egyptians. 
+12:36 Adonai gave the people favor in the eyes of the Egyptians and let them have what they asked for. So they plundered the Egyptians.
 12:37 Then Bnei-Yisrael journeyed from Rameses to Succoth, about 600,000 men on foot, as well as children.
-12:38 Also a mixed multitude went up with them, along with the flocks, herds and heavy livestock. 
+12:38 Also a mixed multitude went up with them, along with the flocks, herds and heavy livestock.
 12:39 They had baked matzot cakes from the dough that they brought out of Egypt. It had no hametz, because they were thrust out of Egypt and could not delay, so they had not made provisions for themselves.
 12:40 Now the time that Bnei-Yisrael lived in Egypt was 430 years.
 12:41 So it happened at the end of 430 years, to the very day, that all the armies of Adonai went out from the land of Egypt.
 12:42 It was a night of watching for Adonai to bring them out of the land of Egypt. This same night is a night of vigil for Adonai, for all Bnei-Yisrael throughout their generations.
 12:43 Then Adonai said to Moses and Aaron, “This is the ordinance of the Passover. No foreigner may eat it,
-12:44 but every man’s servant that is bought for money, after you have circumcised him, may eat it. 
-12:45 Nor should a visitor or hired servant eat it. 
-12:46 It is to be eaten inside a single house. You are not to carry the meat out of the house, nor are you to break any of its bones. 
-12:47 All the congregation of Israel must keep it. 
+12:44 but every man’s servant that is bought for money, after you have circumcised him, may eat it.
+12:45 Nor should a visitor or hired servant eat it.
+12:46 It is to be eaten inside a single house. You are not to carry the meat out of the house, nor are you to break any of its bones.
+12:47 All the congregation of Israel must keep it.
 12:48 But if an outsider dwells with you, who would keep the Passover for Adonai, all his males must be circumcised. Then let him draw near and keep it. He will be like one who is native to the land. But no uncircumcised person may eat from it.
 12:49 The same Torah applies to the native as well as the outsider who dwells among you.”
 12:50 So all Bnei-Yisrael did so. They did just as Adonai commanded Moses and Aaron.
@@ -579,7 +579,7 @@
 21:34 the owner of the pit must pay compensation. He is to give money to the owner, and the dead animal will be his.
 21:35 “If one man’s ox hurts another’s ox so that it dies, they are to sell the live ox and divide the price. They are also to divide the dead one.
 21:36 Or if it becomes known that the ox was given to violence in times past, and its owner has not kept it pent up, he must surely pay ox for ox, and the dead animal will be his own.
-21:37  If a man steals an ox or a sheep, and kills it or sells it, he is to pay five oxen for one ox or four sheep for one sheep.
+21:37 If a man steals an ox or a sheep, and kills it or sells it, he is to pay five oxen for one ox or four sheep for one sheep.
 22:1 “If a thief found breaking in is struck so that he dies, there is no bloodguilt for him.
 22:2 But if the sun has risen, there is bloodguilt, and he is to make full restitution. If he has nothing, then he must be sold for his theft.
 22:3 If the item is found in his hand alive—whether ox, donkey or sheep—he is to pay double.
