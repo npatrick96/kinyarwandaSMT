@@ -307,12 +307,12 @@
 12:23 Adonai will pass through to strike down the Egyptians, but when He sees the blood on the crossbeam and the two doorposts, Adonai will pass over that door, and will not allow the destroyer to come into your houses to strike you down.
 12:24 Also you are to observe this event as an eternal ordinance, for you and your children.
 12:25 “When you come into the land which Adonai will give you as He has promised, you are to keep this ceremony.
-12:26  Now when it happens that your children ask you, ‘What does this ceremony mean to you?’
-12:27  You are to say, ‘It is the sacrifice of Adonai’s Passover, because He passed over the houses of Bnei-Yisrael in Egypt, when He struck down the Egyptians, but spared our households.’” So the people bowed their heads and worshipped.
+12:26 Now when it happens that your children ask you, ‘What does this ceremony mean to you?’
+12:27 You are to say, ‘It is the sacrifice of Adonai’s Passover, because He passed over the houses of Bnei-Yisrael in Egypt, when He struck down the Egyptians, but spared our households.’” So the people bowed their heads and worshipped.
 12:28 Then Bnei-Yisrael went and did it. They did just as Adonai had commanded Moses and Aaron.
 12:29 So it came about at midnight that Adonai struck down all the firstborn in the land of Egypt, from the firstborn of Pharaoh sitting on his throne to the firstborn of the captive who was in the dungeon, and all the firstborn cattle.
 12:30 Then Pharaoh rose up in the night, he and all his servants and all the Egyptians, and there was loud wailing in Egypt. For there was not a house where someone was not dead.
-12:31 So he called for Moses and Aaron at night and said, “Rise up, go out from my people, both you and </span><span class="it"><span class="content">Bnei-Yisrael, go, serve Adonai as you have said.
+12:31 So he called for Moses and Aaron at night and said, “Rise up, go out from my people, both you and Bnei-Yisrael, go, serve Adonai as you have said.
 12:32 Take your flocks and your herds, as you said, and be gone! But bless me, too.”
 12:33 Now the Egyptians urged the people, sending them out of the land quickly, for they thought, “We will all be dead!”
 12:34 So the people took their dough before it was leavened, with their kneading bowls bound up in their clothes on their shoulders.
