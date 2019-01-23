@@ -802,7 +802,7 @@
 28:41 Put them on Aaron your brother and on his sons with him, and anoint them, consecrate them, and sanctify them, so that they may minister to Me as kohanim.
 28:42 “You are to make linen undergarments for them, to cover the skin of their nakedness, from the hips to the thighs.
 28:43 They are to be worn by Aaron and his sons when they go into the Tent of Meeting or when they approach the altar to minister in the holy place, so that they do not become subject to guilt and die. It is to be a statute forever, to him and to his offspring after him.
-29:1“Now this is what you are to do to consecrate them, so that they may minister as kohanim. Take one young bull and two rams without blemish,
+29:1 “Now this is what you are to do to consecrate them, so that they may minister as kohanim. Take one young bull and two rams without blemish,
 29:2 along with matzot , cakes of matzot mixed with oil, and matzot wafers spread with oil. Make them from fine wheat flour.
 29:3 You are to put them into one basket and present them, along with the bull and the two rams.
 29:4 You are to bring Aaron and his sons to the entrance of the Tent of Meeting, and wash them with water.
