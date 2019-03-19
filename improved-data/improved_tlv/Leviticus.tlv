@@ -109,120 +109,113 @@
 5:24 or any thing about which he has sworn falsely, he is to restore it in full, and add a fifth part more to it. He must give it to the one to whom it belongs on the day of presenting his trespass offering.
 5:25 He is to bring his trespass offering to Adonai, a ram without blemish from the flock, according to your value, for a trespass offering, to the kohen.
 5:26 The kohen should make atonement for him before Adonai, and he will be forgiven concerning whatever he may have done to become guilty.”
-6:1  spoke to Moses, saying:
-6:2 “Command Aaron and his sons, saying: This is the </span><span class="it"><span class="content">Torah
-6:3 The </span><span class="it"><span class="content">kohen
+6:1 Adonai spoke to Moses, saying:
+6:2 “Command Aaron and his sons, saying: This is the Torah of the burnt offering. The burnt offering shall remain on the hearth atop the altar all night until the morning, while the fire of the altar is kept burning on it.
+6:3 The kohen is to put on his linen garment, with his linen undergarments on his body. He is to remove the fat ashes from where the fire has consumed the burnt offering on the altar and put them beside the altar.
 6:4 Then he is to take off his garments, put on other ones, and carry the ashes outside the camp to a clean place.
-6:5 The fire on the altar is to be kept burning on it—it must not go out. Each morning the </span><span class="it"><span class="content">kohen
+6:5 The fire on the altar is to be kept burning on it—it must not go out. Each morning the kohen is to burn wood on it, laying the burnt offering in order upon it, and burning up as smoke the fat of the fellowship offerings.
 6:6 Fire is to be kept burning on the altar continually—it must not go out.
-6:7 “Now this is the </span><span class="it"><span class="content">Torah
-6:8 So he is to lift up from it his handful of the fine flour of the grain offering, with some of its oil and all the frankincense which is on the grain offering, and burn it up as smoke on the altar for a soothing aroma, as its memorial portion to </span><span class="it"><span class="sc"><span class="content">Adonai
-6:9 Then what is left from it Aaron and his sons are to eat. It is to be eaten as </span><span class="it"><span class="content">matzah
-6:10 It must not be baked with </span><span class="it"><span class="content">hametz
-6:11 Every male among the children of Aaron may eat it, as their portion forever throughout your generations from the offerings of </span><span class="it"><span class="sc"><span class="content">Adonai
-6:12  spoke to Moses, saying:
-6:13 “This is the offering of Aaron and his sons, which they are to offer to </span><span class="it"><span class="sc"><span class="content">Adonai
-6:14 It is to be made with oil on a pan. When it is soaked, you shall bring it in. You are to present the grain offering in baked pieces as a soothing aroma to </span><span class="it"><span class="sc"><span class="content">Adonai
-6:15 The anointed </span><span class="it"><span class="content">kohen
-6:16 Thus every grain offering of a </span><span class="it"><span class="content">kohen
-6:17  spoke to Moses, saying:
-6:18 “Speak to Aaron and to his sons, saying: ‘This is the </span><span class="it"><span class="content">Torah
-6:19 The </span><span class="it"><span class="content">kohen
+6:7 “Now this is the Torah of the grain offering. Aaron’s sons are to offer it to Adonai in front of the altar.
+6:8 So he is to lift up from it his handful of the fine flour of the grain offering, with some of its oil and all the frankincense which is on the grain offering, and burn it up as smoke on the altar for a soothing aroma, as its memorial portion to Adonai.
+6:9 Then what is left from it Aaron and his sons are to eat. It is to be eaten as matzah in a holy place, in the courtyard of the Tent of Meeting.
+6:10 It must not be baked with hametz. I have given it as their portion of My offerings made by fire. It is most holy, like the sin offering and like the trespass offering.
+6:11 Every male among the children of Aaron may eat it, as their portion forever throughout your generations from the offerings of Adonai made by fire. Whoever touches them will become holy.”
+6:12 Adonai spoke to Moses, saying:
+6:13 “This is the offering of Aaron and his sons, which they are to offer to Adonai on the day when he is anointed: the tenth part of an ephah of fine flour for a continual grain offering, half of it in the morning, and half of it in the evening.
+6:14 It is to be made with oil on a pan. When it is soaked, you shall bring it in. You are to present the grain offering in baked pieces as a soothing aroma to Adonai.
+6:15 The anointed kohen who will be in his place from among his sons is to offer it. As an eternal statute, it must be entirely burnt up as smoke to Adonai.
+6:16 Thus every grain offering of a kohen is to be a whole-offering—it shall not be eaten.”
+6:17 Adonai spoke to Moses, saying:
+6:18 “Speak to Aaron and to his sons, saying: ‘This is the Torah of the sin offering. In the place where the burnt offering is slaughtered, the sin ­offering is to be slaughtered before Adonai. It is most holy.
+6:19 The kohen who offers it for sin should eat it. It must be eaten in a holy place, in the court of the Tent of Meeting.
 6:20 Whatever touches its flesh will be holy. When any of its blood is splattered on a garment, you are to wash it in a holy place.
 6:21 But the earthen vessel in which it is boiled is to be broken, and if it is boiled in a bronze vessel, it is to be scoured, then rinsed in water.
-6:22 Every male among the </span><span class="it"><span class="content">kohanim
+6:22 Every male among the kohanim is to eat of it—it is most holy.
 6:23 But no sin offering from which any of the blood is brought into the Tent of Meeting to make atonement in the Holy Place is to be eaten—it must be burned up with fire.
-6:24
-6:25
-6:26
-6:27
-6:28
-6:29
-6:30
-7:1 “This is the </span><span class="it"><span class="content">Torah
+7:1 “This is the Torah of the trespass offering. It is most holy.
 7:2 In the place where they slaughter the burnt offering, he is to slaughter the trespass offering. And he is to splash its blood around on the altar.
 7:3 He should offer all of its fat, the fat tail and the fat that covers the innards,
 7:4 along with the two kidneys and the fat that is on them, which is by the loins, plus the cover on the liver that he is to remove with the kidneys.
-7:5 Then the </span><span class="it"><span class="content">kohen
-7:6 Every male among the </span><span class="it"><span class="content">kohanim
-7:7 “As is the sin offering, so is the trespass offering, there is one </span><span class="it"><span class="content">Torah
-7:8 The </span><span class="it"><span class="content">kohen
-7:9 Every meal offering that is baked in the oven, and all that is prepared on the flat plate and on the pan, is to belong to the </span><span class="it"><span class="content">kohen
+7:5 Then the kohen should burn them up as smoke on the altar for an offering made by fire to Adonai. It is a trespass offering.
+7:6 Every male among the kohanim may eat it. It is to be eaten in a holy place—it is most holy.
+7:7 “As is the sin offering, so is the trespass offering, there is one Torah for them: they are for the kohen who makes atonement with them.
+7:8 The kohen who offers anyone’s burnt offering, that kohen is to have for himself the hide of the burnt offering which he has offered.
+7:9 Every meal offering that is baked in the oven, and all that is prepared on the flat plate and on the pan, is to belong to the kohen who offers it.
 7:10 Every grain offering, whether mixed with oil or dry, belongs to all the sons of Aaron equally.
-7:11 “Now this is the </span><span class="it"><span class="content">Torah
-7:12 If he brings it for a thanksgiving, then he is to present with the sacrifice of thanksgiving </span><span class="it"><span class="content">matzah
-7:13 He is to present his offering with the sacrifice of his fellowship offerings for thanksgiving along with cakes of bread with </span><span class="it"><span class="content">hametz
-7:14 From each he is to offer one out of every offering as a gift to </span><span class="it"><span class="sc"><span class="content">Adonai
+7:11 “Now this is the Torah of the sacrifice of fellowship offerings which may be offered to Adonai.
+7:12 If he brings it for a thanksgiving, then he is to present with the sacrifice of thanksgiving matzah cakes mixed with oil, matzah wafers anointed with oil, and fine flour cakes mixed with oil.
+7:13 He is to present his offering with the sacrifice of his fellowship offerings for thanksgiving along with cakes of bread with hametz.
+7:14 From each he is to offer one out of every offering as a gift to Adonai. It will belong to the kohen who sprinkles the blood of the fellowship offerings.
 7:15 The meat of the sacrifice of his fellowship offerings for thanksgiving is to be eaten on the day of his offering. He is not to leave any of it until the morning.
 7:16 “But if the sacrifice of his offering is a vow or a freewill offering, it is to be eaten on the day that he offers his sacrifice. On the next day what remains of it may be eaten.
 7:17 But what remains of the meat of the sacrifice on the third day is to be burned up with fire.
 7:18 If any of the meat of the sacrifice of his fellowship offerings is eaten on the third day, it will not be accepted, nor will it be credited to him who offers it. It will be a foul thing—and the soul who eats any from it will bear his own iniquity.
 7:19 “The meat that touches any unclean thing is not to be eaten. It is to be burned up with fire. As for the meat, everyone who is clean may eat it,
-7:20 but the soul who eats of the meat of the sacrifice of fellowship offerings belonging to </span><span class="it"><span class="sc"><span class="content">Adonai
-7:21 If anyone touches any unclean thing, whether the uncleanness of man, or an unclean animal or any unclean detestable thing, and eats some of the meat of the sacrifice of fellowship offerings belonging to </span><span class="it"><span class="sc"><span class="content">Adonai
-7:22  spoke to Moses, saying:
-7:23 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
+7:20 but the soul who eats of the meat of the sacrifice of fellowship offerings belonging to Adonai, having his uncleanness on him, that soul is to be cut off from his people.
+7:21 If anyone touches any unclean thing, whether the uncleanness of man, or an unclean animal or any unclean detestable thing, and eats some of the meat of the sacrifice of fellowship offerings belonging to Adonai, that soul is to be cut off from his people.”
+7:22 Adonai spoke to Moses, saying:
+7:23 “Speak to Bnei-Yisrael, saying: You are to eat no fat of a bull or sheep or goat.
 7:24 The fat of a dead animal and the fat of a torn animal may be used for any other service, but you must not eat it.
-7:25 For if anyone eats the fat of the animal from which an offering is made by fire to </span><span class="it"><span class="sc"><span class="content">Adonai
+7:25 For if anyone eats the fat of the animal from which an offering is made by fire to Adonai, then the soul who eats it is to be cut off from his people.
 7:26 “You are not to eat any blood, whether it is from a bird or an animal, in any of your dwellings.
 7:27 Whoever it is who consumes any blood, that soul is to be cut off from his people.’”
-7:28 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-7:29 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
-7:30 With his own hands he is to bring </span><span class="it"><span class="sc"><span class="content">Adonai
-7:31 The </span><span class="it"><span class="content">kohen
-7:32 The right thigh you are to give to the </span><span class="it"><span class="content">kohen
+7:28 Then Adonai spoke to Moses, saying:
+7:29 “Speak to Bnei-Yisrael, saying: Whoever brings the sacrifice of his fellowship offerings to Adonai is to present his offering to Adonai out of the sacrifice of his fellowship offerings.
+7:30 With his own hands he is to bring Adonai’s offerings by fire. He is to present the fat with the breast, so that the breast may be waved for a wave offering before Adonai.
+7:31 The kohen is to burn up the fat as smoke on the altar, but the breast will belong to Aaron and his sons.
+7:32 The right thigh you are to give to the kohen for a contribution out of the sacrifices of your fellowship offerings.
 7:33 The one among Aaron’s sons who offers the blood of the fellowship offerings and the fat is to have the right thigh for a portion.
-7:34 For the breast of the wave offering and the thigh contribution I have taken from </span><span class="it"><span class="content">Bnei-Yisrael
-7:35 This is the anointed portion of Aaron and the anointed portion of his sons out of the offerings of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:36  on the day that he anointed them. It is their portion forever throughout their generations.
-7:37 This is the </span><span class="it"><span class="content">Torah
-7:38 which </span><span class="it"><span class="sc"><span class="content">Adonai
-8:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-8:2 “Take Aaron and his sons with him, the garments, the anointing oil, the bull of the sin offering, the two rams and the basket of </span><span class="it"><span class="content">matzot
+7:34 For the breast of the wave offering and the thigh contribution I have taken from Bnei-Yisrael out of the sacrifices of their fellowship offerings and have given them to Aaron the kohen and to his sons as their portion forever from Bnei-Yisrael.”
+7:35 This is the anointed portion of Aaron and the anointed portion of his sons out of the offerings of Adonai made by fire, on the day when he presented them to serve Adonai in the office of kohen.
+7:36 Adonai commanded these to be given to them from Bnei-Yisrael on the day that he anointed them. It is their portion forever throughout their generations.
+7:37 This is the Torah of the burnt offering, the grain offering, the sin offering, the trespass offering, the ordination offering, and the sacrifice of fellowship offerings,
+7:38 which Adonai commanded Moses at Mount Sinai, on the day He commanded Bnei-Yisrael to present their offerings to Adonai, in the wilderness of Sinai.
+8:1 Then Adonai spoke to Moses, saying:
+8:2 “Take Aaron and his sons with him, the garments, the anointing oil, the bull of the sin offering, the two rams and the basket of matzot .
 8:3 Then assemble all the congregation at the entrance of the Tent of Meeting.”
-8:4 So Moses did as </span><span class="it"><span class="sc"><span class="content">Adonai
-8:5 Moses said to the congregation, “This is what </span><span class="it"><span class="sc"><span class="content">Adonai
+8:4 So Moses did as Adonai commanded him. When the congregation was assembled at the entrance of the Tent of Meeting,
+8:5 Moses said to the congregation, “This is what Adonai has commanded to be done.”
 8:6 Moses brought Aaron and his sons and washed them with water.
 8:7 He put the tunic on Aaron, tied the sash on him, clothed him with the robe, put the ephod on him, and tied the skillfully decorated sash of the ephod around him and fastened it on him.
 8:8 He then placed the breastplate on Aaron, and inside the breastplate he put the Urim and the Thummim.
-8:9 He set the turban on his head, and on front of the turban he set the golden plate, the holy crown, just as </span><span class="it"><span class="sc"><span class="content">Adonai
+8:9 He set the turban on his head, and on front of the turban he set the golden plate, the holy crown, just as Adonai commanded Moses.
 8:10 Moses took the anointing oil and anointed the Tabernacle and all that was in it, and so consecrated them.
 8:11 He sprinkled the oil on the altar seven times and anointed the altar and all its utensils, the basin with its stand, to consecrate them.
 8:12 He poured some of the anointing oil on Aaron’s head and anointed him to consecrate him.
-8:13 Then Moses brought Aaron’s sons, and clothed them with tunics, tied sashes on them, and fastened headbands on them, as </span><span class="it"><span class="sc"><span class="content">Adonai
+8:13 Then Moses brought Aaron’s sons, and clothed them with tunics, tied sashes on them, and fastened headbands on them, as Adonai had commanded Moses.
 8:14 Then he brought the bull of the sin offering, and Aaron and his sons laid their hands on the head of the bull of the sin offering.
 8:15 Moses then slaughtered it, took the blood and dabbed it onto the horns of the altar with his finger, and so purified the altar. Then he poured out the blood at the base of the altar and consecrated it, to make atonement for it.
 8:16 He then took all the fat that was on the innards, the cover of the liver, and the two kidneys and their fat, and burned it up as smoke on the altar.
-8:17 But the bull and its hide, its flesh and its dung, he burned with fire outside the camp, as </span><span class="it"><span class="sc"><span class="content">Adonai
+8:17 But the bull and its hide, its flesh and its dung, he burned with fire outside the camp, as Adonai had commanded.
 8:18 He then presented the ram of the burnt offering, and Aaron and his sons laid their hands on the head of the ram.
 8:19 Then Moses slaughtered it and splashed the blood around on the altar.
 8:20 After he cut the ram into its pieces, Moses burned the head, the pieces, and the fat.
-8:21 He washed the innards and the legs with water. Then Moses burned the whole ram up in smoke on the altar. It was a burnt offering for a soothing aroma, an offering by fire to </span><span class="it"><span class="sc"><span class="content">Adonai
+8:21 He washed the innards and the legs with water. Then Moses burned the whole ram up in smoke on the altar. It was a burnt offering for a soothing aroma, an offering by fire to Adonai, as Adonai had commanded Moses.
 8:22 Then he presented the second ram, the ram of ordination, and Aaron and his sons laid their hands on the head of the ram.
 8:23 Moses slaughtered it, took some of its blood and put it on the tip of Aaron’s right ear, on the thumb of his right hand and on the great toe of his right foot.
 8:24 Then Moses brought Aaron’s sons and put some of the blood on the tips of their right ears, on the thumbs of their right hands and on the great toes of their right feet. Then Moses splashed the blood around on the altar.
 8:25 He took the fat, the fat tail, and all the fat that was on the innards, as well as the cover of the liver, the two kidneys with their fat and the right thigh.
-8:26 Then out of the basket of </span><span class="it"><span class="content">matzah
-8:27 He put all these in Aaron’s hands and in the hands of his sons, and waved them for a wave offering before </span><span class="it"><span class="sc"><span class="content">Adonai
-8:28 Then Moses took them from their hands and burned them up in smoke on the altar with the burnt offering. They were a consecration for a soothing aroma. It was an offering by fire to </span><span class="it"><span class="sc"><span class="content">Adonai
-8:29 Moses took the breast and waved it for a wave offering before </span><span class="it"><span class="sc"><span class="content">Adonai
+8:26 Then out of the basket of matzah that was before Adonai, he took one matzah cake, one cake of oiled bread and one wafer, and placed them on the fat and on the right thigh.
+8:27 He put all these in Aaron’s hands and in the hands of his sons, and waved them for a wave offering before Adonai.
+8:28 Then Moses took them from their hands and burned them up in smoke on the altar with the burnt offering. They were a consecration for a soothing aroma. It was an offering by fire to Adonai.
+8:29 Moses took the breast and waved it for a wave offering before Adonai. It was Moses’ portion of the ram of ordination, just as Adonai commanded Moses.
 8:30 Then Moses took some of the anointing oil and some of the blood which was on the altar, and sprinkled it on Aaron, on his garments, and on his sons, and on his sons’ garments with him. So he consecrated Aaron, his garments, his sons and his sons’ garments with him.
 8:31 Moses then said to Aaron and to his sons, “Boil the meat at the entrance of the Tent of Meeting and eat it there, along with the bread that is in the basket of ordination, as I commanded, saying: ‘Aaron and his sons are to eat it.’
 8:32 What remains of the meat and of the bread you should burn with fire.
 8:33 You are not to go out from the entrance of the Tent of Meeting for seven days, until the days of your ordination are fulfilled, for he will be filling your hands for seven days.
-8:34 What has been done this day, </span><span class="it"><span class="sc"><span class="content">Adonai
-8:35 You are to stay at the entrance of the Tent of Meeting day and night for seven days, and keep </span><span class="it"><span class="sc"><span class="content">Adonai
-8:36 Thus Aaron and his sons did all the things that </span><span class="it"><span class="sc"><span class="content">Adonai
+8:34 What has been done this day, Adonai has commanded to be done, in order to make atonement for you.
+8:35 You are to stay at the entrance of the Tent of Meeting day and night for seven days, and keep Adonai’s command, so that you do not die, for so I have been commanded.”
+8:36 Thus Aaron and his sons did all the things that Adonai commanded through Moses.
 9:1 Now it happened on the eighth day that Moses called Aaron, his sons, and the elders of Israel.
-9:2 Then he said to Aaron, “Take a calf from the herd for a sin offering, and a ram for a burnt offering, both without blemish, and offer them before </span><span class="it"><span class="sc"><span class="content">Adonai
-9:3 You are to speak to </span><span class="it"><span class="content">Bnei-Yisrael
-9:4 plus a bull and a ram for fellowship offerings, to sacrifice before </span><span class="it"><span class="sc"><span class="content">Adonai
-9:5 So they brought what Moses commanded before the Tent of Meeting, and the entire congregation drew near and stood before </span><span class="it"><span class="sc"><span class="content">Adonai
-9:6 Moses said, “This is what </span><span class="it"><span class="sc"><span class="content">Adonai
-9:7 Moses said to Aaron, “Draw near to the altar, and bring your sin offering, and your burnt offering, and make atonement for yourself and for the people. Then present the offering for the people, and make atonement for them, as </span><span class="it"><span class="sc"><span class="content">Adonai
+9:2 Then he said to Aaron, “Take a calf from the herd for a sin offering, and a ram for a burnt offering, both without blemish, and offer them before Adonai.
+9:3 You are to speak to Bnei-Yisrael, saying: Take a male goat for a sin offering, along with a calf and a lamb, both yearlings without blemish, for a burnt offering,
+9:4 plus a bull and a ram for fellowship offerings, to sacrifice before Adonai, along with a grain offering mixed with oil. For today Adonai ­appears to you.”
+9:5 So they brought what Moses commanded before the Tent of Meeting, and the entire congregation drew near and stood before Adonai.
+9:6 Moses said, “This is what Adonai commanded that you should do, so that the glory of Adonai may appear to you.”
+9:7 Moses said to Aaron, “Draw near to the altar, and bring your sin offering, and your burnt offering, and make atonement for yourself and for the people. Then present the offering for the people, and make atonement for them, as Adonai commanded.”
 9:8 So Aaron drew near to the altar, and slaughtered the calf of the sin offering, which was for himself.
 9:9 The sons of Aaron presented the blood to him. Then he dipped his finger in the blood, dabbed it onto the horns of the altar, and poured out the blood at the base of the altar.
-9:10 But the fat, the kidneys and the cover from the liver of the sin offering he burned up as smoke on the altar, as </span><span class="it"><span class="sc"><span class="content">Adonai
+9:10 But the fat, the kidneys and the cover from the liver of the sin offering he burned up as smoke on the altar, as Adonai had commanded Moses.
 9:11 The flesh and the hide he burned in a fire outside the camp.
 9:12 Aaron slaughtered the burnt offering, then his sons presented the blood to him and he splashed it around on the altar.
 9:13 They handed the burnt offering to him piece by piece, along with the head, and he burned them up as smoke on the altar.
@@ -233,32 +226,32 @@
 9:18 He also slaughtered the bull and the ram as the sacrifice of fellowship offerings for the people. Then his sons brought him the blood, which he splashed around on the altar,
 9:19 as well as the fat from the bull and the ram, the fat tail, and the layer over the innards along with the kidneys and the covering of the liver.
 9:20 They put the fat upon the breasts, and he burned it on the altar.
-9:21 But the breasts and the right thigh Aaron waved for a wave offering before </span><span class="it"><span class="sc"><span class="content">Adonai
+9:21 But the breasts and the right thigh Aaron waved for a wave offering before Adonai, as Moses had commanded.
 9:22 Then Aaron lifted up his hands toward the people and blessed them. Then he stepped down from presenting the sin offering, the burnt offering and the fellowship offerings.
-9:23 Moses and Aaron then went into the Tent of Meeting. When they came back out and blessed the people, the glory of </span><span class="it"><span class="sc"><span class="content">Adonai
-9:24 Fire came out from the presence of </span><span class="it"><span class="sc"><span class="content">Adonai
-10:1 Now Aaron’s sons Nadab and Abihu each took his own censer, put fire in it, laid incense over it, and offered unauthorized fire before </span><span class="it"><span class="sc"><span class="content">Adonai
-10:2 So fire came out from the presence of </span><span class="it"><span class="sc"><span class="content">Adonai
-10:3 Then Moses said to Aaron, “This is what </span><span class="it"><span class="sc"><span class="content">Adonai
+9:23 Moses and Aaron then went into the Tent of Meeting. When they came back out and blessed the people, the glory of Adonai appeared to all the people.
+9:24 Fire came out from the presence of Adonai, and devoured the burnt offering and the fat on the altar. When all the people saw it, they shouted and fell on their faces.
+10:1 Now Aaron’s sons Nadab and Abihu each took his own censer, put fire in it, laid incense over it, and offered unauthorized fire before Adonai—which He had not commanded them.
+10:2 So fire came out from the presence of Adonai and consumed them. So they died before Adonai.
+10:3 Then Moses said to Aaron, “This is what Adonai spoke of, saying: To those who are near Me I will show myself holy. Upon the faces of all the people I will be glorified.” Then Aaron kept silent.
 10:4 Then Moses called Mishael and Elzaphan, the sons of Aaron’s uncle Uzziel, and said to them, “Come near, carry your relatives away from the front of the Sanctuary to outside of the camp.”
 10:5 So they drew near and carried them, still in their tunics, outside of the camp, as Moses had said.
-10:6 Then Moses said to Aaron, and to Eleazar and Ithamar his sons: “Do not uncover your heads or tear your clothes, so you may not die and He will not be angry with the entire congregation. But let your kinsmen—the whole house of Israel—mourn over the burning that </span><span class="it"><span class="sc"><span class="content">Adonai
-10:7 You must not go out from the entrance of the Tent of Meeting, or you will die, for the anointing oil of </span><span class="it"><span class="sc"><span class="content">Adonai
-10:8  spoke to Aaron saying:
+10:6 Then Moses said to Aaron, and to Eleazar and Ithamar his sons: “Do not uncover your heads or tear your clothes, so you may not die and He will not be angry with the entire congregation. But let your kinsmen—the whole house of Israel—mourn over the burning that Adonai has kindled.
+10:7 You must not go out from the entrance of the Tent of Meeting, or you will die, for the anointing oil of Adonai is on you.” So they acted according to the word of Moses.
+10:8 Adonai spoke to Aaron saying:
 10:9 “Do not drink wine or fermented drink, neither you nor your sons with you, when you go into the Tent of Meeting, so that you do not die. This is to be a statute forever throughout your generations.
 10:10 You are to make a distinction between the holy and the common and between the unclean and the clean.
-10:11 And you are to teach </span><span class="it"><span class="content">Bnei-Yisrael
-10:12 Moses spoke to Aaron and to Eleazar and Itamar his surviving sons: “Take the grain ­offering left over from </span><span class="it"><span class="sc"><span class="content">Adonai
-10:13 You are to eat it in a holy place, because it is your portion and your sons’ portion of the offerings of </span><span class="it"><span class="sc"><span class="content">Adonai
-10:14 You are to eat the breast that was waved and the thigh that was presented in a clean place—you, your sons and your daughters with you—for they are given as your portion, and your children’s portion, out of the sacrifices of the fellowship offerings of </span><span class="it"><span class="content">Bnei-Yisrael
-10:15 They are to bring the thigh that is presented and the breast that is waved with fat portions scorched by fire, to wave it as a wave offering before </span><span class="it"><span class="sc"><span class="content">Adonai
+10:11 And you are to teach Bnei-Yisrael all the statutes which Adonai has spoken to them through Moses.”
+10:12 Moses spoke to Aaron and to Eleazar and Itamar his surviving sons: “Take the grain ­offering left over from Adonai’s offerings by fire, and eat it without hametz beside the altar, for it is most holy.
+10:13 You are to eat it in a holy place, because it is your portion and your sons’ portion of the offerings of Adonai made by fire. For so I have been commanded.
+10:14 You are to eat the breast that was waved and the thigh that was presented in a clean place—you, your sons and your daughters with you—for they are given as your portion, and your children’s portion, out of the sacrifices of the fellowship offerings of Bnei-Yisrael.
+10:15 They are to bring the thigh that is presented and the breast that is waved with fat portions scorched by fire, to wave it as a wave offering before Adonai. So it will be yours and your sons’ with you, a share forever, as Adonai has commanded.”
 10:16 Then Moses searched carefully for the goat of the sin offering and noticed it had been burned up. So he snapped at Eleazar and Itamar, the surviving sons of Aaron, saying:
-10:17 “Why have you not eaten the sin offering in the place of the Sanctuary, since it is most holy, and He gave it to you in order to bear the iniquity of the congregation, to make atonement for them before </span><span class="it"><span class="sc"><span class="content">Adonai
+10:17 “Why have you not eaten the sin offering in the place of the Sanctuary, since it is most holy, and He gave it to you in order to bear the iniquity of the congregation, to make atonement for them before Adonai?
 10:18 Look, its blood was not brought into the inner part of the sanctuary. You certainly shall have eaten it in the Sanctuary, as I commanded.”
-10:19 But Aaron said to Moses, “Behold, today they presented their sin offering and their burnt offering before </span><span class="it"><span class="sc"><span class="content">Adonai
+10:19 But Aaron said to Moses, “Behold, today they presented their sin offering and their burnt offering before Adonai. When things like these have happened to me, would it have been good in the eyes of Adonai if I had eaten the sin offering today?”
 10:20 When Moses heard this, it was good in his eyes.
-11:1  spoke to Moses and to Aaron, saying to them,
-11:2 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
+11:1 Adonai spoke to Moses and to Aaron, saying to them,
+11:2 “Speak to Bnei-Yisrael, saying: These are the living things which you may eat among all the animals that are on the earth.
 11:3 Whatever has a split, divided hoof and chews cud among the animals—that you may eat.
 11:4 “Nevertheless, you should not eat of those that only chew cud, or have a split hoof. The camel, though it chews the cud, does not have a divided hoof, is unclean to you.
 11:5 The coney, though it chews the cud yet does not have a divided hoof, so it is unclean to you.
@@ -300,136 +293,136 @@
 11:41 “Every creeping thing that crawls on the earth is detestable—it shall not be eaten.
 11:42 Whatever moves on its belly or crawls on all fours or has many feet among all the creeping things that crawl on the earth, these you are not to eat, for they are detestable.
 11:43 You are not to contaminate yourselves with any creeping thing that crawls nor make yourselves unclean with them or defiled by them.
-11:44 “For I am </span><span class="it"><span class="sc"><span class="content">Adonai
-11:45 For I am </span><span class="it"><span class="sc"><span class="content">Adonai
-11:46 “This is the </span><span class="it"><span class="content">Torah
+11:44 “For I am Adonai your God. Therefore, sanctify yourselves, and be holy, for I am holy. You are not to defile yourselves with any kind of creeping thing that moves on the earth.
+11:45 For I am Adonai who brought you up out of the land of Egypt, to be your God. Therefore, you should be holy, for I am holy.
+11:46 “This is the Torah of the animal, the bird, every living creature that moves in the waters, and every creature that creeps on the earth,
 11:47 to make a distinction between the unclean and the clean, and between the living thing that may be eaten and the living thing that may not be eaten.”
-12:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-12:2 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
+12:1 Then Adonai spoke to Moses saying:
+12:2 “Speak to Bnei-Yisrael, instructing: If a woman conceives and bears a male child, then she will be unclean for seven days, as in the days of her niddah she will be unclean.
 12:3 In the eighth day the flesh of his foreskin is to be circumcised.
 12:4 She must wait during the blood of purification for 33 days. She is not to touch any holy thing, nor come into the Sanctuary, until the days of her purifying are completed.
-12:5 But if she bears a female child, then she will be unclean for two weeks, as in her </span><span class="it"><span class="content">niddah
-12:6 “When the days of her purification are completed for a son or for a daughter, she is to bring to the </span><span class="it"><span class="content">kohen
-12:7 He is to present it before </span><span class="it"><span class="sc"><span class="content">Adonai
-12:8 If she cannot afford a lamb, then she is to bring two turtledoves or two young pigeons, one for a burnt offering and the other for a sin offering. Then the </span><span class="it"><span class="content">kohen
-13:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-13:2 “When a man has a swelling on the skin of his body or a scab or a bright spot, and it becomes the plague-mark of </span><span class="it"><span class="content">tza'arat
-13:3 The </span><span class="it"><span class="content">kohen
-13:4 If the bright spot is white in the skin of his body, but its appearance is not deeper than the skin and its hair has not turned white, then the </span><span class="it"><span class="content">kohen
-13:5 The </span><span class="it"><span class="content">kohen
-13:6 “The </span><span class="it"><span class="content">kohen
-13:7 But if the scab spreads on the skin, after he has shown himself to the </span><span class="it"><span class="content">kohen
-13:8 The </span><span class="it"><span class="content">kohen
-13:9 “When one has a plague of</span><span class="it"><span class="content">tza'arat
-13:10 The </span><span class="it"><span class="content">kohen
-13:11 it is a chronic </span><span class="it"><span class="content">tza'arat
-13:12 “Suppose the </span><span class="it"><span class="content">tza'arat
-13:13 Then the </span><span class="it"><span class="content">kohen
+12:5 But if she bears a female child, then she will be unclean for two weeks, as in her niddah , and she is to wait in the blood of purification for 66 days.
+12:6 “When the days of her purification are completed for a son or for a daughter, she is to bring to the kohen, at the entrance of the Tent of Meeting, a year old lamb for a burnt offering and a young pigeon or a turtledove, for a sin offering.
+12:7 He is to present it before Adonai and make atonement for her. Then she will be cleansed from the discharge of her blood. This is the Torah for her who gives birth, whether to a male or a female child.
+12:8 If she cannot afford a lamb, then she is to bring two turtledoves or two young pigeons, one for a burnt offering and the other for a sin offering. Then the kohen will make atonement for her, and she will be clean.”
+13:1 Then Adonai spoke to Moses and to Aaron saying:
+13:2 “When a man has a swelling on the skin of his body or a scab or a bright spot, and it becomes the plague-mark of tza'arat in his flesh, then he shall be brought to Aaron the kohen, or to one of his sons, the kohanim.
+13:3 The kohen is to examine the plague of tza'arat on his skin, and if the hair in the plague has turned white, and the appearance of the plague is deeper than the body’s skin, it is the plague of tza'arat. Thus the kohen should examine him and pronounce him unclean.
+13:4 If the bright spot is white in the skin of his body, but its appearance is not deeper than the skin and its hair has not turned white, then the kohen is to isolate the infected person for seven days.
+13:5 The kohen should examine him on the seventh day, and behold, if he sees the plague has not spread in the skin, then the kohen is to isolate him for seven more days.
+13:6 “The kohen is to examine him again on the seventh day, and behold, if the plague has faded and has not spread in the skin, then the kohen shall pronounce him clean. It is a scab. He is to wash his clothes, and be clean.
+13:7 But if the scab spreads on the skin, after he has shown himself to the kohen for his cleansing, he is to show himself to the kohen once again.
+13:8 The kohen is to examine him, and if the scab has spread on the skin, then the kohen shall pronounce him unclean. It is tza'arat.
+13:9 “When one has a plague oftza'arat, he is to be brought to the kohen.
+13:10 The kohen is to examine him, and behold, if there is a white swelling in the skin and it has turned the hair white and if there is raw flesh in the swelling,
+13:11 it is a chronic tza'arat in the skin of his flesh, and the kohen is to pronounce him unclean. He is to isolate him, for he is unclean.
+13:12 “Suppose the tza'arat breaks out above the flesh, and so far as it all appears in the eyes of the kohen, covers all the skin of the infected person from his head to his feet.
+13:13 Then the kohen will see, and behold, if the tza’arat has covered all of his body, he is to pronounce him clean of the plague. Since it has all turned white, he is clean.
 13:14 But whenever raw flesh appears upon him, he will be unclean.
-13:15 The </span><span class="it"><span class="content">kohen
-13:16 Or, if the raw flesh changes and turns white, then he must come to the </span><span class="it"><span class="content">kohen
-13:17 The </span><span class="it"><span class="content">kohen
+13:15 The kohen is to examine the raw flesh, and pronounce him unclean. The raw flesh is unclean—it is tza'arat.
+13:16 Or, if the raw flesh changes and turns white, then he must come to the kohen.
+13:17 The kohen is to examine him, and behold, if the plague has turned white, then the kohen should pronounce him clean of the plague. He is clean.
 13:18 “When the body has a boil on its skin and it has healed,
-13:19 but in the place of the boil there is a white swelling or a bright reddish-white spot, then it shall be shown to the </span><span class="it"><span class="content">kohen
-13:20 The </span><span class="it"><span class="content">kohen
-13:21 But if the </span><span class="it"><span class="content">kohen
-13:22 If it spreads in the skin, then the </span><span class="it"><span class="content">kohen
-13:23 But if the bright spot stays in its place and has not spread, it is merely the scar from the boil—the </span><span class="it"><span class="content">kohen
+13:19 but in the place of the boil there is a white swelling or a bright reddish-white spot, then it shall be shown to the kohen.
+13:20 The kohen is to examine it, and behold, if its appearance is lower than the skin and its hair has turned white, then the kohen is to pronounce him unclean. It is a plague of tza'arat that has broken out within the boil.
+13:21 But if the kohen examines it and sees there are no white hairs within, and if it is not deeper than the skin but is faded, then the kohen is to isolate him seven days.
+13:22 If it spreads in the skin, then the kohen is to pronounce him unclean. It is a plague.
+13:23 But if the bright spot stays in its place and has not spread, it is merely the scar from the boil—the kohen is to pronounce him clean.
 13:24 “Or suppose the body has a burn from fire on its skin, and the raw flesh of the burn becomes a bright spot, reddish-white, or white.
-13:25 Then the </span><span class="it"><span class="content">kohen
-13:26 But if the </span><span class="it"><span class="content">kohen
-13:27 The </span><span class="it"><span class="content">kohen
-13:28 If the bright spot stays in its place, and has not spread in the skin but is faded, it is the swelling from the burn, and the </span><span class="it"><span class="content">kohen
+13:25 Then the kohen is to examine it, and behold, if the hair in the bright spot has turned white and its appearance is deeper than the skin, it is tza'arat. It has broken out in the burning, and the kohen is to pronounce him unclean—it is the plague of tza'arat.
+13:26 But if the kohen examines it and sees there is no white hair in the bright spot, and it is not lower than the skin but is faded, then the kohen is to isolate him seven days.
+13:27 The kohen is to examine him on the seventh day. If it has spread in the skin, then the kohen is to pronounce him unclean. It is the plague of tza'arat.
+13:28 If the bright spot stays in its place, and has not spread in the skin but is faded, it is the swelling from the burn, and the kohen shall pronounce him clean, for it is merely a scar from the burn.
 13:29 “When a man or woman has a plague on the head or on the chin,
-13:30 then the </span><span class="it"><span class="content">kohen
-13:31 If the </span><span class="it"><span class="content">kohen
-13:32 On the seventh day the </span><span class="it"><span class="content">kohen
-13:33 then he should be shaved, but he is not to shave the scab. The </span><span class="it"><span class="content">kohen
-13:34 On the seventh day, the </span><span class="it"><span class="content">kohen
+13:30 then the kohen is to examine the plague, and behold, if its appearance is deeper than the skin, and the hair in it is yellow and thin, then the kohen is to pronounce him unclean. It is a scab—tza'arat of the head or the chin.
+13:31 If the kohen examines the plague of the scab, and behold its appearance is no deeper than the skin and there is no black hair within, then the kohen is to isolate the person infected with the scab for seven days.
+13:32 On the seventh day the kohen is to examine the plague, and behold, if the scab has not spread and there is no yellow hair in it, and the appearance of the scab is no deeper than the skin,
+13:33 then he should be shaved, but he is not to shave the scab. The kohen is then to isolate the one who has the scab for seven more days.
+13:34 On the seventh day, the kohen is to examine the scab, and behold, if the scab has not spread in the skin and its appearance is no deeper than the skin, then the kohen shall pronounce him clean. He is to wash his clothes, and be clean.
 13:35 But if the scab spreads in the skin after his cleansing,
-13:36 then the </span><span class="it"><span class="content">kohen
-13:37 But if he sees the scab is stopped and black hair has grown in it, the scab is healed, and he is clean. The </span><span class="it"><span class="content">kohen
+13:36 then the kohen is to examine him, and behold, if the scab has spread in the skin, the kohen may not look for the yellow hair, he is unclean.
+13:37 But if he sees the scab is stopped and black hair has grown in it, the scab is healed, and he is clean. The kohen should pronounce him clean.
 13:38 “Suppose a man or a woman has bright spots on the skin of the body—bright white spots.
-13:39 Then the </span><span class="it"><span class="content">kohen
+13:39 Then the kohen is to examine them, and behold, if the bright spots on the skin of their body are a dull white, it is a harmless rash broken out in the skin. He is clean.
 13:40 “If a man’s hair has fallen from his head, he is bald. He is clean.
 13:41 Or if the borders of his face become bald, his forehead is bald. He is clean.
-13:42 But if on the baldhead or bald forehead, there is a reddish-white plague, it is </span><span class="it"><span class="content">tza'arat
-13:43 Then the </span><span class="it"><span class="content">kohen
-13:44 he is a man with </span><span class="it"><span class="content">tza'arat
-13:45 “The one with </span><span class="it"><span class="content">tza'arat
+13:42 But if on the baldhead or bald forehead, there is a reddish-white plague, it is tza'arat breaking out in his baldhead or bald forehead.
+13:43 Then the kohen is to examine him, and behold, if the rising of the plague is reddish-white on his bald head or bald forehead, like the appearance of tza'arat in the skin of the flesh,
+13:44 he is a man with tza'arat He is unclean. The kohen should definitely pronounce him unclean—his plague-mark is on his head.
+13:45 “The one with tza'arat who has the plague-mark shall wear torn clothes, the hair of his head is to hang loose, he is to cover his upper lip and cry, ‘Unclean! Unclean!’
 13:46 All the days during which the plague is on him he will be unclean. He is unclean. He is to dwell alone. Outside of the camp will be his dwelling.
-13:47 “Also when a garment has a mark of </span><span class="it"><span class="content">tza'arat
+13:47 “Also when a garment has a mark of tza'arat on it—whether it is a woolen or a linen garment,
 13:48 whether it is woven or textured, linen or wool, leather, or anything made from leather—
-13:49 or if the mark is greenish or reddish within the garment or in the leather, or in the weaving or the texture, or in anything made from leather, it is the plague of </span><span class="it"><span class="content">tza'arat
-13:50 The </span><span class="it"><span class="content">kohen
+13:49 or if the mark is greenish or reddish within the garment or in the leather, or in the weaving or the texture, or in anything made from leather, it is the plague of tza'arat and shall be shown to the kohen.
+13:50 The kohen is to examine the plague and isolate it for seven days.
 13:51 Then he is to reexamine the plague on the seventh day. If the plague has spread in the garment, either in the weaving, the texture or the leather, whatever the use for the leather may be, the plague is a destructive mildew. It is unclean.
 13:52 He is to burn the garment or the weaving, or the texture, wool or linen, or anything of leather, in which the plague resides, for it is a destructive mildew. It is to be burned in the fire.
-13:53 “If the </span><span class="it"><span class="content">kohen
-13:54 the </span><span class="it"><span class="content">kohen
-13:55 “Then the </span><span class="it"><span class="content">kohen
-13:56 If the </span><span class="it"><span class="content">kohen
+13:53 “If the kohen examines it, and behold, the plague has not spread in the garment, either in the weaving, the texture, or in anything made of leather,
+13:54 the kohen shall command that they wash the thing which has the mark, and he is to isolate it seven more days.
+13:55 “Then the kohen is to reexamine it, after the mark has been washed, and behold, if the mark has not changed its color and has not spread, it is unclean. You are to burn it in the fire, whether the rot is inside or outside.
+13:56 If the kohen looks, and sees the mark has faded after it has been washed, then he is to tear it out of the garment, or the leather, or weaving, or texture.
 13:57 But if it appears again in the garment, either in the weaving, the texture, or in anything made of leather, it is spreading. You are to burn with fire whatever has the mark.
 13:58 The garment, or weaving, or texture, or whatever leather item it is that you have washed, if the mark has departed from it, is to be washed a second time, and will become clean.”
-13:59 This is the </span><span class="it"><span class="content">Torah
-14:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-14:2 “This is the </span><span class="it"><span class="content">Torah
-14:3 and the </span><span class="it"><span class="content">kohen
-14:4 then the </span><span class="it"><span class="content">kohen
-14:5 The </span><span class="it"><span class="content">kohen
+13:59 This is the Torah for a mark of tza'arat in a garment of wool or linen, either in the weaving, the texture, or in anything of leather, to pronounce it clean or to pronounce it unclean.
+14:1 Then Adonai spoke to Moses, saying:
+14:2 “This is the Torah of the one with tza'arat in the day of his cleansing. He shall be brought to the kohen,
+14:3 and the kohen is to go to the outside of the camp. The kohen is to examine him, and behold, if the mark of tza'arat is healed in one with tza'arat,
+14:4 then the kohen is to command that two clean living birds, cedar wood, scarlet and hyssop be brought for the one being cleansed.
+14:5 The kohen shall command them to kill one of the birds in a clay pot over living water.
 14:6 As for the living bird, he is to take it, the cedar wood, the scarlet and the hyssop, and dip them with the living bird into the blood of the bird that was killed over the living water.
-14:7 He is to sprinkle on the one being cleansed from the </span><span class="it"><span class="content">tza'arat
+14:7 He is to sprinkle on the one being cleansed from the tza'arat seven times and pronounce him clean, then release the living bird over the open field.
 14:8 “The one to be cleansed must wash his clothes, shave off all his hair, and bathe himself in water. Then he shall be clean. After that he may come into the camp, but is to dwell outside his tent for seven days.
 14:9 Then on the seventh day, he is to shave all his hair from his head, his beard, and his eyebrows—he must shave off all his hair. He is to wash his clothes, and bathe his body in water. Then he will be clean.
 14:10 “On the eighth day he is to take two male lambs without blemish, a one-year-old ewe lamb without blemish, three tenths of a pint of fine flour as a grain offering, mingled with oil, and a pint of oil.
-14:11 The </span><span class="it"><span class="content">kohen
-14:12 The </span><span class="it"><span class="content">kohen
-14:13 “Then he is to slaughter the male lamb in the place where they slaughter the sin offering and the burnt offering, in the Sanctuary area. For the sin offering like the trespass offering belongs to the </span><span class="it"><span class="content">kohen
-14:14 Then the </span><span class="it"><span class="content">kohen
-14:15 The </span><span class="it"><span class="content">kohen
-14:16 He is to dip his right finger in the oil that is in his left hand and sprinkle some of the oil with his finger seven times before </span><span class="it"><span class="sc"><span class="content">Adonai
-14:17 Then the </span><span class="it"><span class="content">kohen
-14:18 From what remains of the oil that is in his hand, the </span><span class="it"><span class="content">kohen
-14:19 “The </span><span class="it"><span class="content">kohen
-14:20 Then the </span><span class="it"><span class="content">kohen
+14:11 The kohen who cleanses him is to set the man who to be cleansed along with those items before Adonai, at the entrance of the Tent of Meeting.
+14:12 The kohen shall then take one of the male lambs, and offer it for a trespass offering, with the pint of oil, and wave them as a wave offering before Adonai.
+14:13 “Then he is to slaughter the male lamb in the place where they slaughter the sin offering and the burnt offering, in the Sanctuary area. For the sin offering like the trespass offering belongs to the kohen. It is most holy.
+14:14 Then the kohen is to take some of the blood of the trespass offering and dab it on the tip of the right ear of the one being cleansed, on the thumb of his right hand and on the big toe of his right foot.
+14:15 The kohen shall then take some of the pint of oil and pour it into the palm of his own left hand.
+14:16 He is to dip his right finger in the oil that is in his left hand and sprinkle some of the oil with his finger seven times before Adonai.
+14:17 Then the kohen shall dab some of the rest of the oil that is in his hand on the tip of the right ear of the one being cleansed, on the thumb of his right hand and on the big toe of his right foot, on top of the blood of the trespass offering.
+14:18 From what remains of the oil that is in his hand, the kohen is to dab on the head of the one being cleansed. In this way the kohen will make atonement for him before Adonai.
+14:19 “The kohen shall offer the sin offering and make atonement for the one being cleansed because of his uncleanness. Afterward he is to slaughter the burnt offering.
+14:20 Then the kohen is to present the burnt offering along with the grain offering on the altar. So the kohen shall make atonement for him, and he will be clean.
 14:21 “If he is poor and cannot afford so much, then he shall take one male lamb for a trespass offering to be waved, to make atonement for him, plus one tenth of an ephah of fine flour mingled with oil for a grain offering, a pint of oil,
 14:22 two turtledoves or two young pigeons, such as he is able to afford. The one shall be a sin offering and the other a burnt offering.
-14:23 “On the eighth day he is to bring them to the </span><span class="it"><span class="content">kohen
-14:24 The </span><span class="it"><span class="content">kohen
-14:25 He is to slaughter the lamb of the trespass offering. The </span><span class="it"><span class="content">kohen
-14:26 The </span><span class="it"><span class="content">kohen
-14:27 He is to sprinkle with his right finger some of the oil that is in his left hand seven times before </span><span class="it"><span class="sc"><span class="content">Adonai
-14:28 Then the </span><span class="it"><span class="content">kohen
-14:29 The rest of the oil that is in his hand the </span><span class="it"><span class="content">kohen
+14:23 “On the eighth day he is to bring them to the kohen for his cleansing, at the entrance of the Tent of Meeting before Adonai.
+14:24 The kohen is to take the lamb of the trespass offering and the pint of oil, and wave them for a wave offering before Adonai.
+14:25 He is to slaughter the lamb of the trespass offering. The kohen is to take some of the blood of the trespass offering and dab it on the tip of the right ear of the one being cleansed, on the thumb of his right hand, and on the big toe of his right foot.
+14:26 The kohen shall then pour some of the oil into the palm of his own left hand.
+14:27 He is to sprinkle with his right finger some of the oil that is in his left hand seven times before Adonai.
+14:28 Then the kohen is to dab some of the oil that is in his hand on the tip of the right ear of the one being cleansed, also on the thumb of his right hand, and on the big toe of his right foot, on top of the place of the blood of the trespass offering.
+14:29 The rest of the oil that is in his hand the kohen is to dab on the head of the one being cleansed, to make atonement for him before Adonai.
 14:30 He is to offer one of the turtledoves or the young pigeons, from what his hand can afford,
-14:31 the one for a sin offering, and the other for a burnt offering, with the grain offering. The </span><span class="it"><span class="content">kohen
-14:32 This is the </span><span class="it"><span class="content">Torah
-14:33  spoke to Moses and to Aaron, saying:
-14:34 “Suppose you have come into the land of Canaan, which I give to you for a possession, and I put a mark of </span><span class="it"><span class="content">tza'arat
-14:35 Then the one who owns the house shall come and tell the </span><span class="it"><span class="content">kohen
-14:36 The </span><span class="it"><span class="content">kohen
+14:31 the one for a sin offering, and the other for a burnt offering, with the grain offering. The kohen shall make atonement for him being cleansed before Adonai.”
+14:32 This is the Torah for one on who is the mark of tza'arat, who is not able to afford the sacrifice for his cleansing.
+14:33 Adonai spoke to Moses and to Aaron, saying:
+14:34 “Suppose you have come into the land of Canaan, which I give to you for a possession, and I put a mark of tza'arat in a house in the land you possess.
+14:35 Then the one who owns the house shall come and tell the kohen, saying: ‘Something like a mark has appeared in my house.’
+14:36 The kohen is to order the house emptied before he goes in to examine the mark, so that nothing in the house might be made unclean. Then afterward the kohen is to enter to inspect the house.
 14:37 He is to examine the mark, and behold, if the mark is in the walls of the house with hollow streaks, greenish or reddish, and appears deeper than the wall,
-14:38 then the </span><span class="it"><span class="content">kohen
-14:39 Then the </span><span class="it"><span class="content">kohen
-14:40 then the </span><span class="it"><span class="content">kohen
+14:38 then the kohen is to go out of the house to the door and close up the house for seven days.
+14:39 Then the kohen is to come again on the seventh day, and behold, if the mark has spread in the walls of the house,
+14:40 then the kohen is to command that they take out the stones which are marked and throw them into an unclean place outside of the city.
 14:41 He shall also have the inside of the house scraped all throughout, and they are to dump the mortar that they scraped off outside of the city into an unclean place.
 14:42 They may then take other stones and put them in the place of those stones. Likewise he can take other mortar, and plaster the house.
 14:43 “But suppose the contamination returns, breaking out in the house, after he has pulled out the stones and after he has scraped the house, and it has been re-plastered.
-14:44 Then the </span><span class="it"><span class="content">kohen
+14:44 Then the kohen is to go examine, and behold, if the plague has spread within the house, it is a destructive mildew inside. It is unclean.
 14:45 He is to break down the house, its stones, its timber, along with all the house’s mortar, and carry them out of the city into an unclean place.
 14:46 “Moreover, whoever goes into the house while it is shut up will be unclean until the evening.
 14:47 The one who lies down in the house must wash his clothes, and he who eats in the house must wash his clothes too.
-14:48 “But if the </span><span class="it"><span class="content">kohen
+14:48 “But if the kohen comes in, inspects it, and behold, the plague has not spread within the house after it was re-plastered, then he shall pronounce the house clean, because the contamination is healed.
 14:49 In order to cleanse the house he is to take two birds, cedar wood, scarlet and hyssop.
 14:50 He is to kill one of the birds in a clay pot over living water.
 14:51 Then he is to take the cedar wood, the hyssop, the scarlet and the living bird, and dip them into the blood of the slain bird as well as the living water, and sprinkle the house seven times.
 14:52 He shall cleanse the house with the blood of the bird, with the living water, with the living bird, the cedar wood, the hyssop and the scarlet.
 14:53 But he is to let the living bird go out of the city into the open field. So he is to make atonement for the house, and it will be clean.”
-14:54 This is the </span><span class="it"><span class="content">Torah
-14:55 or the </span><span class="it"><span class="content">tza'arat
+14:54 This is the Torah for any mark of tza'arat—even for a scab,
+14:55 or the tza'arat in a garment or for a house
 14:56 or for a swelling, a scab, or a bright spot—
-14:57 to teach when it is unclean, and when it is clean. This is the </span><span class="it"><span class="content">Torah
-15:1  spoke to Moses and to Aaron, saying:
-15:2 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
+14:57 to teach when it is unclean, and when it is clean. This is the Torah of tza'arat.
+15:1 Adonai spoke to Moses and to Aaron, saying:
+15:2 “Speak to Bnei-Yisrael and tell them: When any man has a fluid discharge from his body, because of his discharge he is unclean.
 15:3 This is to be his uncleanness in his discharge. Whether his body flows with his discharge or his body obstructs his discharge, it is his uncleanness.
 15:4 “Every bed on which he who has the discharge lies will become unclean, and everything he sits on will be unclean.
 15:5 Whoever touches his bed is to wash his clothes and bathe himself in water, and be unclean until the evening.
@@ -441,26 +434,26 @@
 15:11 “Also anyone the person with the discharge touches without rinsing his hands in water shall wash his clothes and bathe himself in water, and be unclean until the evening.
 15:12 “A clay pot that one with the discharge touches shall be broken, and every wooden vessel shall be rinsed in water.
 15:13 “When the one who has a fluid discharge is cleansed of his issue, then he is to count for himself seven days for his purification and wash his clothes. Then he is to bathe his body in running water, and he will be clean.
-15:14 On the eighth day he is to take two turtledoves or two young pigeons, and come before </span><span class="it"><span class="sc"><span class="content">Adonai
-15:15 The </span><span class="it"><span class="content">kohen
+15:14 On the eighth day he is to take two turtledoves or two young pigeons, and come before Adonai at the entrance of the Tent of Meeting, and give them to the kohen.
+15:15 The kohen is to offer them, one for a sin offering and the other for a burnt offering. So the kohen shall make atonement for him before Adonai for his fluid discharge.
 15:16 “If any man has an emission of semen, then he is to bathe his whole body in water and be unclean until the evening.
 15:17 Every garment and all leather with semen on it are to be washed with water, and will be unclean until the evening.
 15:18 If a man lies with a woman and there is an emission of semen, they shall both bathe themselves in water, and be unclean until the evening.
-15:19 “If a woman has a discharge, and her discharge from her body is blood, she shall be in her </span><span class="it"><span class="content">niddah
-15:20 Everything that she lies on in her </span><span class="it"><span class="content">niddah
+15:19 “If a woman has a discharge, and her discharge from her body is blood, she shall be in her niddah seven days. And whoever touches her will be unclean until the evening.
+15:20 Everything that she lies on in her niddah will become unclean. Also everything that she sits on will become unclean.
 15:21 Whoever touches her bed is to wash his clothes and bathe himself in water, and be unclean until the evening.
 15:22 Whoever touches anything that she sits on is to wash his clothes and bathe himself in water, and be unclean until the evening.
 15:23 If it is on the bed or on anything where she sits, when he touches it, he will be unclean until the evening.
-15:24 If any man lies with her, so that her </span><span class="it"><span class="content">niddah
-15:25 “Now if a woman has a discharge of her blood for many days not during her </span><span class="it"><span class="content">niddah
-15:26 Every bed where she lies all the days of her discharge will be like her bed during her </span><span class="it"><span class="content">niddah
+15:24 If any man lies with her, so that her niddah gets on him, he will be unclean for seven days and every bed where he lies will be unclean.
+15:25 “Now if a woman has a discharge of her blood for many days not during her niddah or if she has a discharge beyond the time of her niddah all the days of the discharge of her uncleanness shall be as in the days of her niddah . She is unclean.
+15:26 Every bed where she lies all the days of her discharge will be like her bed during her niddah , and everything she sits on will become unclean like the uncleanness of her niddah .
 15:27 Whoever touches these things will become unclean and is to wash his clothes and bathe himself in water, and be unclean until the evening.
 15:28 “But if she is cleansed of her discharge, then she is to count off seven days for herself, and after that she will be clean.
-15:29 On the eighth day she is to take two turtledoves or two young pigeons, and bring them to the </span><span class="it"><span class="content">kohen
-15:30 The </span><span class="it"><span class="content">kohen
-15:31 “So you are to keep </span><span class="it"><span class="content">Bnei-Yisrael
-15:32 This is the </span><span class="it"><span class="content">Torah
-15:33 as well as for her who has her period of </span><span class="it"><span class="content">niddah
+15:29 On the eighth day she is to take two turtledoves or two young pigeons, and bring them to the kohen, at the entrance of the Tent of Meeting.
+15:30 The kohen is to offer the one for a sin offering, and the other for a burnt offering. So the kohen will make atonement for her before Adonai for the uncleanness of her discharge.
+15:31 “So you are to keep Bnei-Yisrael separate from their uncleanness, so they will not die in their uncleanness by defiling My Tabernacle that is in their midst.”
+15:32 This is the Torah for one who has a discharge or for one who has an emission of semen, which causes him to become unclean,
+15:33 as well as for her who has her period of niddah , and for the man or woman who has a discharge, or the one who lies with her who is unclean.
 16:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
 16:2  said to Moses, “Tell Aaron your brother not to come at just any time into the Holiest Place behind the curtain —before the atonement cover which is on the Ark—so that he would not die. For I will be appearing in the cloud over the atonement cover.
 16:3 “In this way shall Aaron come into the Sanctuary: with a young bull for a sin offering and a ram for a burnt offering.
