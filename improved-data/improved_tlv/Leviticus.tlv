@@ -454,27 +454,27 @@
 15:31 “So you are to keep Bnei-Yisrael separate from their uncleanness, so they will not die in their uncleanness by defiling My Tabernacle that is in their midst.”
 15:32 This is the Torah for one who has a discharge or for one who has an emission of semen, which causes him to become unclean,
 15:33 as well as for her who has her period of niddah , and for the man or woman who has a discharge, or the one who lies with her who is unclean.
-16:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-16:2  said to Moses, “Tell Aaron your brother not to come at just any time into the Holiest Place behind the curtain —before the atonement cover which is on the Ark—so that he would not die. For I will be appearing in the cloud over the atonement cover.
+16:1 Then Adonai spoke to Moses after the death of the two sons of Aaron, when they approached the presence of Adonai and died.
+16:2 Adonai said to Moses, “Tell Aaron your brother not to come at just any time into the Holiest Place behind the curtain —before the atonement cover which is on the Ark—so that he would not die. For I will be appearing in the cloud over the atonement cover.
 16:3 “In this way shall Aaron come into the Sanctuary: with a young bull for a sin offering and a ram for a burnt offering.
 16:4 He is to put on the holy linen garment, have the linen undergarments on his body, put on the linen sash, and wear the linen turban—they are the holy garments. He shall bathe his body in water, and put them on.
-16:5 “Then he is to take from the congregation of </span><span class="it"><span class="content">Bnei-Yisrael
+16:5 “Then he is to take from the congregation of Bnei-Yisrael two he-goats for a sin offering and one ram for a burnt offering.
 16:6 Then Aaron is to offer the bull for the sin offering which is for himself and make atonement for himself and his house.
-16:7 Then he is take the two goats and present them before </span><span class="it"><span class="sc"><span class="content">Adonai
-16:8 Aaron will then cast lots for the two goats—one lot for </span><span class="it"><span class="sc"><span class="content">Adonai
-16:9 Aaron is to present the goat on which the lot for </span><span class="it"><span class="sc"><span class="content">Adonai
-16:10 But the goat upon which the lot for the scapegoat fell is to be presented alive before </span><span class="it"><span class="sc"><span class="content">Adonai
+16:7 Then he is take the two goats and present them before Adonai at the entrance of the Tent of Meeting.
+16:8 Aaron will then cast lots for the two goats—one lot for Adonai, and the other lot for the scapegoat.
+16:9 Aaron is to present the goat on which the lot for Adonai fell and make it a sin offering.
+16:10 But the goat upon which the lot for the scapegoat fell is to be presented alive before Adonai, to make atonement upon it, by sending it away as the scapegoat into the wilderness.
 16:11 “Also Aaron is to present the bull of the sin offering which is for himself and so make atonement for himself and his house. He is to slaughter the bull of the sin offering which is for himself.
-16:12 He is to take a firepan full of coals of fire from off the altar before </span><span class="it"><span class="sc"><span class="content">Adonai
-16:13 Then he is to put the incense on the fire before </span><span class="it"><span class="sc"><span class="content">Adonai
+16:12 He is to take a firepan full of coals of fire from off the altar before Adonai plus two handfuls of sweet powdered incense and bring it within the curtain.
+16:13 Then he is to put the incense on the fire before Adonai, so that the cloud of the incense may cover the atonement cover that is on the Ark, so that he would not die.
 16:14 He is then to take some of the blood of the bull and sprinkle it with his finger on the atonement cover, on the east side. Before the atonement cover he is to sprinkle some of the blood with his finger seven times.
 16:15 “Then he is to slaughter the goat of the sin offering which is for the people, bring its blood behind the curtain, and do with it as he did with the blood of the bull—sprinkle it upon the atonement cover, and before the atonement cover.
-16:16 So he is to make atonement for the Holy Place, because of the ­uncleanness of </span><span class="it"><span class="content">Bnei-Yisrael
+16:16 So he is to make atonement for the Holy Place, because of the ­uncleanness of Bnei-Yisrael and because of their transgressions, all their sins. He is to do the same for the Tent of Meeting, which dwells with them in the midst of their impurities.
 16:17 No one is to be in the Tent of Meeting when he enters to make atonement in the Holy Place until he comes out, and has made atonement for himself and for his household, and for all the assembly of Israel.
-16:18 “Then he is to go out to the altar that is before </span><span class="it"><span class="sc"><span class="content">Adonai
-16:19 He is to sprinkle some of the blood on it with his finger seven times, and cleanse it, and consecrate it from the uncleanness of </span><span class="it"><span class="content">Bnei-Yisrael
+16:18 “Then he is to go out to the altar that is before Adonai and make atonement for it. He is to take some of the bull’s blood and some of the goat’s blood and dab it around on the horns of the altar.
+16:19 He is to sprinkle some of the blood on it with his finger seven times, and cleanse it, and consecrate it from the uncleanness of Bnei-Yisrael.
 16:20 “When he has finished atoning for the Holy Place, the Tent of Meeting and the altar, then he is to present the live goat.
-16:21 Aaron should lay both his hands on the head of the live goat and confess over it all the iniquities of </span><span class="it"><span class="content">Bnei-Yisrael
+16:21 Aaron should lay both his hands on the head of the live goat and confess over it all the iniquities of Bnei-Yisrael and all their transgressions, all their sins. He should place them on the head of the goat and send it away into the wilderness by the hand of a man who is in readiness.
 16:22 The goat will carry all their iniquities by itself into a solitary land and he is to leave the goat in the wilderness.
 16:23 “Then Aaron is to come into the Tent of Meeting, take off the linen garments that he put on when he went into the Holy Place, and leave them there.
 16:24 He is to bathe himself with water in a holy place, put on his garments, and come out to offer his burnt offering and the burnt offering of the people, to make atonement for himself and for the people.
@@ -483,33 +483,33 @@
 16:27 “The bull for the sin offering and the goat for the sin offering, whose blood was brought in to make atonement in the Holy Place, shall be carried outside the camp, and their hides, their flesh, and their dung burned with fire.
 16:28 The one who burns them is to wash his clothes and bathe his body in water. Then afterward he may come into the camp.
 16:29 “It is to be a statute to you forever, that in the seventh month, on the tenth day of the month, you are to afflict your souls, and do no kind of work—both the native-born and the outsider dwelling among you.
-16:30 For on this day atonement will be made for you, to cleanse you. From all your sins you will be clean before </span><span class="it"><span class="sc"><span class="content">Adonai
-16:31 It is a </span><span class="it"><span class="content">Shabbat
-16:32 The </span><span class="it"><span class="content">kohen
-16:33 He is to make atonement for the Holy Sanctuary, for the Tent of Meeting, for the altar, for the </span><span class="it"><span class="content">kohanim
-16:34 “This will be an everlasting statute for you, to make atonement for </span><span class="it"><span class="content">Bnei-Yisrael
-17:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-17:2 “Speak to Aaron, to his sons, and to all </span><span class="it"><span class="content">Bnei-Yisrael
+16:30 For on this day atonement will be made for you, to cleanse you. From all your sins you will be clean before Adonai.
+16:31 It is a Shabbat of solemn rest to you, and you are to afflict your souls. It is a statute forever.
+16:32 The kohen who is anointed and who is consecrated to be kohen in his father’s place will make the atonement, and put on the linen garments, the holy garments.
+16:33 He is to make atonement for the Holy Sanctuary, for the Tent of Meeting, for the altar, for the kohanim, and for all the people of the assembly.
+16:34 “This will be an everlasting statute for you, to make atonement for Bnei-Yisrael once in the year because of all their sins.” It was done as Adonai commanded Moses.
+17:1 Then Adonai spoke to Moses, saying:
+17:2 “Speak to Aaron, to his sons, and to all Bnei-Yisrael, and say to them: This is the word which Adonai has commanded.
 17:3 Anyone from the house of Israel who slaughters a bull, a lamb or a goat in the camp or outside the camp,
-17:4 but has not brought it to the entrance of the Tent of Meeting to offer it as a sacrifice to </span><span class="it"><span class="sc"><span class="content">Adonai
-17:5 Thus </span><span class="it"><span class="content">Bnei-Yisrael
-17:6 The </span><span class="it"><span class="content">kohen
+17:4 but has not brought it to the entrance of the Tent of Meeting to offer it as a sacrifice to Adonai before the Tabernacle—let bloodguilt be charged to that man. He has shed blood—that man is to be cut off from among his people.
+17:5 Thus Bnei-Yisrael may bring their sacrifices that they were making in the open field to Adonai, at the entrance of the Tent of Meeting to the kohen, and offer them as sacrifices of fellowship offerings to Adonai.
+17:6 The kohen is to sprinkle the blood on the altar of Adonai at the entrance of the Tent of Meeting and burn up the fat as smoke for a soothing aroma to Adonai.
 17:7 They are no longer to offer their sacrifices to the goat-demons after which they play the prostitute. This will be a statute forever to them throughout their generations.
 17:8 “Then you are to say to them: Anyone from the house of Israel, or from the outsiders dwelling among them, who offers a burnt offering or sacrifice,
-17:9 but does not bring it to the entrance of the Tent of Meeting to sacrifice it to </span><span class="it"><span class="sc"><span class="content">Adonai
+17:9 but does not bring it to the entrance of the Tent of Meeting to sacrifice it to Adonai, is to be cut off from his people.
 17:10 “Anyone from the house of Israel, or from the outsiders dwelling among them, who eats any kind of blood, I will set my face against that soul—the one who eats blood—and will cut him off from among his people.
 17:11 For the life of the creature is in the blood, and I have given it to you on the altar to make atonement for your lives—for it is the blood that makes atonement because of the life.
-17:12 Therefore I have said to </span><span class="it"><span class="content">Bnei-Yisrael
-17:13 “Any person from </span><span class="it"><span class="content">Bnei-Yisrael
-17:14 For the life of every creature, its blood is in its life. Therefore I said to </span><span class="it"><span class="content">Bnei-Yisrael
+17:12 Therefore I have said to Bnei-Yisrael: No person among you may eat blood, nor may any outsider dwelling among you eat blood.
+17:13 “Any person from Bnei-Yisrael, or from the outsiders dwelling among them, who hunts as game any animal or bird that may be eaten, must drain its blood and cover it with dust.
+17:14 For the life of every creature, its blood is in its life. Therefore I said to Bnei-Yisrael: You are not to eat the blood of any kind of creature, for the life of every creature is its blood. Whoever eats it is to be cut off.
 17:15 “Everyone who eats what dies naturally or is torn by animals—whether he is native-born or a foreigner—is to wash his clothes and bathe himself in water. He will be unclean until the evening, then he will be clean.
 17:16 But if he does not wash them or bathe his body, then he will bear his iniquity.”
-18:1  said to Moses:
-18:2 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
+18:1 Adonai said to Moses:
+18:2 “Speak to Bnei-Yisrael and say to them: I am Adonai your God.
 18:3 You are not to act as they do in the land of Egypt, where you used to live. Nor are you to act as they do in the land of Canaan, where I am bringing you, nor are you to walk in their customs.
-18:4 You are to obey My ordinances and keep My statutes and walk in them—I am </span><span class="it"><span class="sc"><span class="content">Adonai
-18:5 So you are to keep My statutes and My ordinances. The one who does them will live by them. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-18:6 “None of you is to come near anyone who is his close relatives to uncover their nakedness. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+18:4 You are to obey My ordinances and keep My statutes and walk in them—I am Adonai your God.
+18:5 So you are to keep My statutes and My ordinances. The one who does them will live by them. I am Adonai.
+18:6 “None of you is to come near anyone who is his close relatives to uncover their nakedness. I am Adonai.
 18:7 “You are not to uncover the nakedness of your father or your mother. She is your mother. You should not uncover her nakedness.
 18:8 You are not to uncover the nakedness of your father’s wife, for it is your father’s nakedness.
 18:9 You are not to uncover the nakedness of your sister, the daughter of your father or the daughter of your mother, whether born at home or elsewhere.
@@ -522,9 +522,9 @@
 18:16 You are not to uncover the nakedness of your brother’s wife, because that is your brother’s nakedness.
 18:17 You are not to uncover the nakedness of both a woman and her daughter. You are not to take her son’s daughter, or her daughter’s daughter, to uncover her nakedness, for they are direct relatives. That is wickedness.
 18:18 You are not to marry your wife’s sister, to be a rival, uncovering her nakedness, while her sister is still alive.
-18:19 “You are not to approach a woman to uncover her nakedness while she is in the impurity of her </span><span class="it"><span class="content">niddah
+18:19 “You are not to approach a woman to uncover her nakedness while she is in the impurity of her niddah .
 18:20 You are not to lie sexually with your neighbor’s wife and defile yourself with her.
-18:21 “You are not to give any of your children in sacrifice to Molech, and defile the Name of your God. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+18:21 “You are not to give any of your children in sacrifice to Molech, and defile the Name of your God. I am Adonai.
 18:22 “You are not to lie with a man, as with a woman—that is an abomination.
 18:23 You are not to lie with any animal to defile yourself with it, nor is any woman to give herself to an animal, to lie down with it—that is a perversion.
 18:24 “Do not defile yourselves in any of these things, for in all of these ways the nations which I am casting out before you were defiled.
@@ -533,52 +533,52 @@
 18:27 “For all these abominations were done by the men of the land who were before you, and the land became defiled.
 18:28 If you defile it, the land will vomit you out as it vomited out the nation that was before you.
 18:29 For whoever does any of these detestable things, the souls that do them are to be cut off from the midst of their people.
-18:30 Therefore you are to keep My charge, so that you do not practice any of these detestable customs that were practiced before you, so that you do not defile yourselves by them. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-19:1  spoke to Moses saying:
-19:2 “Speak to all the congregation of </span><span class="it"><span class="content">Bnei-Yisrael
-19:3 “Each one of you is to respect his mother and his father, and keep My </span><span class="it"><span class="content">Shabbatot
-19:4 “Do not turn to idols, or make molten gods for yourselves. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-19:5 “When you bring a sacrifice of fellowship offerings to </span><span class="it"><span class="sc"><span class="content">Adonai
+18:30 Therefore you are to keep My charge, so that you do not practice any of these detestable customs that were practiced before you, so that you do not defile yourselves by them. I am Adonai your God.”
+19:1 Adonai spoke to Moses saying:
+19:2 “Speak to all the congregation of Bnei-Yisrael and tell them: You shall be kedoshim, for I, Adonai your God, am holy.
+19:3 “Each one of you is to respect his mother and his father, and keep My Shabbatot. I am Adonai your God.
+19:4 “Do not turn to idols, or make molten gods for yourselves. I am Adonai your God.
+19:5 “When you bring a sacrifice of fellowship offerings to Adonai, you are to offer it so that you may be accepted.
 19:6 It is to be eaten the same day you offer it, and the next day. But if anything remains until the third day, it is to be burned with fire.
 19:7 If it is eaten at all on the third day, it is disgusting. It will not be accepted.
-19:8 Rather, anyone who eats it will bear his iniquity, since he has profaned what is holy to </span><span class="it"><span class="sc"><span class="content">Adonai
+19:8 Rather, anyone who eats it will bear his iniquity, since he has profaned what is holy to Adonai, and that soul will be cut off from his people.
 19:9 “When you reap the harvest of your land, you are not to reap to the very corners of your field, nor are you to gather the gleanings of your harvest.
-19:10 You are not to pick the remnants of your vineyard, nor are you to gather the fallen grapes of your vineyard. Instead, you are to leave them for the poor and for the outsider. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+19:10 You are not to pick the remnants of your vineyard, nor are you to gather the fallen grapes of your vineyard. Instead, you are to leave them for the poor and for the outsider. I am Adonai your God.
 19:11 “You are not to steal. You are not to lie. You are not to deceive one another.
-19:12 “You are not to swear by My Name falsely, and so profane the Name of your God. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+19:12 “You are not to swear by My Name falsely, and so profane the Name of your God. I am Adonai.
 19:13 “You are not to oppress your neighbor, nor rob him. The wages of a hired servant are not to remain with you all night until the morning.
-19:14 “You are not to curse the deaf, nor put a stumbling block before the blind, but you shall fear your God. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+19:14 “You are not to curse the deaf, nor put a stumbling block before the blind, but you shall fear your God. I am Adonai.
 19:15 “You are to do no injustice in judgment. You are not to be partial toward the poor nor show favoritism toward the great, but you are to judge your neighbor with fairness.
-19:16 “You are not to go up and down as a talebearer among your people. You are not to endanger the life of your neighbor. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+19:16 “You are not to go up and down as a talebearer among your people. You are not to endanger the life of your neighbor. I am Adonai.
 19:17 “You are not to hate your brother in your heart. Instead, you are to firmly rebuke your neighbor, and not bear sin because of him.
-19:18 You are not to take vengeance, nor bear any grudge against the children of your people, but love your neighbor as yourself. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+19:18 You are not to take vengeance, nor bear any grudge against the children of your people, but love your neighbor as yourself. I am Adonai.
 19:19 “You must keep My statutes. You are not to crossbreed different kinds of animals. You are not to sow your field with two kinds of seed, nor are you to wear a garment woven of two kinds of material.
 19:20 “If a man lies sexually with a woman who is a slave girl, pledged to be married to another man, but not ransomed or given her freedom, they are both to be punished. But they are not to be put to death, because she was not free.
-19:21 He is to bring his trespass ­offering to </span><span class="it"><span class="sc"><span class="content">Adonai
-19:22 The </span><span class="it"><span class="content">kohen
+19:21 He is to bring his trespass ­offering to Adonai, to the entrance of the Tent of Meeting—a ram for a guilt offering.
+19:22 The kohen is to make atonement for him with the ram of the trespass offering before Adonai for his sin that he committed, and the sin that he committed will be forgiven him.
 19:23 “When you come into the land and have planted all kinds of trees for food, you are to consider their fruit as forbidden. Three years it will be forbidden to you. It is not to be eaten.
-19:24 Then in the fourth year all its fruit will be holy, for giving praise to </span><span class="it"><span class="sc"><span class="content">Adonai
-19:25 In the fifth year you may eat its fruit. So it will yield its increase to you. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+19:24 Then in the fourth year all its fruit will be holy, for giving praise to Adonai.
+19:25 In the fifth year you may eat its fruit. So it will yield its increase to you. I am Adonai your God.
 19:26 “You are not to eat any meat with the blood still in it, nor are you to use enchantments, or practice sorcery.
 19:27 “You are not to round off the hair on the sides of your heads, nor are you to mar the edge of your beard.
-19:28 You are not to make any cuttings in your flesh for the dead or make any tattoo marks upon yourself. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+19:28 You are not to make any cuttings in your flesh for the dead or make any tattoo marks upon yourself. I am Adonai.
 19:29 “Do not defile your daughter, to make her a prostitute, so that the land does not fall into prostitution, and become full of wickedness.
-19:30 “You are to keep My </span><span class="it"><span class="content">Shabbatot
-19:31 “Do not turn to those who are mediums or to soothsayers. Do not seek them out to be defiled by them. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-19:32 “You are to rise up in the presence of the gray-haired and honor the presence of the elderly. So you will fear your God. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+19:30 “You are to keep My Shabbatot, and reverence My Sanctuary. I am Adonai.
+19:31 “Do not turn to those who are mediums or to soothsayers. Do not seek them out to be defiled by them. I am Adonai your God.
+19:32 “You are to rise up in the presence of the gray-haired and honor the presence of the elderly. So you will fear your God. I am Adonai.
 19:33 “If an outsider dwells with you in your land, you shall do him no wrong.
-19:34 The outsider dwelling among you should be to you as the native-born among you. You should love him as yourself—for you dwelled as outsiders in the land of Egypt. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+19:34 The outsider dwelling among you should be to you as the native-born among you. You should love him as yourself—for you dwelled as outsiders in the land of Egypt. I am Adonai your God.
 19:35 “You must not be dishonest in judgment—in measurements of length, weight or of quantity.
-19:36 You are to have honest balances, honest weights, honest bushel-measure and an honest gallon. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-19:37 You must observe all My statutes and all My ordinances—do them. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-20:1  spoke to Moses saying:
-20:2 “Moreover, you are to tell </span><span class="it"><span class="content">Bnei-Yisrael
+19:36 You are to have honest balances, honest weights, honest bushel-measure and an honest gallon. I am Adonai your God, who brought you out of the land of Egypt.
+19:37 You must observe all My statutes and all My ordinances—do them. I am Adonai.”
+20:1 Adonai spoke to Moses saying:
+20:2 “Moreover, you are to tell Bnei-Yisrael: Anyone from Bnei-Yisrael or from the outsiders dwelling in Israel, who gives any of his children to Molech, should surely be put to death. The people of the land are to stone him with rocks.
 20:3 I also will set My face against such a person and will cut him off from among his people, because he has given his children to Molech, defiling My Sanctuary and profaning My holy Name.
 20:4 But if the people of the land all hide their eyes from that person, when he gives of his seed to Molech, and do not put him to death,
 20:5 then I will set My face against that man and against his family, and will cut him off, along with all who play the prostitute after him with Molech, from among their people.
 20:6 “The soul that turns to mediums or to soothsayers, prostituting himself with them, I will set My face against that soul and will cut him off from among his people.
-20:7 So consecrate yourselves and be holy, for I am </span><span class="it"><span class="sc"><span class="content">Adonai
-20:8 You are to keep My statutes, and do them. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+20:7 So consecrate yourselves and be holy, for I am Adonai your God.
+20:8 You are to keep My statutes, and do them. I am Adonai who sanctifies you.
 20:9 “Any man who curses his father or his mother should surely be put to death. He has cursed his father or mother, and his blood should be on him.
 20:10 “The man who commits adultery with another man’s wife, who commits adultery with his friend’s wife, both the adulterer and the adulteress should surely be put to death.
 20:11 “If a man lies with his father’s wife, and has uncovered his father’s nakedness, both of them should surely be put to death, and their blood should be on them.
@@ -588,149 +588,149 @@
 20:15 If a man lies with an animal, he should surely be put to death, and you are to kill the animal.
 20:16 If a woman approaches any animal, and lies down with it, you are to kill the woman and the animal. They should surely be put to death, and their blood should be on them.
 20:17 If a man takes his sister, his father’s daughter, or his mother’s daughter, and sees her nakedness, and she his, it is a shameful thing. They are to be cut off in the sight of the children of their people, for he has uncovered his sister’s nakedness, and will bear his iniquity.
-20:18 If a man lies with a woman during her </span><span class="it"><span class="content">niddah
+20:18 If a man lies with a woman during her niddah and exposes her nakedness, he has exposed her flow and she has uncovered the flow of her blood. Both of them are to be cut off from among their people.
 20:19 You are not to uncover the nakedness of your mother’s sister, or your father’s sister, for the one who does that has made his close relative naked, and will bear his iniquity.
 20:20 If a man lies with his aunt, he has uncovered his uncle’s nakedness. They should bear their sin, and die childless.
 20:21 If a man takes his brother’s wife, it is an impurity. He has uncovered his brother’s nakedness, and they will be childless.
 20:22 “Now you are to keep all My statutes and all My ordinances and do them, so that the land where I am bringing you to dwell will not vomit you out.
 20:23 You are not to walk in the ways of the nation which I am casting out before you, for they did all these things and therefore I abhorred them.
-20:24 But I have said to you, ‘You will inherit their land and I will give it to you to possess it, a land flowing with milk and honey.’ I am </span><span class="it"><span class="sc"><span class="content">Adonai
+20:24 But I have said to you, ‘You will inherit their land and I will give it to you to possess it, a land flowing with milk and honey.’ I am Adonai your God, who has set you apart from the peoples.
 20:25 “Also you are to make a distinction between the clean animal and the unclean, and between the unclean bird and the clean. And you are not to make your souls detestable by an animal or by a bird, or by anything with which the ground teems, which I have set apart as unclean for you.
-20:26 You are to be holy to Me, for I, </span><span class="it"><span class="sc"><span class="content">Adonai
+20:26 You are to be holy to Me, for I, Adonai, am holy, and have set you apart from the peoples, so that you would be Mine.
 20:27 “A man or a woman who is a medium or is a soothsayer should surely be put to death. They should stone them with rocks, and their blood should be on them.’”
-21:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+21:1 Then Adonai said to Moses, “Speak to the kohanim, the sons of Aaron, and say to them: A kohen is not to allow himself to become unclean for the dead among his people,
 21:2 except for his relatives that are nearest to him—his mother, his father, his son, his daughter, his brother,
 21:3 or his virgin sister who is near to him, who has had no husband. For her he may allow himself to become unclean.
 21:4 But he is not to defile himself—a husband among his people—and so profane himself.
-21:5 “</span><span class="it"><span class="content">Kohanim
-21:6 They are to be holy to their God, and not profane the Name of their God, for they present the offerings of </span><span class="it"><span class="sc"><span class="content">Adonai
-21:7 They are not to marry women who are defiled as prostitutes, or profane. Neither shall they marry women divorced from their husbands, for a </span><span class="it"><span class="content">kohen
-21:8 Therefore you are to sanctify him, because he offers the bread of your God. He should be holy to you, for I, </span><span class="it"><span class="sc"><span class="content">Adonai
-21:9 “The daughter of any </span><span class="it"><span class="content">kohen
-21:10 “He who is the </span><span class="it"><span class="content">kohen gadol
+21:5 “Kohanim are not to shave their heads, nor shave off the corners of their beards, nor make any cuttings in their flesh.
+21:6 They are to be holy to their God, and not profane the Name of their God, for they present the offerings of Adonai made by fire, the bread of their God. Therefore they are to be holy.
+21:7 They are not to marry women who are defiled as prostitutes, or profane. Neither shall they marry women divorced from their husbands, for a kohen is holy to his God.
+21:8 Therefore you are to sanctify him, because he offers the bread of your God. He should be holy to you, for I, Adonai, who sanctifies you, am holy.
+21:9 “The daughter of any kohen, if she profanes herself by playing the prostitute, profanes her father. She is to be burned with fire.
+21:10 “He who is the kohen gadol among his brothers, upon whose head the anointing oil is poured and is consecrated to put on the garments, is not to let the hair of his head hang loose or tear his clothes,
 21:11 nor shall he go near any dead person, defiling himself, even for his father or his mother.
-21:12 He is not to go out of the Sanctuary or profane the Sanctuary of his God—for the crown of the anointing oil of his God is upon him. I am </span><span class="it"><span class="sc"><span class="content">Adonai
+21:12 He is not to go out of the Sanctuary or profane the Sanctuary of his God—for the crown of the anointing oil of his God is upon him. I am Adonai.
 21:13 “He shall take a wife in her virginity.
 21:14 A widow, or one divorced, or one who has been defiled as a prostitute, he is not to marry. He is to take a virgin from his own people as a wife,
-21:15 so as not to corrupt his offspring among his people. For I am </span><span class="it"><span class="sc"><span class="content">Adonai
-21:16  spoke to Moses saying:
+21:15 so as not to corrupt his offspring among his people. For I am Adonai who sanctifies him.”
+21:16 Adonai spoke to Moses saying:
 21:17 “Say to Aaron: None of your offspring throughout their generations who has a defect may approach to offer the food of his God.
 21:18 Any man who has a defect is not to draw near: no one blind or lame or disfigured or deformed,
 21:19 or a man who has a crippled foot or crippled hand
 21:20 or a hunchback or dwarf, or who has an eye defect or a rash or scabs, or who has damaged testicles.
-21:21 None of the offspring of Aaron the </span><span class="it"><span class="content">kohen
+21:21 None of the offspring of Aaron the kohen who has a defect shall come near to present the offerings of Adonai made by fire. Since he has a defect, he is not to come near to offer the food of his God.
 21:22 He may eat the food of his God, both from the most holy and the holy.
-21:23 But he is not to approach the curtain or come near the altar, because of the defect on him, so that he may not desecrate My sanctuaries, for I am </span><span class="it"><span class="sc"><span class="content">Adonai
-21:24 So Moses spoke to Aaron and to his sons, and to all </span><span class="it"><span class="content">Bnei-Yisrael
-22:1  spoke to Moses, saying:
-22:2 “Tell Aaron and his sons to separate themselves from the holy things of </span><span class="it"><span class="content">Bnei-Yisrael
-22:3 Tell them, if anyone of all your offspring throughout your generations approaches the holy things, which </span><span class="it"><span class="content">Bnei-Yisrael
-22:4 “None of the offspring of Aaron who has </span><span class="it"><span class="content">tza'arat
+21:23 But he is not to approach the curtain or come near the altar, because of the defect on him, so that he may not desecrate My sanctuaries, for I am Adonai who sanctifies them.”
+21:24 So Moses spoke to Aaron and to his sons, and to all Bnei-Yisrael.
+22:1 Adonai spoke to Moses, saying:
+22:2 “Tell Aaron and his sons to separate themselves from the holy things of Bnei-Yisrael, which they consecrate to Me, so that they would not profane My holy Name. I am Adonai.
+22:3 Tell them, if anyone of all your offspring throughout your generations approaches the holy things, which Bnei-Yisrael consecrate to Adonai, while in a state of uncleanness, that soul will be cut off from before Me. I am Adonai.
+22:4 “None of the offspring of Aaron who has tza'arat or has a discharge shall eat of the holy things until he is clean. Whoever touches anything that is unclean by the dead or a man whose seed discharges from him
 22:5 or who touches any creeping thing that may make him unclean or a person who is unclean—whatever his uncleanness—
 22:6 the person who touches any such thing will be unclean until the evening, and is not to eat of the holy things, unless he has bathed his body in water.
 22:7 When the sun sets, he will become clean, and afterward he may eat of the holy things, because it is his food.
-22:8 A carcass or what is torn by beasts he is not to eat, becoming unclean by it. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-22:9 “Therefore </span><span class="it"><span class="content">kohanim
-22:10 “No layman is to eat from the holy offering. A foreigner living with the </span><span class="it"><span class="content">kohanim
-22:11 But if a </span><span class="it"><span class="content">kohen
-22:12 If a </span><span class="it"><span class="content">kohen
-22:13 But if a </span><span class="it"><span class="content">kohen
-22:14 “If anyone eats something holy unwittingly, then he is to add a fifth to it and give the holy offering to the </span><span class="it"><span class="content">kohen
-22:15 They are not to profane the holy offerings of </span><span class="it"><span class="content">Bnei-Yisrael
-22:16 so causing them to bear the iniquity that brings guilt when they eat the holy offerings. For I am </span><span class="it"><span class="sc"><span class="content">Adonai
-22:17  spoke to Moses saying:
-22:18 “Speak to Aaron and to his sons, and to all </span><span class="it"><span class="content">Bnei-Yisrael
+22:8 A carcass or what is torn by beasts he is not to eat, becoming unclean by it. I am Adonai.
+22:9 “Therefore kohanim should keep My charge, so that they do not become guilty of sin and die should they profane it. I am Adonai who sanctifies them.
+22:10 “No layman is to eat from the holy offering. A foreigner living with the kohanim or a hired servant is not to eat from the holy offering.
+22:11 But if a kohen buys a slave purchased by his money, that one may eat from it. Also those born in his house may eat his food.
+22:12 If a kohen’s daughter is married to a layman, she is not to eat from the gifts of the holy offerings.
+22:13 But if a kohen’s daughter is a widow or divorced, and has no child and has returned to her father’s house as in her youth, she may eat from her father’s food. But no layman may eat any of it.
+22:14 “If anyone eats something holy unwittingly, then he is to add a fifth to it and give the holy offering to the kohen.
+22:15 They are not to profane the holy offerings of Bnei-Yisrael, which they lift up to Adonai,
+22:16 so causing them to bear the iniquity that brings guilt when they eat the holy offerings. For I am Adonai who sanctifies them.”
+22:17 Adonai spoke to Moses saying:
+22:18 “Speak to Aaron and to his sons, and to all Bnei-Yisrael, and say to them: Whoever is from the house of Israel, or one of the outsiders in Israel who brings his offering, whether it be any of their vows or any of their freewill offerings that they present to Adonai for a burnt offering—
 22:19 for you to be accepted—you are to offer a male without blemish, from the bulls, the sheep or the goats.
 22:20 But whatever has a blemish you are not to present, for it will not be acceptable on your behalf.
-22:21 Whoever brings a sacrifice of fellowship offerings to </span><span class="it"><span class="sc"><span class="content">Adonai
-22:22 The blind, injured, maimed, having an abnormal growth or festering or a running sore are not to be offered to </span><span class="it"><span class="sc"><span class="content">Adonai
+22:21 Whoever brings a sacrifice of fellowship offerings to Adonai to fulfill a vow or for a freewill offering, either from the herd or the flock, it must be unblemished to be accepted—there must be no defect on it.
+22:22 The blind, injured, maimed, having an abnormal growth or festering or a running sore are not to be offered to Adonai, or given as an offering by fire on the altar to Adonai.
 22:23 For a freewill offering you may present a bull or a lamb that has any deformity or lacking in its parts, but for a vow it will not be accepted.
-22:24 Whatever has its testicles bruised, crushed, broken or cut, you are not to offer to </span><span class="it"><span class="sc"><span class="content">Adonai
+22:24 Whatever has its testicles bruised, crushed, broken or cut, you are not to offer to Adonai, nor are you to do so in your own land.
 22:25 Moreover, you are not to offer the food of your God from the hand of an outsider from any of these animals. For their corruption is within them—they have a defect. They will not be accepted on your behalf.”
-22:26  spoke to Moses saying:
-22:27 “When a bull, a sheep or a goat is born, then it is to remain seven days with its mother, and from the eighth day onward it will be accepted as the gift of an offering made by fire to </span><span class="it"><span class="sc"><span class="content">Adonai
+22:26 Adonai spoke to Moses saying:
+22:27 “When a bull, a sheep or a goat is born, then it is to remain seven days with its mother, and from the eighth day onward it will be accepted as the gift of an offering made by fire to Adonai.
 22:28 If it is a cow or ewe, you are not to slaughter it along with its young, both in one day.
-22:29 When you offer a sacrifice of thanksgiving to </span><span class="it"><span class="sc"><span class="content">Adonai
-22:30 It is to be eaten on the same day. You are to leave none of it until the morning. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-22:31 “So you are to keep My </span><span class="it"><span class="content">mitzvot
-22:32 You must not profane My holy Name, for I will be made holy among </span><span class="it"><span class="content">Bnei-Yisrael
-22:33 who brought you out of the land of Egypt, to be your God. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-23:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-23:2 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
-23:3 “Work may be done for six days, but the seventh day is a </span><span class="it"><span class="content">Shabbat
-23:4 “These are the appointed feasts of </span><span class="it"><span class="sc"><span class="content">Adonai
-23:5 During the first month, on the fourteenth day of the month in the evening, is </span><span class="it"><span class="sc"><span class="content">Adonai
-23:6 On the fifteenth day of the same month is the Feast of Matzot to </span><span class="it"><span class="sc"><span class="content">Adonai
+22:29 When you offer a sacrifice of thanksgiving to Adonai, you are to present it so that you may be accepted.
+22:30 It is to be eaten on the same day. You are to leave none of it until the morning. I am Adonai.
+22:31 “So you are to keep My mitzvot and do them. I am Adonai.
+22:32 You must not profane My holy Name, for I will be made holy among Bnei-Yisrael. I am Adonai who makes you holy,
+22:33 who brought you out of the land of Egypt, to be your God. I am Adonai.”
+23:1 Then Adonai spoke to Moses saying:
+23:2 “Speak to Bnei-Yisrael, and tell them: These are the appointed moadim of Adonai, which you are to proclaim to be holy convocations—My moadim.
+23:3 “Work may be done for six days, but the seventh day is a Shabbat of solemn rest, a holy convocation. You are to do no work—it is a Shabbat to Adonai in all your dwellings.
+23:4 “These are the appointed feasts of Adonai, holy convocations which you are to proclaim in their appointed season.
+23:5 During the first month, on the fourteenth day of the month in the evening, is Adonai’s Passover.
+23:6 On the fifteenth day of the same month is the Feast of Matzot to Adonai. For seven days you are to eat matzah .
 23:7 On the first day you are to have a holy convocation and you shall do no regular work.
-23:8 Instead you are to present an offering made by fire to </span><span class="it"><span class="sc"><span class="content">Adonai
-23:9  spoke to Moses saying:
-23:10 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
-23:11 He is to wave the omer before </span><span class="it"><span class="sc"><span class="content">Adonai
-23:12 On the day when you wave the omer you are to offer a male lamb without blemish, one year old, as a burnt offering to </span><span class="it"><span class="sc"><span class="content">Adonai
-23:13 The grain offering with it shall be two tenths of an ephah of fine flour mixed with oil—an offering made by fire to </span><span class="it"><span class="sc"><span class="content">Adonai
+23:8 Instead you are to present an offering made by fire to Adonai for seven days. On the seventh day is a holy convocation, when you are to do no regular work.”
+23:9 Adonai spoke to Moses saying:
+23:10 “Speak to Bnei-Yisrael and tell them: When you have come into the land which I give to you, and reap its harvest, then you are to bring the omer of the firstfruits of your harvest to the kohen.
+23:11 He is to wave the omer before Adonai, to be accepted for you. On the morrow after the Shabbat, the kohen is to wave it.
+23:12 On the day when you wave the omer you are to offer a male lamb without blemish, one year old, as a burnt offering to Adonai.
+23:13 The grain offering with it shall be two tenths of an ephah of fine flour mixed with oil—an offering made by fire to Adonai for a soothing aroma. Its drink offering with it shall be a quarter of a gallon of wine.
 23:14 You are not to eat bread, roasted grain, or fresh grain until this same day—until you have brought the offering of your God. It is a statute forever throughout your generations in all your dwellings.
-23:15 “Then you are to count from the morrow after the Shabbat, from the day that you brought the omer of the wave offering, seven complete </span><span class="it"><span class="content">Shabbatot
-23:16 Until the morrow after the seventh </span><span class="it"><span class="content">Shabbat
-23:17 You are to bring out of your houses two loaves of bread for a wave offering, made of two tenths of an ephah of fine flour. They are to be baked with </span><span class="it"><span class="content">hametz
-23:18 You are to present, along with the bread, seven one-year-old lambs without blemish, one young bull, and two rams. They will become a burnt offering to </span><span class="it"><span class="sc"><span class="content">Adonai
+23:15 “Then you are to count from the morrow after the Shabbat, from the day that you brought the omer of the wave offering, seven complete Shabbatot.
+23:16 Until the morrow after the seventh Shabbat you are to count fifty days, and then present a new grain offering to Adonai.
+23:17 You are to bring out of your houses two loaves of bread for a wave offering, made of two tenths of an ephah of fine flour. They are to be baked with hametz as firstfruits to Adonai.
+23:18 You are to present, along with the bread, seven one-year-old lambs without blemish, one young bull, and two rams. They will become a burnt offering to Adonai, with their meal offering, and their drink offerings, an offering made by fire, a sweet aroma to Adonai.
 23:19 Also you are to offer one male goat for a sin offering and a pair of year-old male lambs for a sacrifice of fellowship offerings.
-23:20 The </span><span class="it"><span class="content">kohen
+23:20 The kohen is to wave them with the bread of the firstfruits as a wave offering before Adonai, with the two lambs. They should be holy to Adonai for the kohen.
 23:21 You are to make a proclamation on the same day that there is to be a holy convocation, and you shall do no regular work. This is a statute forever in all your dwellings throughout your generations.
-23:22 “Now when you reap the harvest of your land, you are not to reap to the furthest corners of your field or gather the gleanings of your harvest. Rather you are to leave them for the poor and for the outsider. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-23:23  spoke to Moses saying:
-23:24 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
-23:25 You are to do no regular work, and you are to present an offering made by fire to </span><span class="it"><span class="sc"><span class="content">Adonai
-23:26  spoke to Moses, saying:
-23:27 “However, the tenth day of this seventh month is </span><span class="it"><span class="content">Yom Kippur
-23:28 You are not to do any kind of work on that set day, for it is </span><span class="it"><span class="content">Yom Kippur
+23:22 “Now when you reap the harvest of your land, you are not to reap to the furthest corners of your field or gather the gleanings of your harvest. Rather you are to leave them for the poor and for the outsider. I am Adonai your God.”
+23:23 Adonai spoke to Moses saying:
+23:24 “Speak to Bnei-Yisrael, saying: In the seventh month, on the first day of the month, you are to have a Shabbat rest, a memorial of blowing (shofarot), a holy convocation.
+23:25 You are to do no regular work, and you are to present an offering made by fire to Adonai.”
+23:26 Adonai spoke to Moses, saying:
+23:27 “However, the tenth day of this seventh month is Yom Kippur, a holy convocation to you, so you are to afflict yourselves. You are to bring an offering made by fire to Adonai.
+23:28 You are not to do any kind of work on that set day, for it is Yom Kippur, to make atonement for you before Adonai your God.
 23:29 For anyone who does not deny himself on that day must be cut off from his people.
 23:30 Anyone who does any kind of work on that day, that person I will destroy from among his people.
 23:31 You shall do no kind of work. It is a statute forever throughout your generations in all your dwellings.
-23:32 It is to be a </span><span class="it"><span class="content">Shabbat
-23:33  spoke to Moses saying:
-23:34 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
+23:32 It is to be a Shabbat of solemn rest for you, and you are to humble your souls. On the ninth day of the month in the evening—from evening until evening—you are to keep your Shabbat.”
+23:33 Adonai spoke to Moses saying:
+23:34 “Speak to Bnei-Yisrael, and say, On the fifteenth day of this seventh month is the Feast of Sukkot, for seven days to Adonai.
 23:35 On the first day there is to be a holy convocation—you are to do no laborious work.
-23:36 For seven days you are to bring an offering by fire to </span><span class="it"><span class="sc"><span class="content">Adonai
-23:37 “These are the </span><span class="it"><span class="content">moadim
-23:38 besides those of the </span><span class="it"><span class="content">Shabbatot
-23:39 “So on the fifteenth day of the seventh month, when you have gathered in the fruits of the land, you are to keep the Feast of </span><span class="it"><span class="sc"><span class="content">Adonai
-23:40 On the first day you are to take choice fruit of trees, branches of palm trees, boughs of leafy trees, and willows of the brook, and rejoice before </span><span class="it"><span class="sc"><span class="content">Adonai
-23:41 You are to celebrate it as a festival to </span><span class="it"><span class="sc"><span class="content">Adonai
+23:36 For seven days you are to bring an offering by fire to Adonai. The eighth day will be a holy convocation to you, and you are to bring an offering by fire to Adonai. It is a solemn assembly—you shall do no laborious work.
+23:37 “These are the moadim of Adonai, which you are to proclaim to be holy convocations, to present an offering by fire to Adonai—a burnt offering, a grain offering, a sacrifice and drink offerings, each on its own day,
+23:38 besides those of the Shabbatot of Adonai and besides your gifts, all your vows and all your freewill offerings which you give to Adonai.
+23:39 “So on the fifteenth day of the seventh month, when you have gathered in the fruits of the land, you are to keep the Feast of Adonai for seven days. The first day is to be a Shabbat rest, and the eighth day will also be a Shabbat rest.
+23:40 On the first day you are to take choice fruit of trees, branches of palm trees, boughs of leafy trees, and willows of the brook, and rejoice before Adonai your God for seven days.
+23:41 You are to celebrate it as a festival to Adonai for seven days in the year. It is a statute forever throughout your generations—you are to celebrate it in the seventh month.
 23:42 You are to live in sukkot for seven days. All the native-born in Israel are to live in sukkot,
-23:43 so that your generations may know that I had </span><span class="it"><span class="content">Bnei-Yisrael
-23:44 So Moses declared to </span><span class="it"><span class="content">Bnei-Yisrael
-24:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-24:2 “Order </span><span class="it"><span class="content">Bnei-Yisrael
-24:3 Outside of the curtain of the Testimony, in the Tent of Meeting, Aaron is to keep it in order from evening to morning before </span><span class="it"><span class="sc"><span class="content">Adonai
-24:4 He is to keep the lamps in order on the pure gold </span><span class="it"><span class="content">menorah
+23:43 so that your generations may know that I had Bnei-Yisrael to dwell in sukkot when I brought them out of the land of Egypt. I am Adonai your God.”
+23:44 So Moses declared to Bnei-Yisrael the moadim of Adonai.
+24:1 Then Adonai spoke to Moses saying:
+24:2 “Order Bnei-Yisrael to bring to you pure olive oil, beaten for the light, to keep a lamp burning continually.
+24:3 Outside of the curtain of the Testimony, in the Tent of Meeting, Aaron is to keep it in order from evening to morning before Adonai continually. It is to be a statute forever throughout your generations.
+24:4 He is to keep the lamps in order on the pure gold menorah before Adonai continually.
 24:5 “Also you are to take fine flour, and bake twelve cakes of it, with two tenths of an ephah in each cake.
-24:6 Then you are to set them in two rows, six in a row, on the pure gold table before </span><span class="it"><span class="sc"><span class="content">Adonai
-24:7 Set pure frankincense on each row, as a memorial portion for the bread, an offering by fire to </span><span class="it"><span class="sc"><span class="content">Adonai
-24:8 Every </span><span class="it"><span class="content">Yom Shabbat
-24:9 It belongs to Aaron and his sons, and they are to eat it in a holy place, for it is most holy to him among the offerings of </span><span class="it"><span class="sc"><span class="content">Adonai
-24:10 Now the son of an Israelite woman, whose father was an Egyptian, went out among </span><span class="it"><span class="content">Bnei-Yisrael
+24:6 Then you are to set them in two rows, six in a row, on the pure gold table before Adonai.
+24:7 Set pure frankincense on each row, as a memorial portion for the bread, an offering by fire to Adonai.
+24:8 Every Yom Shabbat he is to set it in order before Adonai continually. It is an everlasting covenant on behalf of Bnei-Yisrael.
+24:9 It belongs to Aaron and his sons, and they are to eat it in a holy place, for it is most holy to him among the offerings of Adonai by fire, as a perpetual statute.”
+24:10 Now the son of an Israelite woman, whose father was an Egyptian, went out among Bnei-Yisrael, and a fight broke out between the Israelite woman’s son and an Israelite man.
 24:11 The Israelite woman’s son blasphemed the Name, and cursed, so they brought him to Moses. His mother’s name was Shelomith, the daughter of Dibri, of the tribe of Dan.
-24:12 They put him in custody, until the will of </span><span class="it"><span class="sc"><span class="content">Adonai
-24:13 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+24:12 They put him in custody, until the will of Adonai could be declared to them.
+24:13 Then Adonai spoke to Moses, saying:
 24:14 “Bring the one who cursed, out of the camp, and let all who heard him lay their hands on his head, and have the entire congregation stone him.
-24:15 “Then you will speak to </span><span class="it"><span class="content">Bnei-Yisrael
-24:16 Whoever blasphemes the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+24:15 “Then you will speak to Bnei-Yisrael, saying: Whoever curses his God will bear his sin.
+24:16 Whoever blasphemes the Name of Adonai must surely be put to death. The whole congregation must stone him. The outsider as well as the native-born, when he blasphemes the Name, is to be put to death.
 24:17 “Whoever mortally strikes down any man must surely be put to death.
 24:18 Whoever mortally strikes down an animal is to make restitution—life for life.
 24:19 If anyone injures his neighbor, as he has done, the same is to be done to him:
 24:20 fracture for fracture, eye for eye, tooth for tooth. Just as he has injured someone, so it shall it be done to him.
 24:21 “Whoever kills an animal is to make restitution, but the one who kills a man is to be put to death.
-24:22 You are to have one standard of justice for the outsider as well as the native-born, for I am </span><span class="it"><span class="sc"><span class="content">Adonai
-24:23 So Moses spoke to </span><span class="it"><span class="content">Bnei-Yisrael
-25:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-25:2 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
+24:22 You are to have one standard of justice for the outsider as well as the native-born, for I am Adonai your God.”
+24:23 So Moses spoke to Bnei-Yisrael, and they led the one who had cursed out of the camp, then stoned him with rocks. Thus Bnei-Yisrael did as Adonai commanded Moses.
+25:1 Then Adonai said to Moses on Mount Sinai,
+25:2 “Speak to Bnei-Yisrael and tell them: When you come into the land which I give you, then the land is to keep a Shabbat to Adonai.
 25:3 For six years you may sow your field and for six years you may prune your vineyard and gather in its fruits.
-25:4 But in the seventh year there is to be a </span><span class="it"><span class="content">Shabbat
-25:5 You are not to reap what grows by itself during your harvest nor gather the grapes of your untended vine. It is to be a year of </span><span class="it"><span class="content">Shabbat
-25:6 Whatever the </span><span class="it"><span class="content">Shabbat
+25:4 But in the seventh year there is to be a Shabbat rest for the land—a Shabbat to Adonai. You are not to sow your field or prune your vineyard.
+25:5 You are not to reap what grows by itself during your harvest nor gather the grapes of your untended vine. It is to be a year of Shabbat rest for the land.
+25:6 Whatever the Shabbat of the land produces will be food for yourself, for your servant, for your maidservant, for your hired worker and for the outsider dwelling among you.
 25:7 Even for your livestock and for the animals that are in your land—all its increase will be enough food.
-25:8 “You are to count off seven </span><span class="it"><span class="content">Shabbatot
-25:9 Then on the tenth day of the seventh month, on </span><span class="it"><span class="content">Yom Kippur
+25:8 “You are to count off seven Shabbatot of years—seven times seven years, so that the time is seven Shabbatot of years—49 years.
+25:9 Then on the tenth day of the seventh month, on Yom Kippur, you are to sound a shofar blast—you are to sound the shofar all throughout your land.
 25:10 You are to make the fiftieth year holy, and proclaim liberty throughout the land to all its inhabitants. It is to be a Jubilee to you, when each of you is to return to his own property and each of you is to return to his family.
 25:11 That fiftieth year will be your Jubilee. You are not to sow, or reap that which grows by itself, or gather from the untended vines.
 25:12 Since it is a Jubilee, it is to be holy to you. You will eat from its increase out of the field.
@@ -738,7 +738,7 @@
 25:14 “If you sell anything to your neighbor or buy from your neighbor, you are not to wrong one another.
 25:15 Corresponding to the number of years after the Jubilee you are to purchase land from your neighbor’s hand. He is to sell it to you based on the number of years of crops.
 25:16 In proportion to the extent of years you may increase its price, or decrease its price in proportion to the fewness of years, because he is selling a number of harvests to you.
-25:17 You are not to cheat one another, but fear your God, for I am </span><span class="it"><span class="sc"><span class="content">Adonai
+25:17 You are not to cheat one another, but fear your God, for I am Adonai your God.
 25:18 “Therefore you are to keep My statutes and observe My ordinances, and carry them out, so that you may live securely in the land.
 25:19 Then the land will yield its fruit, and you may eat your fill and live there in safety.
 25:20 Now if you ask: What are we to eat during the seventh year if, see, we are not to sow, nor gather in our increase?
@@ -754,12 +754,12 @@
 25:30 But if it is not redeemed within the space of a full year, then the house that is in the walled city will belong permanently to the one who bought it throughout his generations. It will not be released in the Jubilee.
 25:31 But the houses of the villages that have no wall around them are to be considered as open country. They have redemption rights and are to be released in the Jubilee.
 25:32 “But as for the towns of the Levites, the Levites may have a permanent right of redemption for the houses in the towns of their possession.
-25:33 The Levites may redeem a house sold in the town of its possession. Also it shall be released in the Jubilee, for the houses of the Levitical towns are their possession among </span><span class="it"><span class="content">Bnei-Yisrael
+25:33 The Levites may redeem a house sold in the town of its possession. Also it shall be released in the Jubilee, for the houses of the Levitical towns are their possession among Bnei-Yisrael.
 25:34 But the fields in the pasturelands of their cities may not be sold, for it is their permanent possession.
 25:35 “If your brother has become poor and his hand cannot support himself among you, then you are to uphold him. He may live with you like an outsider or a temporary resident.
 25:36 Take no excessive interest from him, but fear your God, so that your brother can live with you.
 25:37 You are not to lend him your money at interest, nor give him your food for profit.
-25:38 I am </span><span class="it"><span class="sc"><span class="content">Adonai
+25:38 I am Adonai your God, who brought you forth out of the land of Egypt, to give you the land of Canaan and to be your God.
 25:39 “If your brother has grown poor among you and sells himself to you, you must not subject him to slave labor.
 25:40 Let him stay with you as a hired worker or as a temporary resident. He will work for you until the Year of Jubilee,
 25:41 then he is to be released from you—he and his children with him—and may return to his own family and to the property of his fathers.
@@ -767,7 +767,7 @@
 25:43 You are not to rule over him with harshness, but fear your God.
 25:44 “As for your male and female slaves whom you may acquire out of the nations that are around you—from them you may buy male and female slaves.
 25:45 You may also acquire from among the children of the foreigners dwelling among you, as well as from their families who are with you—those born in your land—they may also become your property.
-25:46 You may also leave them an inheritance for your children after you, to receive as a possession. These may become your slaves permanently. But over your brothers, </span><span class="it"><span class="content">Bnei-Yisrael
+25:46 You may also leave them an inheritance for your children after you, to receive as a possession. These may become your slaves permanently. But over your brothers, Bnei-Yisrael, you must not rule over one another with harshness.
 25:47 “If an outsider or sojourner with you becomes rich, while your brother beside him has become poor and sells himself to the outsider dwelling among you or to a member of the outsider’s family,
 25:48 after he is sold he may be redeemed. One of his brothers may redeem him,
 25:49 or his uncle or his uncle’s son may redeem him, or anyone who is a close relative to him from his family may also redeem him. Or if he has grown rich, he may redeem himself.
@@ -776,22 +776,22 @@
 25:52 If there remain only a few years until the Year of Jubilee, then he shall calculate with him in proportion to his years of service he is to reimburse the price of his redemption.
 25:53 He will stay with him as a hired worker, year by year. But he is not to rule with harshness over him in your sight.
 25:54 Even if he is not redeemed by these means, then he will still be released in the Year of Jubilee—he and his children with him.
-25:55 For </span><span class="it"><span class="content">Bnei-Yisrael
-26:1 “You are not to make idols for yourselves, nor raise up an engraved image or a standing-stone, or place any carved stone in your land to bow down to it. For I am </span><span class="it"><span class="sc"><span class="content">Adonai
-26:2 “You are to keep My </span><span class="it"><span class="content">Shabbatot
-26:3 “If you walk in My statutes, keep My </span><span class="it"><span class="content">mitzvot
+25:55 For Bnei-Yisrael are My servants—My servants whom I brought out of the land of Egypt. I am Adonai your God.
+26:1 “You are not to make idols for yourselves, nor raise up an engraved image or a standing-stone, or place any carved stone in your land to bow down to it. For I am Adonai your God.
+26:2 “You are to keep My Shabbatot and have reverence for My Sanctuary. I am Adonai.
+26:3 “If you walk in My statutes, keep My mitzvot and carry them out,
 26:4 then I will give you rains in their season, the land will yield its crops, and the trees of the field will yield their fruit.
 26:5 Your threshing will last until grape gathering, the grape gathering will last until the sowing time, you will eat your bread to the full, and live securely in your land.
-26:6 “I will bring </span><span class="it"><span class="content">shalom
+26:6 “I will bring shalom in the land, and you will lie down, with no one making you afraid. I will remove dangerous beasts from the land and no sword will pass through your land.
 26:7 You will chase your enemies and they will fall before you by the sword.
 26:8 Five of you will chase 100 and 100 of you will chase 10,000, and your enemies will fall by the sword before you.
 26:9 “I will turn toward you, make you fruitful and multiply you, and I will confirm My covenant with you.
 26:10 You will eat the old harvest and clear out the old because of the new.
 26:11 I will set My Tabernacle among you, and My soul will not abhor you.
 26:12 I will walk among you and will be your God, and you will be My people.
-26:13 I am </span><span class="it"><span class="sc"><span class="content">Adonai
-26:14 “But if you will not listen to Me, nor carry out all these </span><span class="it"><span class="content">mitzvot
-26:15 and if you reject My statutes and if your soul abhors My ordinances, so that you do not keep all My </span><span class="it"><span class="content">mitzvot
+26:13 I am Adonai your God, who brought you forth out of the land of Egypt, so that you would not be their slaves, and I have broken the bars of your yoke and made you walk upright.
+26:14 “But if you will not listen to Me, nor carry out all these mitzvot,
+26:15 and if you reject My statutes and if your soul abhors My ordinances, so that you do not keep all My mitzvot, but instead break My covenant,
 26:16 then I will do the following to you in return. I will appoint terror over you, wasting disease and fever that will dim the eyes and cause the soul to pine away. You will sow your seed in vain, because your enemies will eat it.
 26:17 I will set My face against you and you will be routed before your enemies. Those who hate you will rule over you, and you will flee when no one pursues you.
 26:18 “If you, in spite of these things, will not listen to Me, then I will chastise you seven times more for your sins.
@@ -810,8 +810,8 @@
 26:31 I will lay waste your cities and devastate your sanctuaries. I will not smell your soothing aromas.
 26:32 I will make the land desolate and your enemies settling there will be astonished at it.
 26:33 I will scatter you among the nations and I will draw out the sword after you. So your land will become a desolation and your cities will become a waste.
-26:34 Then the land will enjoy its </span><span class="it"><span class="content">Shabbatot
-26:35 As long as it lies desolate it will have rest, that rest which it did not have from your </span><span class="it"><span class="content">Shabbatot
+26:34 Then the land will enjoy its Shabbatot all the days of its desolation, while you are in the land of your enemies. Then the land will rest and enjoy its Shabbatot.
+26:35 As long as it lies desolate it will have rest, that rest which it did not have from your Shabbatot, when you lived on it.
 26:36 “As for those who remain, I will bring weakness into their hearts in the lands of their enemies, so that the sound of a driven leaf will put them to flight, and they will flee as one flees from the sword and fall, even when no one is pursuing.
 26:37 They will stumble over one another, as if before the sword, when no one pursues, and you will have no strength to stand before your enemies.
 26:38 You will perish among the nations and the land of your enemies will devour you.
@@ -819,41 +819,41 @@
 26:40 “But if they confess their iniquity and that of their fathers, in the treachery they committed against Me, and how they walked contrary to Me
 26:41 —in return I walked contrary to them and brought them into the land of their enemies—and if at that time their uncircumcised heart becomes humbled, so that they accept the punishment for their iniquity,
 26:42 then I will remember My covenant with Jacob and also My covenant with Isaac and My covenant with Abraham, and I will remember the land.
-26:43 But the land will be deserted by them and will enjoy its </span><span class="it"><span class="content">Shabbatot
-26:44 “Yet for all that, when they are in the land of their enemies, I will not reject them, nor will I hate them into utter destruction, and break My covenant with them, for I am </span><span class="it"><span class="sc"><span class="content">Adonai
-26:45 But for their sake I will remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-26:46 These are the statutes, ordinances and laws, which </span><span class="it"><span class="sc"><span class="content">Adonai
-27:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-27:2 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
+26:43 But the land will be deserted by them and will enjoy its Shabbatot while it lies desolate without them, and they will accept the punishment of their iniquity, because they rejected My ordinances and their soul abhorred My statutes.
+26:44 “Yet for all that, when they are in the land of their enemies, I will not reject them, nor will I hate them into utter destruction, and break My covenant with them, for I am Adonai their God.
+26:45 But for their sake I will remember the covenant of their ancestors, whom I brought out of the land of Egypt in the sight of the nations, that I might be their God. I am Adonai.”
+26:46 These are the statutes, ordinances and laws, which Adonai made between Himself and Bnei-Yisrael at Mount Sinai by Moses.
+27:1 Then Adonai spoke to Moses saying,
+27:2 “Speak to Bnei-Yisrael and say to them: When anyone makes a special vow to Adonai involving the valuation of persons,
 27:3 then your valuation of a male from 20 years old to 60 years old shall be 50 shekels of silver, after the shekel of the Sanctuary.
 27:4 If it is a female, then your valuation shall be 30 shekels.
 27:5 If the person is from five years to 20 years old, then your valuation is to be 20 shekels for a male and ten shekels for a female.
 27:6 If the person is from one month to five years old, then your valuation is to be five shekels of silver for a male and three shekels of silver for a female.
 27:7 If the person is from 60 years old and upward, if it is a male, then your valuation is to be 15 shekels and for a female ten shekels.
-27:8 But if he is poorer than your valuation, then he is to be set before the </span><span class="it"><span class="content">kohen
-27:9 “Now if it is an animal that may be brought as an offering to </span><span class="it"><span class="sc"><span class="content">Adonai
+27:8 But if he is poorer than your valuation, then he is to be set before the kohen and the kohen will set a value for him, in keeping with what the one who made the vow can afford.
+27:9 “Now if it is an animal that may be brought as an offering to Adonai, anything that one gives to Adonai will be holy.
 27:10 He is not to replace it or exchange it, either good for bad, or bad for good. But if he does exchange one animal for another, then both it and the one for which it is exchanged will become holy.
-27:11 If it is any sort of unclean animal that may not be brought as an offering to </span><span class="it"><span class="sc"><span class="content">Adonai
-27:12 The </span><span class="it"><span class="content">kohen
+27:11 If it is any sort of unclean animal that may not be brought as an offering to Adonai, then he is to set that animal before the kohen.
+27:12 The kohen is to evaluate it, whether it is good or bad. As the kohen values it, so it will be.
 27:13 But if he would redeem it, then he is to add a fifth to its valuation.
-27:14 “If a man consecrates his house as holy to </span><span class="it"><span class="sc"><span class="content">Adonai
+27:14 “If a man consecrates his house as holy to Adonai, then the kohen is to evaluate it, whether it is good or bad. As the kohen evaluates it, so it will stand.
 27:15 If the one who dedicates it would redeem his own house, then he is to add a fifth of the money of your valuation to it, and it will become his.
-27:16 “If one consecrates to </span><span class="it"><span class="sc"><span class="content">Adonai
+27:16 “If one consecrates to Adonai part of the field of his possession, then your valuation is to be in proportion to the seed to sow it: an omer of barley at 50 shekels of silver.
 27:17 If he dedicates his field from the Year of Jubilee, it will stand according to your own valuation.
-27:18 But if he dedicates his field after the Jubilee, then the </span><span class="it"><span class="content">kohen
+27:18 But if he dedicates his field after the Jubilee, then the kohen is to calculate for him the money according to the years that remain until the Year of Jubilee, with a deduction to be made from your valuation.
 27:19 If he who dedicated the field would ever redeem it, then he is to add a fifth of the money of your valuation to it, and it will remain his.
 27:20 But if he will not redeem the field, or if he has sold the field to someone else, it may not be redeemed anymore.
-27:21 But the field, when it is released in the Jubilee, will be holy to </span><span class="it"><span class="sc"><span class="content">Adonai
-27:22 “Now if one consecrates to </span><span class="it"><span class="sc"><span class="content">Adonai
-27:23 then the </span><span class="it"><span class="content">kohen
+27:21 But the field, when it is released in the Jubilee, will be holy to Adonai as a consecrated field. It will be owned by the kohanim.
+27:22 “Now if one consecrates to Adonai a field that he has bought, which is not from the fields of his possession,
+27:23 then the kohen is to calculate for him the worth of your valuation up to the Year of Jubilee, and give your valuation on that day as a holy thing to Adonai.
 27:24 In the Year of Jubilee the field is to return to the one from whom it was bought, to the one to whom the possession of the land belongs.
 27:25 All your valuations shall be according to the shekel of the Sanctuary, 20 gerahs to the shekel.
-27:26 “But the firstborn among animals, which is made a firstborn to </span><span class="it"><span class="sc"><span class="content">Adonai
+27:26 “But the firstborn among animals, which is made a firstborn to Adonai, may not be dedicated by anyone. Whether an ox or sheep, it belongs to Adonai.
 27:27 If it is an unclean animal, then he is to buy it back according to your valuation, and add a fifth of the value to it. But if it is not redeemed, then it is to be sold according to your valuation.
-27:28 “Nevertheless, no devoted thing which a man sets apart from all that he has for </span><span class="it"><span class="sc"><span class="content">Adonai
+27:28 “Nevertheless, no devoted thing which a man sets apart from all that he has for Adonai, whether man or animal, or from the field of his possession, may be sold or redeemed. Every devoted thing is most holy to Adonai.
 27:29 “No one who may be set apart from men for destruction is to be ransomed. He is surely to be put to death.
-27:30 “All the tithe of the land whether from the seed of the land, or the fruit of the trees, belongs to </span><span class="it"><span class="sc"><span class="content">Adonai
+27:30 “All the tithe of the land whether from the seed of the land, or the fruit of the trees, belongs to Adonai, for it is holy to Adonai.
 27:31 If a man redeems anything of his tithe he must add a fifth part to it.
-27:32 From all the tithe of the herds or the flocks, whatever passes under the rod, a tenth will be holy to </span><span class="it"><span class="sc"><span class="content">Adonai
+27:32 From all the tithe of the herds or the flocks, whatever passes under the rod, a tenth will be holy to Adonai.
 27:33 One is not to inquire if it is good or bad, nor exchange it. Or if he does exchange it, then both it and that for which it is exchanged will become holy, and may not be redeemed.”
-27:34 These are the </span><span class="it"><span class="content">mitzvot
+27:34 These are the mitzvot which Adonai commanded Moses for Bnei-Yisrael on Mount Sinai.
