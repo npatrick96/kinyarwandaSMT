@@ -448,121 +448,121 @@
 15:21 But if it has any blemish—if it is lame or blind or has any serious blemish—you are not to sacrifice it to Adonai your God.
 15:22 You are to eat it within your gates, the unclean and the clean together, just as they eat the gazelle or deer.
 15:23 Only its blood you are not to eat—you must pour it out on the ground like water.
-16:1 “Observe the month of Aviv and keep the Passover to </span><span class="it"><span class="sc"><span class="content">Adonai
-16:2 You are to sacrifice the Passover offering to </span><span class="it"><span class="sc"><span class="content">Adonai
-16:3 You are not to eat </span><span class="it"><span class="content">hametz
-16:4 No </span><span class="it"><span class="content">hametz
-16:5 You may not sacrifice the Passover offering within any of your gates that </span><span class="it"><span class="sc"><span class="content">Adonai
-16:6 Rather, at the place </span><span class="it"><span class="sc"><span class="content">Adonai
-16:7 You are to cook and eat it at the place </span><span class="it"><span class="sc"><span class="content">Adonai
-16:8 For six days you are to eat </span><span class="it"><span class="content">matzot
+16:1 “Observe the month of Aviv and keep the Passover to Adonai your God, for in the month of Aviv Adonai your God brought you out from Egypt by night.
+16:2 You are to sacrifice the Passover offering to Adonai your God, from the flock and the herd, in the place Adonai chooses to make His Name dwell.
+16:3 You are not to eat hametz with it. For seven days you are to eat matzot with it, the bread of affliction—for you came out from the land of Egypt in haste. Do this so that all the days of your life you will remember the day when you came out from the land of Egypt.
+16:4 No hametz should be seen with you in all your territory for seven days, and none of the meat you sacrifice on the evening of the first day may be left overnight until the morning.
+16:5 You may not sacrifice the Passover offering within any of your gates that Adonai your God is giving you.
+16:6 Rather, at the place Adonai your God chooses to make His Name dwell, there you will sacrifice the Passover offering in the evening at sunset—the time of your coming out from Egypt.
+16:7 You are to cook and eat it at the place Adonai your God chooses, then you will turn around in the morning and journey home.
+16:8 For six days you are to eat matzot . On the seventh day there is to be a solemn gathering for Adonai your God—on it you are to do no work.
 16:9 Seven weeks you are to count for yourself—from the time you begin to put the sickle to the standing grain you will begin to count seven weeks.
-16:10 Then you will keep the Feast of </span><span class="it"><span class="content">Shavuot
-16:11 So you will rejoice before </span><span class="it"><span class="sc"><span class="content">Adonai
+16:10 Then you will keep the Feast of Shavuot to Adonai your God with a measure of a freewill offering from your hand, which you are to give according to how Adonai your God blesses you.
+16:11 So you will rejoice before Adonai your God in the place Adonai your God chooses to make His Name dwell—you, your son and daughter, slave and maid, Levite and outsider, orphan and widow in your midst.
 16:12 You will remember that you were a slave in Egypt, and you are to take care and do these statutes.
-16:13 “You are to keep the Feast of </span><span class="it"><span class="content">Sukkot
+16:13 “You are to keep the Feast of Sukkot for seven days, after gathering in the produce from your threshing floor and winepress.”
 16:14 So you will rejoice in your feast—you, your son and daughter, slave and maid, Levite and outsider, orphan and widow within your gates.
-16:15 Seven days you will feast to </span><span class="it"><span class="sc"><span class="content">Adonai
-16:16 Three times a year all your males are to appear before </span><span class="it"><span class="sc"><span class="content">Adonai
-16:17 the gift of each man’s hand according to the blessing </span><span class="it"><span class="sc"><span class="content">Adonai
-16:18 “Judges and officers you are to appoint within all your gates that </span><span class="it"><span class="sc"><span class="content">Adonai
+16:15 Seven days you will feast to Adonai your God in the place He chooses, because Adonai your God will bless you in all your produce and in all the work of your hand, and you will be completely filled with joy.
+16:16 Three times a year all your males are to appear before Adonai your God in the place He chooses—at the Feast of Matzot, the Feast of Shavuot, and the Feast of Sukkot. No one should appear before Adonai empty-handed—
+16:17 the gift of each man’s hand according to the blessing Adonai your God has given you.
+16:18 “Judges and officers you are to appoint within all your gates that Adonai your God is giving you, according to your tribes; and they are to judge the people with righteous judgment.
 16:19 You are not to twist justice—you must not show partiality or take a bribe, for a bribe blinds the eyes of the wise and distorts the words of the righteous.
-16:20 Justice, justice you must pursue, so that you may live and possess the land that </span><span class="it"><span class="sc"><span class="content">Adonai
-16:21 You are not to plant for yourself an Asherah pole of any kind of wood beside the altar of </span><span class="it"><span class="sc"><span class="content">Adonai
-16:22 Nor are you to set up a pillar for yourself—</span><span class="it"><span class="sc"><span class="content">Adonai
-17:1 “You are not to sacrifice to </span><span class="it"><span class="sc"><span class="content">Adonai
-17:2 Suppose there is found in your midst—within one of your gates that </span><span class="it"><span class="sc"><span class="content">Adonai
+16:20 Justice, justice you must pursue, so that you may live and possess the land that Adonai your God is giving you.
+16:21 You are not to plant for yourself an Asherah pole of any kind of wood beside the altar of Adonai your God that you make for yourself.
+16:22 Nor are you to set up a pillar for yourself—Adonai your God hates this.
+17:1 “You are not to sacrifice to Adonai your God a bull or a sheep that has a defect or anything bad—for that would be an abomination to Adonai your God.
+17:2 Suppose there is found in your midst—within one of your gates that Adonai your God is giving you—a man or woman who does what is evil in the eyes of Adonai your God by transgressing His covenant.
 17:3 This person goes and serves other gods and worships them—the sun or moon or any of the heavenly host, which I have not commanded.
 17:4 It is told to you and you have heard about it, and you investigate thoroughly and indeed it is true and the thing certain—this abomination has been done in Israel.
 17:5 Then you are to bring out to your gates that man or woman who has done this evil thing, and stone that man or woman with stones to death.
 17:6 By the word of two or three witnesses, the one who is to die is to be put to death. No one is to be put to death by the word of one witness.
 17:7 The hand of the witnesses is to be first to put him to death, and afterward the hand of all the people. So you are to purge the evil from your midst.
-17:8 “Suppose a matter arises that is too hard for you to judge—over bloodshed, legal claims or assault—matters of controversy within your gates. Then you should go up to the place </span><span class="it"><span class="sc"><span class="content">Adonai
-17:9 and come to the Levitical </span><span class="it"><span class="content">kohanim
-17:10 You are to act according to the sentence they tell you from that place </span><span class="it"><span class="sc"><span class="content">Adonai
+17:8 “Suppose a matter arises that is too hard for you to judge—over bloodshed, legal claims or assault—matters of controversy within your gates. Then you should go up to the place Adonai your God chooses,
+17:9 and come to the Levitical kohanim and the judge in charge at that time. And you will inquire, and they will tell you the sentence of judgment.
+17:10 You are to act according to the sentence they tell you from that place Adonai chooses, and take care to do all that they instruct you.
 17:11 You are to act according to the instruction they teach you and the judgment they tell you—you must not turn aside from the sentence they tell you, to the right or to the left.
-17:12 The man who acts presumptuously by not listening to the </span><span class="it"><span class="content">kohen
+17:12 The man who acts presumptuously by not listening to the kohen who stands to serve there before Adonai your God, or to the judge, that man must die. So you are to purge the evil from Israel.
 17:13 Then all the people will hear and be afraid, and not act presumptuously again.
-17:14 “When you come to the land that </span><span class="it"><span class="sc"><span class="content">Adonai
-17:15 you will indeed set over yourselves a king, whom </span><span class="it"><span class="sc"><span class="content">Adonai
-17:16 Only he should not multiply horses for himself or make the people return to Egypt to multiply horses, because </span><span class="it"><span class="sc"><span class="content">Adonai
+17:14 “When you come to the land that Adonai your God is giving you, possess it and dwell in it, and you say, ‘I will set a king over me, like all the nations around me,’
+17:15 you will indeed set over yourselves a king, whom Adonai your God chooses. One from among your brothers will be appointed as king over you—you may not put a foreigner over you, who is not your brother.
+17:16 Only he should not multiply horses for himself or make the people return to Egypt to multiply horses, because Adonai has said to you, “You must never go back that way again.”
 17:17 Nor should he multiply wives for himself, so that his heart does not turn aside, nor multiply much silver and gold for himself.
-17:18 “Now when he sits on the throne of his kingdom, he is to write for himself a copy of this </span><span class="it"><span class="content">Torah
-17:19 It will remain with him, and he will read in it all the days of his life, in order to learn to fear </span><span class="it"><span class="sc"><span class="content">Adonai
+17:18 “Now when he sits on the throne of his kingdom, he is to write for himself a copy of this Torah on a scroll, from what is before the Levitical kohanim.
+17:19 It will remain with him, and he will read in it all the days of his life, in order to learn to fear Adonai his God and keep all the words of this Torah and these statutes.
 17:20 Then his heart will not be exalted above his brothers, and he will not turn from the commandment to the right or to the left—so that he may prolong his days in his kingship, he and his sons, in the midst of Israel.
-18:1 “The Levitical </span><span class="it"><span class="content">kohanim
-18:2 They will have no inheritance among their brothers—</span><span class="it"><span class="sc"><span class="content">Adonai
-18:3 So this will be the share due to the </span><span class="it"><span class="content">kohanim
+18:1 “The Levitical kohanim, all the tribe of Levi, are to have no portion or inheritance with Israel. They are to eat the offerings made to Adonai by fire as His inheritance.
+18:2 They will have no inheritance among their brothers—Adonai is their inheritance, just as He promised them.
+18:3 So this will be the share due to the kohanim from the people—from those who offer a sacrifice, whether a bull or sheep, they are to give the kohen the shoulder, two cheeks, and the stomach.
 18:4 The firstfruits of your grain, of your new wine, of your oil, and the first fleece of your sheep, you are to give him.
-18:5 For </span><span class="it"><span class="sc"><span class="content">Adonai
-18:6 “Suppose a Levite comes from one of your towns, wherever he is living in all of Israel, and he comes whenever his soul desires to the place </span><span class="it"><span class="sc"><span class="content">Adonai
-18:7 and serves in the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+18:5 For Adonai your God has chosen him from all your tribes to stand and serve in the Name of Adonai—him and his sons forever.
+18:6 “Suppose a Levite comes from one of your towns, wherever he is living in all of Israel, and he comes whenever his soul desires to the place Adonai chooses,
+18:7 and serves in the Name of Adonai his God like all his fellow Levites who stand there before Adonai.
 18:8 They are to eat equal portions, regardless of their fathers’ goods.
-18:9 When you enter the land </span><span class="it"><span class="sc"><span class="content">Adonai
+18:9 When you enter the land Adonai your God is giving you, you are not to learn to do the abominations of those nations.
 18:10 There must not be found among you anyone who makes his son or daughter pass through the fire, or a fortune-teller, soothsayer, omen reader, or sorcerer,
 18:11 or one who casts spells, or a medium, a spiritist, or one who calls up the dead.
-18:12 For whoever does these things is an abomination to </span><span class="it"><span class="sc"><span class="content">Adonai
-18:13 You are to be blameless before </span><span class="it"><span class="sc"><span class="content">Adonai
-18:14 “For these nations, which you are about to dispossess, listen to soothsayers and fortune-tellers, but as for you, </span><span class="it"><span class="sc"><span class="content">Adonai
-18:15 “</span><span class="it"><span class="sc"><span class="content">Adonai
-18:16 This is just what you asked of </span><span class="it"><span class="sc"><span class="content">Adonai
-18:17 “</span><span class="it"><span class="sc"><span class="content">Adonai
+18:12 For whoever does these things is an abomination to Adonai, and because of these abominations Adonai your God is driving them out from before you.
+18:13 You are to be blameless before Adonai your God.
+18:14 “For these nations, which you are about to dispossess, listen to soothsayers and fortune-tellers, but as for you, Adonai your God will not allow you to do so.
+18:15 “Adonai your God will raise up for you a prophet like me from your midst—from your brothers. To him you must listen.
+18:16 This is just what you asked of Adonai your God in Horeb on the day of the assembly when saying, ‘I cannot continue to hear the voice of Adonai my God or see this great fire any more, or I will die.’
+18:17 “Adonai said to me, ‘They have done well in what they have spoken.
 18:18 I will raise up a prophet like you for them from among their brothers. I will put My words in his mouth, and he will speak to them all that I command him.
 18:19 Now whoever does not listen to My words that this prophet speaks in My Name, I Myself will call him to account.
 18:20 But the prophet who presumes to speak a word in My Name, which I have not commanded him to speak, or who speaks in the name of other gods—that prophet will die.’
-18:21 “Now should you say in your heart, ‘How would we recognize the word that </span><span class="it"><span class="sc"><span class="content">Adonai
-18:22 When a prophet speaks in </span><span class="it"><span class="sc"><span class="content">Adonai
-19:1 “When </span><span class="it"><span class="sc"><span class="content">Adonai
+18:21 “Now should you say in your heart, ‘How would we recognize the word that Adonai has not spoken?’
+18:22 When a prophet speaks in Adonai’s Name and the word does not happen or come true, that is a word that Adonai has not spoken. The prophet has spoken it presumptuously—do not be afraid of him.
+19:1 “When Adonai your God cuts off the nations whose land Adonai your God is giving you, and you dispossess them and dwell in their cities and houses,
 19:2 you are to set apart three cities for yourself within the land He is giving you to possess.
-19:3 You are to prepare the way for yourself and divide into three parts the borders of your land that </span><span class="it"><span class="sc"><span class="content">Adonai
+19:3 You are to prepare the way for yourself and divide into three parts the borders of your land that Adonai your God enables you to inherit, so that anyone who kills may flee there.
 19:4 Now this is the case of the one who kills, who may flee there and live—whoever kills his neighbor unintentionally and did not hate him in the past—
 19:5 as when someone goes into the forest with his neighbor to chop wood, and his hand takes a swing with the axe to cut down the tree, and the iron flies off the wood and hits his neighbor so that he dies. He may flee to one of these cities and live.
 19:6 Otherwise if the way is long, the avenger of the blood, while his heart is hot, may chase the manslayer, catch up to him and strike him dead. Yet no death sentence is on him, since he did not hate him in the past.
 19:7 Therefore I am commanding you—set apart three cities for yourself.
-19:8 “Suppose </span><span class="it"><span class="sc"><span class="content">Adonai
-19:9 when you take care to do all this </span><span class="it"><span class="content">mitzvah
-19:10 Then innocent blood will not be shed within your land that </span><span class="it"><span class="sc"><span class="content">Adonai
+19:8 “Suppose Adonai your God enlarges your territory, as He has sworn to your fathers, and He gives you all the land that He promised to give to your fathers—
+19:9 when you take care to do all this mitzvah that I am commanding you today, to love Adonai your God and to always walk in His ways. Then you are to add three more cities for yourself, besides these three.
+19:10 Then innocent blood will not be shed within your land that Adonai your God is giving you as an inheritance, and there would be blood upon you.
 19:11 “But suppose someone hates his neighbor, waits in hiding for him, rises up against him, strikes him dead, then flees to one of these cities.
 19:12 Then the elders of his hometown should send and take him from there and hand him over to the avenger of blood, to die.
 19:13 Your eye should not pity him, but you must purge the innocent blood from Israel, so that it may go well with you.
-19:14 “You must not move your neighbor’s boundary marker that the first generations marked out, in the inheritance you will receive in the land </span><span class="it"><span class="sc"><span class="content">Adonai
+19:14 “You must not move your neighbor’s boundary marker that the first generations marked out, in the inheritance you will receive in the land Adonai your God is giving you to possess.
 19:15 A single witness shall not rise up against a person for any offense or sin that he commits. By the word of two or three witnesses is a case to be established.
 19:16 Suppose a hostile witness rises up against someone to accuse him of wrongdoing.
-19:17 Then both people who have the dispute will stand before </span><span class="it"><span class="sc"><span class="content">Adonai
+19:17 Then both people who have the dispute will stand before Adonai, before the kohanim and judges in charge at that time.
 19:18 The judges are to investigate thoroughly, and if indeed the witness is a false witness and has testified falsely against his brother,
 19:19 then you are to do to him just as he had plotted to do to his brother. So you will purge the evil from your midst.
 19:20 Those who remain will hear and be afraid, and they will no longer do such an evil thing as this in your midst.
 19:21 Your eye must not show pity—life for life, eye for eye, tooth for tooth, hand for hand, foot for foot.
-20:1 “When you go out to battle against your enemies and see horse and chariot—a people more numerous than you—do not be afraid of them. For </span><span class="it"><span class="sc"><span class="content">Adonai
-20:2 When you draw near to the battle, the </span><span class="it"><span class="content">kohen
+20:1 “When you go out to battle against your enemies and see horse and chariot—a people more numerous than you—do not be afraid of them. For Adonai your God, the One who brought you up from the land of Egypt, is with you.
+20:2 When you draw near to the battle, the kohen will come forward and speak to the people.
 20:3 He will say to them, ‘Hear, O Israel, you are drawing near today to the battle against your enemies. Don’t be fainthearted! Don’t fear or panic or tremble because of them.
-20:4 For </span><span class="it"><span class="sc"><span class="content">Adonai
+20:4 For Adonai your God is the One who goes with you, to fight for you against your enemies to save you.’
 20:5 “The officers are to speak to the troops saying, ‘What man has built a new house but has not dedicated it? Let him go back to his house—otherwise he might die in the battle and another man would dedicate it.
 20:6 What man has planted a vineyard but has not put it to use? Let him go back to his house—otherwise he might die in the battle and another man would begin to use it.
 20:7 What man has become engaged to a woman but has not married her? Let him go back to his house—otherwise he might die in the battle and another man would marry her.’
 20:8 The officers will speak further to the troops and say, ‘What man is afraid and fainthearted? Let him go back to his house—so he does not weaken his brothers’ heart like his own.’
 20:9 Then when the officers have finished speaking to the troops, they should appoint army commanders at the head of the troops.
-20:10 “When you go near a city to fight against it, call out </span><span class="it"><span class="content">shalom
-20:11 Now if it answers you </span><span class="it"><span class="content">shalom
+20:10 “When you go near a city to fight against it, call out shalom to it.
+20:11 Now if it answers you shalom and opens up to you, then all the people found in it will serve you as forced laborers.
 20:12 If it does not make peace with you but makes war against you, then lay siege against that city.
-20:13 When </span><span class="it"><span class="sc"><span class="content">Adonai
-20:14 Only the women, children, livestock and all that is in the city—all its spoil—may you take as plunder for yourself. So you may consume your enemies’ spoil, which </span><span class="it"><span class="sc"><span class="content">Adonai
+20:13 When Adonai your God hands it over to you, you are to strike all its males with the sword.
+20:14 Only the women, children, livestock and all that is in the city—all its spoil—may you take as plunder for yourself. So you may consume your enemies’ spoil, which Adonai your God has given you.
 20:15 Thus you will do to all the cities that are very distant from you, which are not among the towns of these nations nearby.
-20:16 However, only from the cities of these peoples, which </span><span class="it"><span class="sc"><span class="content">Adonai
-20:17 You must utterly destroy them—the Hittites , the Amorites , the Canaanites , the Perizzites , the Hivites and the Jebusites—just as </span><span class="it"><span class="sc"><span class="content">Adonai
-20:18 You are to do this so they will not teach you to do all the abominations as they have done for their gods, and so you would sin against </span><span class="it"><span class="sc"><span class="content">Adonai
+20:16 However, only from the cities of these peoples, which Adonai your God is giving you as an inheritance, you must not let anything that breathes live.
+20:17 You must utterly destroy them—the Hittites , the Amorites , the Canaanites , the Perizzites , the Hivites and the Jebusites—just as Adonai your God has commanded you.
+20:18 You are to do this so they will not teach you to do all the abominations as they have done for their gods, and so you would sin against Adonai your God.
 20:19 “When you lay siege to a city for a long time, making war against it to capture it, you are not to destroy its trees by swinging an axe at them. For from them you may eat, so you shall not chop them down. For is the tree of the field human, that it should enter the siege before you?
 20:20 You may destroy and chop down only the trees that you know are not trees for food, so that you may build siege equipment against the city that is making war with you until its downfall.
-21:1 “Suppose a slain person is found fallen in a field, on the land </span><span class="it"><span class="sc"><span class="content">Adonai
+21:1 “Suppose a slain person is found fallen in a field, on the land Adonai your God is giving you to possess—who struck him is unknown.
 21:2 Then your elders and judges must come out and measure the distance to the towns that are around the slain one.
 21:3 Now the town nearest to the slain one—the elders of that city are to take from the herd a heifer that has not been used for work or pulled a yoke.
 21:4 Then the elders of that city are to bring the heifer down to a flowing wadi that has not been plowed or sown, and break the heifer’s neck there in the wadi.
-21:5 The </span><span class="it"><span class="content">kohanim
+21:5 The kohanim, the sons of Levi, will come forward—for Adonai your God has chosen them to serve Him and pronounce blessings in His Name, and by their mouth every dispute and assault is to be settled.
 21:6 All the elders of that city nearest to the slain one will wash their hands over the heifer whose neck was broken in the wadi.
 21:7 Then they will answer and say, ‘Our hands did not shed this blood, nor did our eyes see.
-21:8 Grant atonement for Your people Israel whom You have redeemed, </span><span class="it"><span class="sc"><span class="content">Adonai
-21:9 So you will purge the guilt of innocent blood from your midst, when you do what is right in </span><span class="it"><span class="sc"><span class="content">Adonai
-21:10 “When you go out to war against your enemies, and </span><span class="it"><span class="sc"><span class="content">Adonai
+21:8 Grant atonement for Your people Israel whom You have redeemed, Adonai, and do not put innocent blood on Your people Israel.’ Then atonement will be granted to them for the blood.
+21:9 So you will purge the guilt of innocent blood from your midst, when you do what is right in Adonai’s sight.
+21:10 “When you go out to war against your enemies, and Adonai your God hands them over to you and you take them captive,
 21:11 suppose you see among the captives a beautiful woman, and you desire her and would take her as a wife for yourself.
 21:12 Then you are to bring her into your house, and she must shave her head, trim her nails,
 21:13 and remove her captive’s clothing, then sit in your house and weep for her father and mother a full month. After that, you may go to her and become her husband and she will be your wife.
@@ -575,12 +575,12 @@
 21:20 They will say to the elders of his city, ‘This son of ours is stubborn and rebellious—he does not listen to our voice. He is a glutton and a drunkard.’
 21:21 Then all the men of his city are to stone him with stones to death. So you will purge the evil from your midst—and all Israel will hear and be afraid.
 21:22 “Suppose a man is guilty of a sin with a death sentence and he is put to death, and you hang him on a tree.
-21:23 His body is not to remain all night on the tree—instead you must certainly bury him the same day, for anyone hanged is a curse of God. You must not defile your land that </span><span class="it"><span class="sc"><span class="content">Adonai
+21:23 His body is not to remain all night on the tree—instead you must certainly bury him the same day, for anyone hanged is a curse of God. You must not defile your land that Adonai your God is giving you as an inheritance.
 22:1 “You are not to watch your brother’s ox or sheep going astray and ignore them —you must certainly bring them back to your brother.
 22:2 If your brother is not near you or if you do not know him, then you should bring it into your house and it will remain with you until your brother comes searching for it and you return it to him.
 22:3 You are to do the same with his donkey or his coat or anything lost by your brother, that may be lost by him and you find—you may not ignore them.
 22:4 You must not watch your brother’s donkey or ox fall down on the road and ignore it—you must certainly help him lift it up again.
-22:5 “A man’s apparel is not to be on a woman, nor is a man to wear woman’s clothing—for whoever does these things is detestable to </span><span class="it"><span class="sc"><span class="content">Adonai
+22:5 “A man’s apparel is not to be on a woman, nor is a man to wear woman’s clothing—for whoever does these things is detestable to Adonai your God.
 22:6 “If there happens to be a bird’s nest in front of you along the road, in any tree or on the ground, with young ones or eggs and the hen sitting on the young or on the eggs, you are not to take the hen with the young.
 22:7 You must certainly let the hen go, but the young you may take for yourself so that it may go well with you and you may prolong your days.
 22:8 “When you build a new house, you are to make a guardrail for your roof, so that you do not bring the guilt of blood on your house if anyone falls from it.
@@ -605,51 +605,51 @@
 22:27 for he found her in the field, the engaged woman cried out, and there was no one to save her.
 22:28 “Suppose a man finds a young virgin who is not engaged, grabs her and lies with her, and they are discovered.
 22:29 Then the man who lay with her is to give to the young woman’s father 50 pieces of silver, and she is to be his wife, since he has humiliated her—he may not send her away all his days.
-22:30
 23:1 “A man is not to take his father’s wife—he is not to expose his father’s nakedness.
-23:2 “No one with crushed or cut-off genitals is to enter the community of </span><span class="it"><span class="sc"><span class="content">Adonai
-23:3 No one born of forbidden relations is to enter the community of </span><span class="it"><span class="sc"><span class="content">Adonai
-23:4 No Ammonite or Moabite is to enter the community of </span><span class="it"><span class="sc"><span class="content">Adonai
+23:2 “No one with crushed or cut-off genitals is to enter the community of Adonai.
+23:3 No one born of forbidden relations is to enter the community of Adonai—even to the tenth generation none of his descendants are to enter the community of Adonai.
+23:4 No Ammonite or Moabite is to enter the community of Adonai—even to the tenth generation none belonging to them is to enter the community of Adonai forever—
 23:5 because they did not meet you with bread and water on the way when you came out from Egypt, and because they hired against you Balaam son of Beor from Petor of Aram-naharaim to curse you.
-23:6 But </span><span class="it"><span class="sc"><span class="content">Adonai
-23:7 You are never to seek their </span><span class="it"><span class="content">shalom
+23:6 But Adonai your God refused to listen to Balaam, and Adonai your God turned the curse into a blessing for you because He loves you.
+23:7 You are never to seek their shalom or welfare all your days.
 23:8 “You are not to detest an Edomite, for he is your brother. You are not to detest an Egyptian, for you were an outsider in his land.
-23:9 The children born to them—the third generation—may enter the community of </span><span class="it"><span class="sc"><span class="content">Adonai
+23:9 The children born to them—the third generation—may enter the community of Adonai.
 23:10 “When you go out as an army camp against your enemies, you are to guard yourself from every evil thing.
 23:11 If there is among you a man who is not clean from a nighttime emission, he is to go outside the camp—he may not reenter the camp.
 23:12 Now toward evening he is to bathe in water, and when the sun sets, he may reenter the camp.
 23:13 There is to be a place at hand for you outside the camp, and you are to go there outside.
 23:14 You are to have a shovel for yourself among your weapons. Now when you sit down outside, you are to dig with it and turn and cover up what comes out of you.
-23:15 For </span><span class="it"><span class="sc"><span class="content">Adonai
+23:15 For Adonai your God walks in the midst of your camp, to rescue you and to give your enemies over to you. Therefore your camp must be holy, so that He does not see anything indecent among you and turn away from you.
 23:16 “You are not to hand over to his master a slave who seeks refuge with you from his master.
 23:17 Let him dwell with you in your midst, in the place he chooses within one of your town gates—the one that is good for him. You are not to mistreat him.
 23:18 “None of the daughters of Israel is to be a cult prostitute, nor any of the sons of Israel a cult prostitute.
-23:19 You are not to bring the fee of a prostitute or the wages of a dog into the House of </span><span class="it"><span class="sc"><span class="content">Adonai
+23:19 You are not to bring the fee of a prostitute or the wages of a dog into the House of Adonai your God for any vow, for both of these are detestable to Adonai your God.
 23:20 “You are not to charge excessive interest to your brother—on money, food or anything that may be loaned for interest.
-23:21 To a foreigner you may charge interest, but to your brother you are not to charge interest, so that </span><span class="it"><span class="sc"><span class="content">Adonai
-23:22 “When you make a vow to </span><span class="it"><span class="sc"><span class="content">Adonai
+23:21 To a foreigner you may charge interest, but to your brother you are not to charge interest, so that Adonai your God may bless you in every undertaking of your hand on the land you are going in to possess.
+23:22 “When you make a vow to Adonai your God, you are not to delay to make good on it—for Adonai your God will certainly require it of you, and you would have sin on you.
 23:23 But if you refrain from making a vow, you would not have sin on you.
-23:24 Whatever comes out of your lips you are to take care to do, since you have vowed to </span><span class="it"><span class="sc"><span class="content">Adonai
+23:24 Whatever comes out of your lips you are to take care to do, since you have vowed to Adonai your God a freewill offering that you have promised with your mouth.
 23:25 “When you come into your neighbor’s vineyard, you may eat your fill of grapes; but you are not to put any in your basket.
+23:26 When you come into your neighbor’s standing grain, you may pluck the ears with your hand; but you are not to swing a sickle on your neighbor’s standing grain.
 24:1 “Suppose a man takes a wife and marries her. Now if she doesn’t find favor in his eyes because he has found something indecent in her, he is to write her a certificate of divorce, hand it to her and send her out from his house.
 24:2 When she leaves his house, she may go and become another man’s wife.
 24:3 Now suppose the second husband dislikes her and writes her a certificate of divorce, and he hands it to her and she leaves his house—or suppose the second husband who took her to be his wife dies.
-24:4 Then her former husband, who sent her away, may not take her again to be his wife, after she has been defiled—for that would be detestable before </span><span class="it"><span class="sc"><span class="content">Adonai
+24:4 Then her former husband, who sent her away, may not take her again to be his wife, after she has been defiled—for that would be detestable before Adonai. You are not to bring guilt on the land that Adonai your God is giving you as an inheritance.
 24:5 “When a man takes a new wife, he is not to go out with the army or have any duty passed over to him. He is to be free at home for one year and make his wife happy.
 24:6 “No one is to take a pair of millstones or the upper one as collateral, for this would be taking a livelihood as collateral.
-24:7 “If a man is caught kidnapping any of his brothers from </span><span class="it"><span class="content">Bnei-Yisrael
-24:8 “Take care in the plague of </span><span class="it"><span class="content">tza'arat
-24:9 Remember what </span><span class="it"><span class="sc"><span class="content">Adonai
+24:7 “If a man is caught kidnapping any of his brothers from Bnei-Yisrael, whether he treats him like property or sells him, then that kidnapper must die. So you are to purge the evil from your midst.
+24:8 “Take care in the plague of tza'arat—be very careful to do all that the Levitical kohanim instruct you, just as I commanded them, so you are to take care to do.
+24:9 Remember what Adonai your God did to Miriam, along the way when you were coming out from Egypt.
 24:10 “When you make any kind of loan to your neighbor, you are not to go into his house to get his pledge.
 24:11 You are to stand outside, and the man to whom you are making the loan is to bring the pledge outside to you.
 24:12 If he is a poor man, you are not to sleep with his pledge .
-24:13 You must certainly restore the pledge to him when the sun sets, so that he may sleep in his coat and bless you—and it is to be righteousness for you before </span><span class="it"><span class="sc"><span class="content">Adonai
+24:13 You must certainly restore the pledge to him when the sun sets, so that he may sleep in his coat and bless you—and it is to be righteousness for you before Adonai your God.
 24:14 “You are not to oppress a hired servant who is poor and needy, whether he is from your brothers or the outsiders in your land within your town gates.
-24:15 On that day you are to give him his wages—the sun is not to set on it—for he is poor and sets his heart on it. Otherwise he will cry out against you to </span><span class="it"><span class="sc"><span class="content">Adonai
+24:15 On that day you are to give him his wages—the sun is not to set on it—for he is poor and sets his heart on it. Otherwise he will cry out against you to Adonai, and you will have sin on you.
 24:16 “Fathers are not to be put to death for children, and children are not to be put to death for fathers—each one is to be put to death for his own sin.
 24:17 You are not to twist justice for an outsider or orphan, and you are not to take as collateral a widow’s clothing.
-24:18 But you are to remember that you were a slave in Egypt, and </span><span class="it"><span class="sc"><span class="content">Adonai
-24:19 “When you reap your harvest in your field and have forgotten a sheaf in the field, you are not to turn back to get it. It is for the outsider, for the orphan and for the widow—in order that </span><span class="it"><span class="sc"><span class="content">Adonai
+24:18 But you are to remember that you were a slave in Egypt, and Adonai your God redeemed you from there. Therefore I am commanding you to do this thing.
+24:19 “When you reap your harvest in your field and have forgotten a sheaf in the field, you are not to turn back to get it. It is for the outsider, for the orphan and for the widow—in order that Adonai your God may bless you in all the work of your hands.
 24:20 When you beat your olive tree, you are not to search through the branches afterward. It is for the outsider, for the orphan and for the widow.
 24:21 When you harvest your vineyard, you are not to pick over it afterward. It is for the outsider, for the orphan and for the widow.
 24:22 You are to remember that you were a slave in the land of Egypt. Therefore I am commanding you to do this thing.
@@ -667,45 +667,45 @@
 25:12 Then you are to cut off her hand—your eye will show no pity.
 25:13 “You are not to have stones of different weights in your bag—large and small.
 25:14 You are not to have in your house ephahs of different measures—large and small.
-25:15 You must have a full and honest weight and a full and honest measure, so that your days may be long on the land that </span><span class="it"><span class="sc"><span class="content">Adonai
-25:16 For all who do these things, all who do injustice, are detestable to </span><span class="it"><span class="sc"><span class="content">Adonai
+25:15 You must have a full and honest weight and a full and honest measure, so that your days may be long on the land that Adonai your God is giving you.
+25:16 For all who do these things, all who do injustice, are detestable to Adonai your God.
 25:17 “Remember what Amalek did to you along the way as you came out from Egypt—
 25:18 how he happened upon you along the way and attacked those among you in the rear, all the stragglers behind you, when you were tired and weary—he did not fear God.
-25:19 Now when </span><span class="it"><span class="sc"><span class="content">Adonai
-26:1 “Now when you enter the land that </span><span class="it"><span class="sc"><span class="content">Adonai
-26:2 you are to take some of the first of all the produce of the soil, which you gather from your land that </span><span class="it"><span class="sc"><span class="content">Adonai
-26:3 You are to go to the </span><span class="it"><span class="content">kohen
-26:4 The </span><span class="it"><span class="content">kohen
-26:5 “Then you are to respond before </span><span class="it"><span class="sc"><span class="content">Adonai
+25:19 Now when Adonai your God grants you rest from all the enemies surrounding you in the land Adonai your God is giving you as an inheritance to possess, you are to blot out the memory of Amalek from under the heavens. Do not forget!
+26:1 “Now when you enter the land that Adonai your God is giving you as an inheritance, and you possess it and dwell in it,
+26:2 you are to take some of the first of all the produce of the soil, which you gather from your land that Adonai your God is giving you, put it in a basket and go to the place Adonai your God chooses to make His Name dwell.
+26:3 You are to go to the kohen in charge in those days and say to him, ‘I declare today to Adonai your God, that I have entered into the land Adonai swore to our fathers to give us.’
+26:4 The kohen is to take the basket from your hand and set it down before the altar of Adonai your God.
+26:5 “Then you are to respond before Adonai your God, ‘My father was a wandering Aramean, and he went down to Egypt and lived there as an outsider, few in number. But there he became a great nation—mighty and numerous.
 26:6 The Egyptians treated us badly, afflicted us, and imposed hard labor on us.
-26:7 Then we cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-26:8 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+26:7 Then we cried out to Adonai, God of our fathers, and Adonai listened to our voice and saw our affliction, our toil and our oppression.
+26:8 Then Adonai brought us out from Egypt with a mighty hand and an outstretched arm, with great terror, and with signs and wonders.
 26:9 He brought us to this place and gave us this land—a land flowing with milk and honey.
-26:10 So now, look! I have brought the first of the fruits of the soil that You have given me, </span><span class="it"><span class="sc"><span class="content">Adonai
-26:11 You will rejoice in all the good that </span><span class="it"><span class="sc"><span class="content">Adonai
+26:10 So now, look! I have brought the first of the fruits of the soil that You have given me, Adonai.’ Then you are to set it down before Adonai your God and worship before Adonai your God.
+26:11 You will rejoice in all the good that Adonai your God has given to you and to your house—you, the Levite, and the outsider in your midst.
 26:12 “When you finish tithing the full tenth of your produce in the third year, the year of the tithe, you are to give it to the Levite, to the outsider, to the orphan and to the widow, so that they may eat within your town gates and be satisfied.
-26:13 Then you are to say before </span><span class="it"><span class="sc"><span class="content">Adonai
-26:14 I have not eaten from the tithe in my mourning, or removed any of it while unclean, or given any of it to the dead. I have obeyed the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
+26:13 Then you are to say before Adonai your God, ‘I have removed the holy tithe from my house and also have given it to the Levite and to the outsider, to the orphan and to the widow, according to all Your mitzvah that You have commanded me. I have not transgressed or forgotten any of Your mitzvot.
+26:14 I have not eaten from the tithe in my mourning, or removed any of it while unclean, or given any of it to the dead. I have obeyed the voice of Adonai my God; I have done all just as You commanded me.
 26:15 Look down from Your holy dwelling place, from the heavens and bless Your people Israel and the soil You have given us, as You swore to our fathers—a land flowing with milk and honey.’
-26:16 “This day </span><span class="it"><span class="sc"><span class="content">Adonai
-26:17 Today you have affirmed </span><span class="it"><span class="sc"><span class="content">Adonai
-26:18 Now today </span><span class="it"><span class="sc"><span class="content">Adonai
-26:19 that He will set you high above all the nations He has made, for praise, fame and honor; and that you are to be a holy people to </span><span class="it"><span class="sc"><span class="content">Adonai
-27:1 Moses and the elders of Israel commanded the people, saying, “Keep the whole </span><span class="it"><span class="content">mitzvah
-27:2 Now on the day when you cross over the Jordan to the land that </span><span class="it"><span class="sc"><span class="content">Adonai
-27:3 Then you are to write on them all the words of this </span><span class="it"><span class="content">Torah
+26:16 “This day Adonai your God is commanding you to do these statutes and ordinances—so you are to take care and do them with all your heart and with all your soul.
+26:17 Today you have affirmed Adonai as your God, that you will walk in His ways, keep His statutes, mitzvot and ordinances, and listen to His voice.
+26:18 Now today Adonai has affirmed you as His treasured people, as He promised you; that you are to keep all His mitzvot;
+26:19 that He will set you high above all the nations He has made, for praise, fame and honor; and that you are to be a holy people to Adonai your God, as He has promised.”
+27:1 Moses and the elders of Israel commanded the people, saying, “Keep the whole mitzvah that I am commanding you today.
+27:2 Now on the day when you cross over the Jordan to the land that Adonai your God is giving you, you are to set up large stones for yourself and coat them with plaster.
+27:3 Then you are to write on them all the words of this Torah when you cross over—so that you may enter the land that Adonai your God is giving you, a land flowing with milk and honey just as Adonai, the God of your fathers, promised you.
 27:4 Now when you cross over the Jordan, you are to set up these stones about which I am commanding you today on Mount Ebal, and coat them with plaster.
-27:5 There also you will build an altar to </span><span class="it"><span class="sc"><span class="content">Adonai
-27:6 You are to build the altar of </span><span class="it"><span class="sc"><span class="content">Adonai
-27:7 You are to sacrifice fellowship offerings and eat there, and you will rejoice before </span><span class="it"><span class="sc"><span class="content">Adonai
-27:8 You are to write on the stones all the words of this </span><span class="it"><span class="content">Torah
-27:9 Then Moses and the Levitical </span><span class="it"><span class="content">kohanim
-27:10 Therefore listen to the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
+27:5 There also you will build an altar to Adonai your God, an altar of stones—you are not to use an iron tool on them.
+27:6 You are to build the altar of Adonai your God of whole stones, and you are to offer up burnt offerings on it to Adonai your God.
+27:7 You are to sacrifice fellowship offerings and eat there, and you will rejoice before Adonai your God.
+27:8 You are to write on the stones all the words of this Torah very clearly.”
+27:9 Then Moses and the Levitical kohanim spoke to all Israel, saying, “Be silent and listen, O Israel—this day you have become a people for Adonai your God.
+27:10 Therefore listen to the voice of Adonai your God, and do His mitzvot and statutes that I am commanding you today.”
 27:11 Moses commanded the people on that day saying,
 27:12 “When you have crossed over the Jordan, these are to stand on Mount Gerizim to bless the people: Simeon, Levi, Judah, Issachar, Joseph, and Benjamin.
 27:13 For the curse these are to stand on Mount Ebal: Reuben, Gad, Asher, Zebulun, Dan, and Naphtali.
 27:14 “Then the Levites are to answer and say with a loud voice to every man of Israel:
-27:15 ‘Cursed is the one who makes a carved or molten image—an abomination to </span><span class="it"><span class="sc"><span class="content">Adonai
+27:15 ‘Cursed is the one who makes a carved or molten image—an abomination to Adonai, the work of a craftsman’s hands—and sets it up in secret.’ Then all the people are to answer and say, ‘Amen.’
 27:16 ‘Cursed is the one who dishonors his father or mother.’ Then all the people are to say, ‘Amen.’
 27:17 ‘Cursed is the one who removes his neighbor’s boundary marker.’ Then all the people are to say, ‘Amen.’
 27:18 ‘Cursed is the one who misleads a blind person on the road.’ Then all the people are to say, ‘Amen.’
@@ -716,44 +716,44 @@
 27:23 “Cursed is the one who lies with his mother-in-law.’ Then all the people are to say, ‘Amen.’
 27:24 ‘Cursed is the one who strikes down his neighbor in secret.’ Then all the people are to say, ‘Amen.’
 27:25 ‘Cursed is the one who takes a bribe to strike down an innocent life.’ Then all the people are to say, ‘Amen.’
-27:26 ‘Cursed is the one who does not uphold the words of this </span><span class="it"><span class="content">Torah
-28:1 “Now if you listen obediently to the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-28:2 Then all these blessings will come upon you and overtake you, if you listen to the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
+27:26 ‘Cursed is the one who does not uphold the words of this Torah by doing them.’ Then all the people are to say, ‘Amen.’
+28:1 “Now if you listen obediently to the voice of Adonai your God, taking care to do all His mitzvot that I am commanding you today, Adonai your God will set you on high—above all the nations of the earth.
+28:2 Then all these blessings will come upon you and overtake you, if you listen to the voice of Adonai your God:
 28:3 “Blessed will you be in the city, and blessed will you be in the field.
 28:4 “Blessed will be the fruit of your womb, the produce of your soil, and the offspring of your livestock—the increase of your herds and the young of your flock.
 28:5 “Blessed will be your basket and your kneading bowl.
 28:6 “Blessed will you be when you come in, and blessed will you be when you go out.
-28:7 “</span><span class="it"><span class="sc"><span class="content">Adonai
-28:8  your God is giving you.
-28:9  your God and walk in His ways.
-28:10 Then all the peoples of the earth will see that you are called by the name of </span><span class="it"><span class="sc"><span class="content">Adonai
-28:11  swore to your fathers to give you.
-28:12  will open for you His good storehouse—the heavens—to give rain for your land in its season and to bless all the work of your hand. You will lend to many nations, but you will not borrow.
-28:13  your God that I am commanding you today, careful to do them,
+28:7 “Adonai will cause your enemies who rise up against you to be struck down before you. They will come out against you one way and flee before you seven ways.
+28:8 Adonai will command the blessing on you in your barns and in every undertaking of your hand, and He will bless you in the land Adonai your God is giving you.
+28:9 Adonai will establish you as a holy people for Himself, just as He swore to you—if you keep the mitzvot of Adonai your God and walk in His ways.
+28:10 Then all the peoples of the earth will see that you are called by the name of Adonai and they will stand in awe of you.
+28:11 Adonai will make you overflow in prosperity—in the fruit of your womb, the offspring of your livestock and the produce of your soil—on the land Adonai swore to your fathers to give you.
+28:12 Adonai will open for you His good storehouse—the heavens—to give rain for your land in its season and to bless all the work of your hand. You will lend to many nations, but you will not borrow.
+28:13 Adonai will make you the head and not the tail, and you will be only above and not below—if you listen to the mitzvot of Adonai your God that I am commanding you today, careful to do them,
 28:14 and do not turn aside from any of the words I am commanding you today, to the right or the left, to go after other gods in order to serve them.
-28:15 “But if you will not listen to the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
+28:15 “But if you will not listen to the voice of Adonai your God, to take care to do all His mitzvot and statutes that I am commanding you today, all these curses will come on you and overtake you:
 28:16 “Cursed will you be in the city, and cursed will you be in the field.
 28:17 “Cursed will be your basket and your kneading bowl.
 28:18 “Cursed will be the fruit of your womb, the produce of your soil, the increase of your herd and the young of your flock.
 28:19 “Cursed will you be when you come in, and cursed will you be when you go out.
-28:20 “</span><span class="it"><span class="sc"><span class="content">Adonai
-28:21  will make the plague cling to you, until He has put an end to you from the land that you are going in to possess.
-28:22  will strike you with weakness, fever, inflammation, fiery heat, the sword, blight and mildew—they will pursue you until you perish.
+28:20 “Adonai will send on you cursing, confusion and frustration in every undertaking of your hand that you will do—until you are destroyed and perish quickly, because of the evil of your deeds by which you have abandoned Me.
+28:21 Adonai will make the plague cling to you, until He has put an end to you from the land that you are going in to possess.
+28:22 Adonai will strike you with weakness, fever, inflammation, fiery heat, the sword, blight and mildew—they will pursue you until you perish.
 28:23 Your sky above your head will be bronze, and the earth beneath you iron.
-28:24  will make the rain of your land powder and dust—it will come down on you from the heavens, until you are destroyed.
-28:25 “</span><span class="it"><span class="sc"><span class="content">Adonai
+28:24 Adonai will make the rain of your land powder and dust—it will come down on you from the heavens, until you are destroyed.
+28:25 “Adonai will bring you to defeat before your enemies. You will go out one way against them and flee seven ways before them. You will become a horror to all the kingdoms of the earth.
 28:26 Your carcass will be food for every bird of the heavens and beast of the earth, and there will be no one to frighten them away.
-28:27 “</span><span class="it"><span class="sc"><span class="content">Adonai
-28:28 “</span><span class="it"><span class="sc"><span class="content">Adonai
+28:27 “Adonai will strike you with the boils of Egypt, with hemorrhoids, with scabs and with itching, from which you cannot be healed.
+28:28 “Adonai will strike you with madness, with blindness, and with confusion of heart.
 28:29 You will grope at noon as the blind person gropes in darkness, and you will not prosper in your ways. You will be only oppressed and robbed all the time, and there will be no one to save you.
 28:30 “You will become engaged to a woman, but another man will sleep with her. You will build a house, but you will not dwell in it. You will plant a vineyard, but you will not put it to use.
 28:31 Your ox will be slaughtered before your eyes, but you will not eat of it. Your donkey will be stolen in front of you, and it will not be returned to you. Your sheep will be given to your enemies, and you will have no one to save you.
 28:32 “Your sons and daughters will be given to another people while your eyes look on, longing for them all day long—but your hand will be powerless.
 28:33 A people you do not know will eat up the produce of your soil and all your labor, and you will be only oppressed and crushed all the time.
 28:34 You will be driven mad by the sight that your eyes will see.
-28:35 “</span><span class="it"><span class="sc"><span class="content">Adonai
-28:36 “</span><span class="it"><span class="sc"><span class="content">Adonai
-28:37 You will become a horror, a proverb, and a byword—among all the peoples where </span><span class="it"><span class="sc"><span class="content">Adonai
+28:35 “Adonai will strike you on the knees and thighs with severe boils, from which you cannot be healed—from the sole of your foot to the crown of your head.
+28:36 “Adonai will bring you and the king you set over you to a nation you and your fathers have not known—and there you will serve other gods, wood and stone.
+28:37 You will become a horror, a proverb, and a byword—among all the peoples where Adonai will drive you.
 28:38 “Much seed you will take out to the field—but little will you bring in, for the locust will eat it up.
 28:39 Vineyards you will plant and tend—but wine you will not drink or bring in, for the worm will devour it.
 28:40 Olive trees you will have in all your territory—but oil you will not rub on yourself, for your olives will drop off.
@@ -761,145 +761,145 @@
 28:42 All your trees and the produce of your soil the whirring locust will possess.
 28:43 “The outsider who is in your midst will rise up higher and higher above you, and you will go down lower and lower.
 28:44 He will lend to you, but you will not lend to him; he will become the head and you will become the tail.
-28:45 “All these curses will come upon you and pursue you and overtake you until you are destroyed—because you did not listen to the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
+28:45 “All these curses will come upon you and pursue you and overtake you until you are destroyed—because you did not listen to the voice of Adonai your God, to keep His mitzvot and statutes that He commanded you.
 28:46 They will be a sign and a wonder on you and your descendants forever.
-28:47 Instead of serving </span><span class="it"><span class="sc"><span class="content">Adonai
-28:48 you will serve your enemies, whom </span><span class="it"><span class="sc"><span class="content">Adonai
-28:49 “</span><span class="it"><span class="sc"><span class="content">Adonai
+28:47 Instead of serving Adonai your God with joy and goodness of heart, out of the abundance of everything,
+28:48 you will serve your enemies, whom Adonai will send against you, in hunger and thirst, in nakedness and lacking everything; and He will put an iron yoke on your neck until He has destroyed you.
+28:49 “Adonai will raise up a nation against you from far away, from the end of the earth, just as the eagle swoops down—a nation whose language you will not understand,
 28:50 a brazen-faced nation that will not respect the old or be gracious to the young.
 28:51 It will devour the offspring of your livestock and the produce of your soil, until you are destroyed. It will not leave behind for you grain, new wine, or oil, the increase of your herds or the young of your flock, until it ruins you.
-28:52 It will besiege you within all your town gates throughout your land, until your high and fortified walls—that you trusted in—come down. It will besiege you within all your gates throughout your land that </span><span class="it"><span class="sc"><span class="content">Adonai
-28:53 “You will eat the fruit of your womb, the flesh of your sons and daughters </span><span class="it"><span class="sc"><span class="content">Adonai
+28:52 It will besiege you within all your town gates throughout your land, until your high and fortified walls—that you trusted in—come down. It will besiege you within all your gates throughout your land that Adonai your God has given you.
+28:53 “You will eat the fruit of your womb, the flesh of your sons and daughters Adonai your God has given you, in the siege and stress with which your enemies will distress you.
 28:54 The most tender and delicate man among you—his eye will become evil against his brother and the wife of his bosom and the rest of his children that he has left.
 28:55 He will not give to a single one of them from his children’s flesh that he will eat, because nothing else is left for him in the siege and stress with which your enemy will distress you within all your town gates.
 28:56 The tender and delicate woman among you, who never ventured to set the sole of her foot on the ground out of delicateness and tenderness—her eye will become evil against the husband of her bosom and her son and daughter.
 28:57 For in secret she will eat her afterbirth that issues from between her legs and the children she bears, for lack of anything else in the siege and stress with which your enemy will distress you within all your gates.
-28:58 “If you do not take care to do all the words of this </span><span class="it"><span class="content">Torah
-28:59 then </span><span class="it"><span class="sc"><span class="content">Adonai
+28:58 “If you do not take care to do all the words of this Torah, the things written in this scroll, to fear this glorious and awesome Name, Adonai your God,
+28:59 then Adonai will make your plagues and the plagues of your descendants extraordinary—terrible and prolonged plagues, severe and prolonged illnesses.
 28:60 He will bring back on you all the diseases of Egypt that you were afraid of, and they will cling to you.
-28:61 Also every illness and plague that is not written in the scroll of this </span><span class="it"><span class="content">Torah
-28:62 “You will be left few in number, instead of being like the stars of the sky in number—because you did not listen to the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-28:63 Now just as </span><span class="it"><span class="sc"><span class="content">Adonai
-28:64 “</span><span class="it"><span class="sc"><span class="content">Adonai
-28:65 Among these nations you will find no rest, and there will be no rest for the sole of your foot. But there </span><span class="it"><span class="sc"><span class="content">Adonai
+28:61 Also every illness and plague that is not written in the scroll of this Torah, Adonai will bring on you, until you are destroyed.
+28:62 “You will be left few in number, instead of being like the stars of the sky in number—because you did not listen to the voice of Adonai your God.
+28:63 Now just as Adonai rejoiced over you to do you good and to multiply you, so Adonai will rejoice over you to ruin and destroy you; and you will be uprooted from the land that you are going in to possess.
+28:64 “Adonai will scatter you among all peoples from the one end of the earth to the other, and there you will serve other gods—wood and stone—that you and your fathers have not known.
+28:65 Among these nations you will find no rest, and there will be no rest for the sole of your foot. But there Adonai will give you a trembling heart and failing eyes, and a despairing spirit.
 28:66 “Your life will hang in the balance before you; you will be afraid night and day, and you will have no assurance of your life.
 28:67 In the morning you will say, ‘If only it were evening!’ and at evening you will say, ‘If only it were morning!”—from the fear of your heart that you will fear and the sight of your eyes that you will see.
-28:68  will bring you back to Egypt in ships, by the way that I said to you, ‘You will not see it again.’ There you will sell yourselves to your enemies as slaves and maids, but there will be no buyer.”
-29:1 Moses called to all Israel and said to them, “You have seen all that </span><span class="it"><span class="sc"><span class="content">Adonai
+28:68 Adonai will bring you back to Egypt in ships, by the way that I said to you, ‘You will not see it again.’ There you will sell yourselves to your enemies as slaves and maids, but there will be no buyer.”
+28:69 These are the words of the covenant that Adonai commanded Moses to make with Bnei-Yisrael in the land of Moab, in addition to the covenant He made with them at Horeb.
+29:1 Moses called to all Israel and said to them, “You have seen all that Adonai did before your eyes in the land of Egypt, to Pharaoh and all his servants and all his land—
 29:2 the great trials that your eyes saw, those great signs and wonders.
-29:3 But to this day </span><span class="it"><span class="sc"><span class="content">Adonai
+29:3 But to this day Adonai has not given you a heart to know, or eyes to see, or ears to hear.
 29:4 I led you 40 years in the wilderness—your clothes have not worn out on you, and your sandals have not worn out on your feet.
-29:5 Bread you have not eaten and wine and strong drink you have not drunk—in order that you may know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+29:5 Bread you have not eaten and wine and strong drink you have not drunk—in order that you may know that I am Adonai your God.
 29:6 “When you came to this place, King Sihon of Heshbon and King Og of the Bashan came out against us to battle, but we struck them down.
 29:7 We took their land and gave it as an inheritance to Reuben, Gad and the half-tribe of Manasseh.
 29:8 So keep the words of this covenant and do them, so that you may prosper in all that you do.
-29:9 “You are standing today, all of you, before </span><span class="it"><span class="sc"><span class="content">Adonai
+29:9 “You are standing today, all of you, before Adonai your God—the heads of your tribes, your elders, your officials, all the men of Israel,
 29:10 your children, your wives, and the outsider within your camp (from your woodchopper to your water carrier).
-29:11 Each of you is to cross over into the covenant of </span><span class="it"><span class="sc"><span class="content">Adonai
+29:11 Each of you is to cross over into the covenant of Adonai your God that He is cutting with you today, and into His oath.
 29:12 “This is in order to confirm you today as His people. So He will be your God, just as He promised you and just as He swore to your fathers—to Abraham, to Isaac and to Jacob.
 29:13 Not with you alone am I cutting this covenant and this oath,
-29:14 but with whomever is standing here with us today before </span><span class="it"><span class="sc"><span class="content">Adonai
+29:14 but with whomever is standing here with us today before Adonai our God and with whomever is not here with us today.
 29:15 “Indeed you know how we dwelt in the land of Egypt and how we crossed through the nations that we passed through.
 29:16 You saw their detestable things and their idols —wood and stone, silver and gold—that were with them.
-29:17 Beware in case there is among you a man or woman, or family or tribe, whose heart turns away today from </span><span class="it"><span class="sc"><span class="content">Adonai
-29:18 “Now when someone hears the words of this oath and in his heart considers himself blessed, thinking, ‘</span><span class="it"><span class="content">Shalom
-29:19  will blot out his name from under the heavens.
-29:20 .
-29:21 “The following generation, your children who rise up after you, and the foreigner who comes from a distant land will say, when they see the plagues of that land and the sicknesses </span><span class="it"><span class="sc"><span class="content">Adonai
-29:22 ‘Sulfur and salt, the whole land burnt! It cannot be planted, it cannot sprout, no grass can grow up on it—like the overthrow of Sodom and Gomorrah, Admah and Zeboiim, which </span><span class="it"><span class="sc"><span class="content">Adonai
-29:23 “All the nations will say, ‘Why has </span><span class="it"><span class="sc"><span class="content">Adonai
-29:24 “Then they will say, ‘Because they abandoned the covenant of </span><span class="it"><span class="sc"><span class="content">Adonai
+29:17 Beware in case there is among you a man or woman, or family or tribe, whose heart turns away today from Adonai our God to go serve the gods of those nations. Beware in case there is among you a root producing poison and bitter fruit.
+29:18 “Now when someone hears the words of this oath and in his heart considers himself blessed, thinking, ‘Shalom will be mine, even though I walk in the stubbornness of my heart’—thus sweeping away the moist with the dry—
+29:19 Adonai will be unwilling to forgive him. For then the anger of Adonai and His jealousy will smoke against that person. So all the oath that is written in this scroll will settle on him, and Adonai will blot out his name from under the heavens.
+29:20 Adonai will single him out from all the tribes of Israel for ­calamity, according to all the oaths of the covenant written in this scroll of the Torah.
+29:21 “The following generation, your children who rise up after you, and the foreigner who comes from a distant land will say, when they see the plagues of that land and the sicknesses Adonai afflicted on it:
+29:22 ‘Sulfur and salt, the whole land burnt! It cannot be planted, it cannot sprout, no grass can grow up on it—like the overthrow of Sodom and Gomorrah, Admah and Zeboiim, which Adonai overturned in His anger and in His wrath!’
+29:23 “All the nations will say, ‘Why has Adonai done this to this land? Why this great burning anger?’
+29:24 “Then they will say, ‘Because they abandoned the covenant of Adonai, the God of their fathers, which He cut with them when He brought them out from the land of Egypt.
 29:25 They went and served other gods and bowed down to them—gods they never knew, that He had not allotted to them.
-29:26 So </span><span class="it"><span class="sc"><span class="content">Adonai
-29:27  has uprooted them from their soil, in anger and wrath and great fury, and hurled them into another land, as is the case this day.’
-29:28 “The secret things belong to </span><span class="it"><span class="sc"><span class="content">Adonai
-29:29
-30:1 “Now when all these things come upon you—the blessing and the curse that I have set before you—and you take them to heart in all the nations where </span><span class="it"><span class="sc"><span class="content">Adonai
-30:2 and you return to </span><span class="it"><span class="sc"><span class="content">Adonai
-30:3 then </span><span class="it"><span class="sc"><span class="content">Adonai
-30:4 Even if your outcasts are at the ends of the heavens, from there </span><span class="it"><span class="sc"><span class="content">Adonai
-30:5  your God will bring you into the land that your fathers possessed, and you will possess it; and He will do you good and multiply you more than your fathers.
-30:6 Also </span><span class="it"><span class="sc"><span class="content">Adonai
-30:7 “</span><span class="it"><span class="sc"><span class="content">Adonai
-30:8 Then you—you will return and listen to the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-30:9  will again rejoice over you for good, as He rejoiced over your fathers—
-30:10 when you listen to the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-30:11 “For this </span><span class="it"><span class="content">mitzvah
+29:26 So Adonai’s anger burned against that land, bringing on it every curse written in this scroll.
+29:27 Adonai has uprooted them from their soil, in anger and wrath and great fury, and hurled them into another land, as is the case this day.’
+29:28 “The secret things belong to Adonai our God, but the things revealed belong to us and to our children forever—in order to do all the words of this Torah.
+30:1 “Now when all these things come upon you—the blessing and the curse that I have set before you—and you take them to heart in all the nations where Adonai your God has banished you,
+30:2 and you return to Adonai your God and listen to His voice according to all that I am commanding you today—you and your children—with all your heart and with all your soul,
+30:3 then Adonai your God will bring you back from captivity and have compassion on you, and He will return and gather you from all the peoples where Adonai your God has scattered you.
+30:4 Even if your outcasts are at the ends of the heavens, from there Adonai your God will gather you, and from there He will bring you.
+30:5 Adonai your God will bring you into the land that your fathers possessed, and you will possess it; and He will do you good and multiply you more than your fathers.
+30:6 Also Adonai your God will circumcise your heart and the heart of your descendants—to love Adonai your God with all your heart and with all your soul, in order that you may live.
+30:7 “Adonai your God will put all these curses on your enemies and on those who hate you, who persecuted you.
+30:8 Then you—you will return and listen to the voice of Adonai and do all His mitzvot that I am commanding you today.
+30:9 Adonai your God will make you prosper in all the work of your hand—in the fruit of your womb, and the offspring of your livestock, and the produce of your soil—for good. For Adonai will again rejoice over you for good, as He rejoiced over your fathers—
+30:10 when you listen to the voice of Adonai your God, to keep His mitzvot and His statutes that are written in this scroll of the Torah, when you turn to Adonai your God with all your heart and with all your soul.
+30:11 “For this mitzvah that I am commanding you today is not too difficult for you, nor is it far off.
 30:12 It is not in the heavens, that you should say, ‘Who will go up for us to the heavens and get it for us, and have us hear it so we may do it?’
 30:13 Nor is it across the sea, that you should say, ‘Who will cross over for us to the other side of the sea and get it for us, and have us hear it so we may do it?’
 30:14 No, the word is very near to you—in your mouth and in your heart, to do it.
 30:15 “See, I have set before you today life and good, and death and evil.
-30:16 What I am commanding you today is to love </span><span class="it"><span class="sc"><span class="content">Adonai
+30:16 What I am commanding you today is to love Adonai your God, to walk in His ways, and to keep His mitzvot, statutes and ordinances. Then you will live and multiply, and Adonai your God will bless you in the land you are going in to possess.
 30:17 But if your heart turns away and you do not listen, but are drawn away and bow down to other gods and worship them,
 30:18 I tell you today that you will certainly perish! You will not prolong your days on the land, where you are about to cross over the Jordan to go in to possess.
 30:19 “I call the heavens and the earth to witness about you today, that I have set before you life and death, the blessing and the curse. Therefore choose life so that you and your descendants may live,
-30:20 by loving </span><span class="it"><span class="sc"><span class="content">Adonai
+30:20 by loving Adonai your God, listening to His voice, and clinging to Him. For He is your life and the length of your days, that you may dwell on the land that Adonai swore to your fathers—to Abraham, to Isaac and to Jacob—to give them.
 31:1 Then Moses went and spoke these words to all Israel.
-31:2 He said to them, “I am 120 years old today. I am no longer able to go out and come in. </span><span class="it"><span class="sc"><span class="content">Adonai
-31:3  has promised.
-31:4 “</span><span class="it"><span class="sc"><span class="content">Adonai
-31:5  that I commanded you.
-31:6  your God—He is the One who goes with you. He will not fail you or abandon you.”
-31:7 Then Moses summoned Joshua and said to him in the sight of all Israel, “Be strong! Be courageous! For you are to go with this people into the land </span><span class="it"><span class="sc"><span class="content">Adonai
-31:8 —He is the One who goes before you. He will be with you. He will not fail you or abandon you. Do not fear or be discouraged.”
-31:9 Moses wrote down this </span><span class="it"><span class="content">Torah
-31:10 Then Moses commanded them saying, “At the end of every seven years, in the set time of the year of cancelling debts, during the feast of </span><span class="it"><span class="content">Sukkot
-31:11 when all Israel comes to appear before </span><span class="it"><span class="sc"><span class="content">Adonai
-31:12 Gather the people—the men and women and little ones, and the outsider within your town gates—so they may hear and so they may learn, and they will fear </span><span class="it"><span class="sc"><span class="content">Adonai
-31:13 So their children, who have not known, will hear and learn to fear </span><span class="it"><span class="sc"><span class="content">Adonai
-31:14 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-31:15  appeared in the Tent in a pillar of cloud, and the pillar of cloud stood over the opening of the Tent.
-31:16  said to Moses, “Behold, you are about to lie down with your fathers. Then this people will rise up and prostitute themselves with the foreign gods of the land they are entering. They will abandon Me and break My covenant that I cut with them.
+31:2 He said to them, “I am 120 years old today. I am no longer able to go out and come in. Adonai has said to me, ‘You are not to cross over this Jordan.’
+31:3 Adonai your God—He will cross over before you. He will destroy these nations from before you, and you will dispossess them. Joshua will cross over before you, just as Adonai has promised.
+31:4 “Adonai will do to them just as He did to Sihon and Og, the kings of the Amorites, and to their land, when He destroyed them.
+31:5 Adonai will give them over to you, and you are to do to them according to all the mitzvot that I commanded you.
+31:6 Chazak! Be courageous! Do not be afraid or tremble before them. For Adonai your God—He is the One who goes with you. He will not fail you or abandon you.”
+31:7 Then Moses summoned Joshua and said to him in the sight of all Israel, “Be strong! Be courageous! For you are to go with this people into the land Adonai has sworn to their fathers to give them, and you are to enable them to inherit it.
+31:8 Adonai—He is the One who goes before you. He will be with you. He will not fail you or abandon you. Do not fear or be discouraged.”
+31:9 Moses wrote down this Torah and gave it to the kohanim, the sons of Levi who carry the Ark of the Covenant of Adonai, and to all the elders of Israel.
+31:10 Then Moses commanded them saying, “At the end of every seven years, in the set time of the year of cancelling debts, during the feast of Sukkot,
+31:11 when all Israel comes to appear before Adonai your God in the place He chooses, you are to read this Torah before them in their hearing.
+31:12 Gather the people—the men and women and little ones, and the outsider within your town gates—so they may hear and so they may learn, and they will fear Adonai your God and take care to do all the words of this Torah.
+31:13 So their children, who have not known, will hear and learn to fear Adonai your God—all the days you live on the land you are about to cross over the Jordan to possess.”
+31:14 Then Adonai said to Moses, “Behold, your time to die is near. Call Joshua, and present yourselves at the Tent of Meeting, and I will commission him.” Moses and Joshua went and presented themselves at the Tent of Meeting.
+31:15 Adonai appeared in the Tent in a pillar of cloud, and the pillar of cloud stood over the opening of the Tent.
+31:16 Adonai said to Moses, “Behold, you are about to lie down with your fathers. Then this people will rise up and prostitute themselves with the foreign gods of the land they are entering. They will abandon Me and break My covenant that I cut with them.
 31:17 Then My anger will flare against them on that day, and I will abandon them and hide My face from them. So they will be devoured, and many evils and troubles will come on them. They will say on that day, ‘Isn’t it because our God is not among us that these evils have come on us?’
 31:18 I will surely hide My face on that day because of all the evil they have done, for they have turned to other gods.
-31:19 “Now, write this song for yourselves, and teach it to </span><span class="it"><span class="content">Bnei-Yisrael
+31:19 “Now, write this song for yourselves, and teach it to Bnei-Yisrael—put it in their mouth, so that this song may be a witness for Me against Bnei-Yisrael.
 31:20 “For when I bring them to the land flowing with milk and honey that I swore to their fathers, and they eat and are satisfied and grow fat—then they will turn to other gods and serve them, and they will spurn Me and break My covenant.
 31:21 Now when many evils and troubles have come on them, this song will confront them as a witness; for it will not be forgotten from the mouth of their descendants. For I know the intention they are devising this day, even before I bring them into the land that I swore.”
-31:22 That day Moses wrote this song and taught it to </span><span class="it"><span class="content">Bnei-Yisrael
-31:23 Then he commissioned Joshua son of Nun and said, “</span><span class="it"><span class="content">Chazak
-31:24 Now when Moses had finished writing the words of this </span><span class="it"><span class="content">Torah
-31:25 Moses commanded the Levites, carriers of the Ark of the Covenant of </span><span class="it"><span class="sc"><span class="content">Adonai
-31:26 “Take this scroll of the </span><span class="it"><span class="content">Torah
-31:27 for I know your rebellion and your stiff neck. Indeed, while I am still alive with you today, you have been rebellious against </span><span class="it"><span class="sc"><span class="content">Adonai
+31:22 That day Moses wrote this song and taught it to Bnei-Yisrael.
+31:23 Then he commissioned Joshua son of Nun and said, “Chazak! Be courageous! For you will bring Bnei-Yisrael into the land I swore to them—and I will be with you.”
+31:24 Now when Moses had finished writing the words of this Torah on a scroll, right to the end …
+31:25 Moses commanded the Levites, carriers of the Ark of the Covenant of Adonai saying,
+31:26 “Take this scroll of the Torah, and place it beside the Ark of the Covenant of Adonai your God. It will remain there as a witness against you,
+31:27 for I know your rebellion and your stiff neck. Indeed, while I am still alive with you today, you have been rebellious against Adonai—how much more then after my death?
 31:28 Gather to me all the elders of your tribes and your officials, so that I may speak these words in their ears and call heaven and earth to witness against them.
-31:29 For I know that after my death you will certainly act corruptly and turn aside from the way I have commanded you. So evil will fall upon you in the latter days, because you will do what is evil in the sight of </span><span class="it"><span class="sc"><span class="content">Adonai
+31:29 For I know that after my death you will certainly act corruptly and turn aside from the way I have commanded you. So evil will fall upon you in the latter days, because you will do what is evil in the sight of Adonai, provoking Him to anger by the work of your hands.”
 31:30 Moses spoke in the hearing of the whole community of Israel the words of this song, right to the end:
 32:1 “Give ear, O heavens, and I will speak! Let the earth hear the words of my mouth.
 32:2 May my teaching trickle like rain, my speech distill like dew— like gentle rain on new grass, like showers on tender plants.
-32:3 For I will proclaim </span><span class="it"><span class="sc"><span class="content">Adonai
+32:3 For I will proclaim Adonai’s Name, ascribe greatness to our God!
 32:4 The Rock—blameless is His work. Indeed, all His ways are just. God of faithfulness without iniquity, righteous and upright is He.
 32:5 Did it corrupt Him? No! The blemish is His children’s— a generation crooked and twisted.
-32:6 Is this how you pay back </span><span class="it"><span class="sc"><span class="content">Adonai
+32:6 Is this how you pay back Adonai, O foolish, unwise people? Isn’t He your Father who ransomed you? He made you and established you.
 32:7 “Remember the days of antiquity, understand the years across generations. Ask your father and he will tell you, your elders and they will say to you.
-32:8 When Elyon gave nations their heritage, when He separated the sons of man, He set boundaries for the people by the number of </span><span class="it"><span class="content">Bnei-Yisrael
-32:9 But </span><span class="it"><span class="sc"><span class="content">Adonai
+32:8 When Elyon gave nations their heritage, when He separated the sons of man, He set boundaries for the people by the number of Bnei-Yisrael.
+32:9 But Adonai’s portion is His people— Jacob is the share of His inheritance.
 32:10 He found him in the wilderness land, in the void of a howling waste. He surrounded him, cared for him, guarded him as the pupil of His eye.
 32:11 As an eagle stirs up its nest, hovers over its young, He spreads His wings, catches him, lifts him up on His pinions.
-32:12  alone guided him— there was no foreign god with him.
+32:12 Adonai alone guided him— there was no foreign god with him.
 32:13 He made him mount the heights of the land. so he ate the produce of the field. He suckled him with honey from a rock, with oil from a flinty boulder.
 32:14 Butter of cattle and milk of a flock, with fat of lambs, rams of the Bashan and he-goats, with fat of the kidneys of wheat, and blood of grapes you drank.
 32:15 But Jeshurun grew fat and kicked— you got fat, you grew thick, you gorged! He forsook God who made him. He mocked the Rock of his salvation.
 32:16 They made him jealous with strangers, with abominations they angered Him.
 32:17 They sacrificed to demons, a non-god, gods they had not known— to new ones who came in lately, ones your fathers had not dreaded.
 32:18 The Rock who birthed you, you ignored. You forgot God who brought you forth.
-32:19 “</span><span class="it"><span class="sc"><span class="content">Adonai
+32:19 “Adonai saw, and He spurned His sons and His daughters out of vexation.
 32:20 He said, “I will hide My face from them, I want to see their hereafter. For they are an upside down generation, children with no faithfulness in them.
 32:21 They made Me jealous with a non-god. They vexed Me with airy idols. So I will make them jealous with a non-people. With a foolish nation I will vex them.
-32:22 For fire has ignited in My nostrils— it will burn to </span><span class="it"><span class="content">Sheol
+32:22 For fire has ignited in My nostrils— it will burn to Sheol beneath, devour the earth and her produce, and scorch the foundations of mountains.
 32:23 I will heap calamities upon them. With My arrows I will finish them.
 32:24 Wasted by famine, ravaged by plague and pestilence so bitter, fangs of beasts I’ll let loose on them, with venom of creepers in the dust.
 32:25 Outside the sword deals death, and inside terror— to both young men and young women, infants, with men of gray hair.
 32:26 I would have said, ‘I will hack them to pieces, make the memory of them cease from mankind,’
-32:27 except I dread the taunt of the enemy, lest their foes might misconstrue— lest they say, ‘Our hand is held high, and </span><span class="it"><span class="sc"><span class="content">Adonai
+32:27 except I dread the taunt of the enemy, lest their foes might misconstrue— lest they say, ‘Our hand is held high, and Adonai has not done all this.’
 32:28 For they are a nation lacking counsel, among them there is no understanding.
 32:29 “If they were wise, they would discern this, they would understand their hereafter.
-32:30 How can one chase a thousand and two put ten thousand to flight, unless their Rock had sold them and </span><span class="it"><span class="sc"><span class="content">Adonai
+32:30 How can one chase a thousand and two put ten thousand to flight, unless their Rock had sold them and Adonai had handed them over?
 32:31 Surely their rock is not like our Rock, as even our enemies judge.
 32:32 For their vine is from the vine of Sodom and from the terraces of Gomorrah. Its grapes are grapes of poison— bitter clusters on it.
 32:33 Venom of serpents is their wine— poison of vipers so cruel.
 32:34 Is it not stored up with Me, sealed up in My treasuries?
 32:35 Vengeance is Mine, and payback, for the time when their foot staggers. Surely their day of disaster is near— what is prepared rushes on them.
-32:36 For </span><span class="it"><span class="sc"><span class="content">Adonai
+32:36 For Adonai will judge His people— for His servants, He will relent when He sees that strength is gone and no one is left, slave or free.
 32:37 He will say, ‘Where are their gods, the “rock” they took refuge in?
 32:38 Who ate the fat of their sacrifices and drank the wine of their libation? Let them rise up and help you and be a shelter over you!
 32:39 See now that I, I am He! There are no other gods beside Me. I bring death and give life, I have wounded but I will heal, and none can rescue from My hand.’
@@ -909,26 +909,26 @@
 32:43 Make His people rejoice, O nations, for He will avenge the blood of His servants. He will return vengeance on His foes, and atone for the land of His people.”
 32:44 Then Moses came and spoke all the words of this song in the ears of the people—he and Joshua son of Nun.
 32:45 When Moses finished speaking all these words to all Israel,
-32:46 he said to them, “Put in your hearts all the words that I call as witness against you today—that you may command your children to keep and do all the words of this </span><span class="it"><span class="content">Torah
+32:46 he said to them, “Put in your hearts all the words that I call as witness against you today—that you may command your children to keep and do all the words of this Torah.
 32:47 For it is not an empty thing for you, because it is your life! By this word you will prolong your days on the land, which you are crossing over the Jordan to possess.”
-32:48 On that very day, </span><span class="it"><span class="sc"><span class="content">Adonai
-32:49 “Go up this mountain of the Avarim, Mount Nebo, which is in the land of Moab facing Jericho, and see the land of Canaan, which I am giving to </span><span class="it"><span class="content">Bnei-Yisrael
+32:48 On that very day, Adonai spoke to Moses saying,
+32:49 “Go up this mountain of the Avarim, Mount Nebo, which is in the land of Moab facing Jericho, and see the land of Canaan, which I am giving to Bnei-Yisrael as a possession.
 32:50 On the mountain that you are ascending, there be gathered to your people—as Aaron your brother died on Mount Hor and was gathered to his people—
-32:51 because you both broke faith with Me among </span><span class="it"><span class="content">Bnei-Yisrael
-32:52 For you will see the land from afar, but you will not enter there, into the land that I am giving to </span><span class="it"><span class="content">Bnei-Yisrael
-33:1 This is the blessing with which Moses the man of God blessed </span><span class="it"><span class="content">Bnei-Yisrael
-33:2 He said, “</span><span class="it"><span class="sc"><span class="content">Adonai
-33:3 Indeed, a lover of peoples is He— all His </span><span class="it"><span class="content">kedoshim
-33:4  Moses commanded us— a heritage for the community of Jacob.
+32:51 because you both broke faith with Me among Bnei-Yisrael at the waters of Meribath-kadesh in the wilderness of Zin, because you did not treat Me as holy in the midst of Bnei-Yisrael.
+32:52 For you will see the land from afar, but you will not enter there, into the land that I am giving to Bnei-Yisrael.”
+33:1 This is the blessing with which Moses the man of God blessed Bnei-Yisrael before his death.
+33:2 He said, “Adonai came from Sinai and dawned on Bnei-Yisrael from Seir. He shone forth from Mount Paran, and He came from the holy myriads— blazing fire for them from His right hand.
+33:3 Indeed, a lover of peoples is He— all His kedoshim are in His hand. They followed in Your steps, each receiving Your words.
+33:4 Torah Moses commanded us— a heritage for the community of Jacob.
 33:5 He became king in Jeshurun when the heads of the people gathered, all the tribes of Israel together.
 33:6 ‘Let Reuben live and not die, though his people become few.’
-33:7 Now this is for Judah. He said, ‘Hear, </span><span class="it"><span class="sc"><span class="content">Adonai
+33:7 Now this is for Judah. He said, ‘Hear, Adonai, the voice of Judah! Bring him to his people. His hands contended for him, so You will be a help against his foes.’
 33:8 For Levi he said, ‘Let Your Thummim and Urim be with Your pious man. You tested him at Massah, You strived with him at the waters of Meribah.’
 33:9 He said of his father and mother, “I have not seen them,” nor did he acknowledge his brothers or recognize his children. For they observed Your word and kept Your covenant.
-33:10 They will teach Jacob Your judgments and Israel Your </span><span class="it"><span class="content">Torah
-33:11 , bless his resources, find favor in the work of his hands. Crush the loins of those who rise against him and hate him, so they do not rise again.’
-33:12 For Benjamin he said, ‘The beloved of </span><span class="it"><span class="sc"><span class="content">Adonai
-33:13 For Joseph he said, ‘May his land be blessed by </span><span class="it"><span class="sc"><span class="content">Adonai
+33:10 They will teach Jacob Your judgments and Israel Your Torah. They will put incense in your nose and whole burnt offerings on Your altar.
+33:11 Adonai, bless his resources, find favor in the work of his hands. Crush the loins of those who rise against him and hate him, so they do not rise again.’
+33:12 For Benjamin he said, ‘The beloved of Adonai rests securely beside Him. He shields him all day long. Between His shoulders he rests.’
+33:13 For Joseph he said, ‘May his land be blessed by Adonai with heavenly bounty from the dew and from the deep lying beneath,
 33:14 and with the bounty of the sun’s produce and the months’ yield,
 33:15 and with the best from the ancient mountains and the bounty of the everlasting hills,
 33:16 with earth’s bounty and its fullness and the favor of the One dwelling in the bush. May it come on Joseph’s head, on the crown of the prince among his brothers.
@@ -936,24 +936,24 @@
 33:18 For Zebulun he said, ‘Rejoice, Zebulun, in your going out, and Issachar, in your tents.
 33:19 Peoples they call to the mountain— there they offer righteous sacrifices. For they suckle the abundance of the seas and the hidden treasures of the sand.’
 33:20 For Gad he said, ‘Blessed is the one who enlarges Gad. Like a lion he crouches, and tears off an arm or even the crown of a head.
-33:21 He chose the best for himself, for there a marked portion was reserved. He came with the heads of the people. He carried out </span><span class="it"><span class="sc"><span class="content">Adonai
+33:21 He chose the best for himself, for there a marked portion was reserved. He came with the heads of the people. He carried out Adonai’s justice and His judgments for Israel.’
 33:22 For Dan he said, ‘Dan is a lion’s cub leaping out of the Bashan.’
-33:23 For Naphtali he said, ‘O Naphtali, satisfied with favor and full of the blessing of </span><span class="it"><span class="sc"><span class="content">Adonai
+33:23 For Naphtali he said, ‘O Naphtali, satisfied with favor and full of the blessing of Adonai, possess the sea and the south.’
 33:24 For Asher he said, ‘Most blessed of sons is Asher — may he be the favorite of his brothers, and may he dip his foot in oil.
 33:25 The bolts of your gates will be iron and bronze. As your days, so will your strength be.’
 33:26 “There is none like God, Jeshurun, riding through the heavens to your aid and through the skies in His majesty.
 33:27 A refuge is the ancient God, and underneath are everlasting arms. He drove out the enemy before you and said, ‘Destroy!’
 33:28 So Israel rests in safety, untroubled is Jacob’s fountain in a land of grain and new wine. Yes, his heavens drip dew.
-33:29 Happy are you, O Israel! Who is like you, a people saved by </span><span class="it"><span class="sc"><span class="content">Adonai
-34:1 Then Moses went up from the plains of Moab to Mount Nebo, to the top of Pisgah, which is opposite Jericho. </span><span class="it"><span class="sc"><span class="content">Adonai
+33:29 Happy are you, O Israel! Who is like you, a people saved by Adonai, the Shield of your help and the Sword of your triumph? Your enemies will cower before you, and you will trample on their backs.”
+34:1 Then Moses went up from the plains of Moab to Mount Nebo, to the top of Pisgah, which is opposite Jericho. Adonai showed him all the land—Gilead to Dan,
 34:2 and all of Naphtali, the land of Ephraim and Manasseh, all the land of Judah as far as the western sea,
 34:3 the Negev and the plain of the valley of Jericho the city of palm trees, as far as Zoar.
-34:4 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-34:5 So Moses the servant of </span><span class="it"><span class="sc"><span class="content">Adonai
+34:4 Then Adonai said to him, “This is the land that I swore to Abraham, Isaac and Jacob saying, ‘I will give it to your seed.’ I let you see it with your eyes, but you will not cross over there.”
+34:5 So Moses the servant of Adonai died there in the land of Moab, as was from the mouth of Adonai.
 34:6 Then He buried him in the valley in the land of Moab, opposite Beth-peor—but no one knows of his burial place to this day.
 34:7 Moses was 120 years old when he died. His eye was not dim nor his vigor gone.
-34:8  wept for Moses in the plains of Moab thirty days. Then the days of weeping, mourning for Moses, were ended.
-34:9 Now Joshua son of Nun was full of the spirit of wisdom, for Moses had laid his hands on him. So </span><span class="it"><span class="content">Bnei-Yisrael
-34:10 There has not risen again a prophet in Israel like Moses, whom </span><span class="it"><span class="sc"><span class="content">Adonai
-34:11 with all the signs and wonders </span><span class="it"><span class="sc"><span class="content">Adonai
+34:8 Bnei-Yisrael wept for Moses in the plains of Moab thirty days. Then the days of weeping, mourning for Moses, were ended.
+34:9 Now Joshua son of Nun was full of the spirit of wisdom, for Moses had laid his hands on him. So Bnei-Yisrael listened to him and did just as Adonai had commanded Moses.
+34:10 There has not risen again a prophet in Israel like Moses, whom Adonai knew face to face,
+34:11 with all the signs and wonders Adonai sent him to do in the land of Egypt—to Pharaoh, all his servants, and all his land—
 34:12 by the strong hand and great awe that Moses did in the sight of all Israel.
