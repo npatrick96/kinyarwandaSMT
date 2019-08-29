@@ -236,44 +236,44 @@
 11:3 So the elders of Jabesh said to him, “Give us seven days’ respite, so we may send messengers throughout all the territory of Israel. If no one comes to deliver us, we will surrender to you.”
 11:4 When the messengers came to Gibeah of Saul and spoke these words in the hearing of the people, all the people lifted up their voice and wept.
 11:5 Now behold, Saul was coming from the field behind the oxen, so Saul asked, “Why are the people weeping?” Then they told him the words of the men of Jabesh.
-11:6 Then the </span><span class="it"><span class="content">Ruach
-11:7 So he took a pair of oxen, cut them in pieces, and sent them throughout all the territory of Israel by the hand of messengers saying, “Whoever does not come out after Saul and after Samuel, so will it be done to his oxen.” So the dread of </span><span class="it"><span class="sc"><span class="content">Adonai
-11:8 He numbered them in Bezek, and </span><span class="it"><span class="content">Bnei-Yisrael
+11:6 Then the Ruach of God suddenly rushed upon Saul when he heard those words, and his anger blazed.
+11:7 So he took a pair of oxen, cut them in pieces, and sent them throughout all the territory of Israel by the hand of messengers saying, “Whoever does not come out after Saul and after Samuel, so will it be done to his oxen.” So the dread of Adonai fell on the people, and they came out as one man.
+11:8 He numbered them in Bezek, and Bnei-Yisrael were 300,000 and the men of Judah 30,000.
 11:9 So they said to the messengers who came, “Thus will you say to the men of Jabesh-gilead: Tomorrow, by the time the sun is hot, you will have deliverance.” The messengers came and told the men of Jabesh, and they were glad.
 11:10 Then the men of Jabesh said, “Tomorrow we will surrender to you and you can do to us whatever seems good to you.”
 11:11 So it was on the following day that Saul divided the people into three columns; they penetrated into the midst of the camp at the morning watch and struck down the Ammonites until the heat of day. It came about that the survivors were scattered, so that no two of them were left together.
 11:12 Then the people said to Samuel, “Who was it who said, ‘Should Saul reign over us?’ Bring the men, so we may put them to death.”
-11:13 But Saul replied, “No man will be put to death this day, for today </span><span class="it"><span class="sc"><span class="content">Adonai
+11:13 But Saul replied, “No man will be put to death this day, for today Adonai has brought deliverance to Israel.”
 11:14 Then Samuel said to the people, “Come, let’s go to Gilgal and reaffirm the kingdom there.”
-11:15 So all the people went to Gilgal, and there they made Saul king before </span><span class="it"><span class="sc"><span class="content">Adonai
+11:15 So all the people went to Gilgal, and there they made Saul king before Adonai in Gilgal. There they sacrificed fellowship offerings before Adonai, and there Saul and all the men of Israel rejoiced greatly.
 12:1 Then Samuel said to all Israel, “Behold, I have listened to your voice in all you said to me, and have set a king over you.
 12:2 Now here is the king who will go before you, while I am old and gray. Also here are my sons with you. I have gone before you from my youth to this day.
-12:3 Here I am. Witness against me before </span><span class="it"><span class="sc"><span class="content">Adonai
+12:3 Here I am. Witness against me before Adonai and before His anointed. Whose ox have I taken or whose donkey have I taken? Whom have I defrauded or whom have I oppressed? From whose hand have I taken a bribe to look the other way? I will restore it to you.”
 12:4 They replied, “You haven’t defrauded us or oppressed us or taken anything from anyone’s hand.”
-12:5 Then he said to them, “</span><span class="it"><span class="sc"><span class="content">Adonai
-12:6 Then Samuel said to the people, “It is </span><span class="it"><span class="sc"><span class="content">Adonai
-12:7 So now, stand still, so that I may plead with you before </span><span class="it"><span class="sc"><span class="content">Adonai
-12:8 When Jacob entered Egypt and your fathers cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-12:9 But they forgot </span><span class="it"><span class="sc"><span class="content">Adonai
-12:10 So they cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-12:11 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-12:12 But when you saw Nahash king of the Ammonites marching against you, you said to me, ‘No! But a king must reign over us!’—even though </span><span class="it"><span class="sc"><span class="content">Adonai
-12:13 “Now therefore, here is the king whom you have chosen and whom you have asked for, and behold, </span><span class="it"><span class="sc"><span class="content">Adonai
-12:14 If you fear </span><span class="it"><span class="sc"><span class="content">Adonai
-12:15 But if you do not listen to the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-12:16 Now stand by and see this great thing that </span><span class="it"><span class="sc"><span class="content">Adonai
-12:17 Is it not wheat harvest season today? I will call to </span><span class="it"><span class="sc"><span class="content">Adonai
-12:18 So Samuel prayed to </span><span class="it"><span class="sc"><span class="content">Adonai
-12:19 and all the people said to Samuel, “Pray for your servants to </span><span class="it"><span class="sc"><span class="content">Adonai
-12:20 Samuel said to the people, “Fear not! Indeed you have done all this evil, yet do not turn aside from following </span><span class="it"><span class="sc"><span class="content">Adonai
+12:5 Then he said to them, “Adonai is then a witness against you, and His anointed is a witness this day that you have not found anything in my hand.” “He is a witness,” they replied.
+12:6 Then Samuel said to the people, “It is Adonai who appointed Moses and Aaron and who brought your fathers up from the land of Egypt.
+12:7 So now, stand still, so that I may plead with you before Adonai concerning all the righteous acts of Adonai, which He did for you and your fathers.
+12:8 When Jacob entered Egypt and your fathers cried out to Adonai, then Adonai sent Moses and Aaron who brought your fathers out of Egypt and settled them in this place.
+12:9 But they forgot Adonai their God, so He gave them over into the hand of Sisera, captain of the army of Hazor, into the hand of the Philistines, and into the hand of the king of Moab, who fought against them.
+12:10 So they cried out to Adonai and said, ‘We have sinned because we have forsaken Adonai and have worshipped the Baalim and the Ashtaroth. But now deliver us from the hand of our enemies and we will worship You.’
+12:11 Then Adonai sent Jerubbaal, Bedan, Jephthah and Samuel, and delivered you from the hand of your enemies on every side, so that you might live securely.
+12:12 But when you saw Nahash king of the Ammonites marching against you, you said to me, ‘No! But a king must reign over us!’—even though Adonai your God is your king.
+12:13 “Now therefore, here is the king whom you have chosen and whom you have asked for, and behold, Adonai has set him as king over you.
+12:14 If you fear Adonai and worship Him, and listen to His voice and do not rebel against the command of Adonai, then both you as well as the king who reigns over you will be following Adonai your God.
+12:15 But if you do not listen to the voice of Adonai and rebel against the command of Adonai, then the hand of Adonai will be against you and against your fathers.
+12:16 Now stand by and see this great thing that Adonai will do before your eyes.
+12:17 Is it not wheat harvest season today? I will call to Adonai, that He may send thunder and rain. Then you will know and see that your wickedness is great which you have done in the sight of Adonai by asking for yourselves a king.”
+12:18 So Samuel prayed to Adonai, and Adonai sent thunder and rain that day. Then all the people greatly feared Adonai and Samuel,
+12:19 and all the people said to Samuel, “Pray for your servants to Adonai your God, that we would not die, for we have added to all our sins this evil by asking for ourselves a king.”
+12:20 Samuel said to the people, “Fear not! Indeed you have done all this evil, yet do not turn aside from following Adonai, but worship Adonai with all your heart.
 12:21 Do not turn aside to go after empty things that cannot profit or deliver, for they are futile.
-12:22 For </span><span class="it"><span class="sc"><span class="content">Adonai
-12:23 Moreover, as for me, far be it from me that I should sin against </span><span class="it"><span class="sc"><span class="content">Adonai
-12:24 Only fear </span><span class="it"><span class="sc"><span class="content">Adonai
+12:22 For Adonai will not forsake His people for His great Name’s sake, because it has pleased Adonai to make you a people to Himself.
+12:23 Moreover, as for me, far be it from me that I should sin against Adonai by ceasing to pray for you! Yet I will keep instructing you in the good and straight way.
+12:24 Only fear Adonai and worship Him in truth with all your heart, considering how magnificently He has dealt with you.
 12:25 But if you persist in acting wickedly, you will be swept away, both you and your king.”
 13:1 Saul was 30 years old when he began to reign, and he reigned for 42 years over Israel.
 13:2 Now Saul chose for himself 3,000 men of Israel, of which 2,000 were with Saul in Michmas and in the hill country of Beth-el, and 1,000 were with Jonathan in Gibeah of Benjamin. The rest of the troops he sent away, each one to his tent.
-13:3 Now Jonathan struck down the garrison of the Philistines that was in Geba, and the Philistines heard of it. So Saul blew the </span><span class="it"><span class="content">shofar
+13:3 Now Jonathan struck down the garrison of the Philistines that was in Geba, and the Philistines heard of it. So Saul blew the shofar throughout the country, saying, “Let the Hebrews hear.”
 13:4 All Israel heard the news, “Saul had struck down the garrison of the Philistines, so Israel has become a stench to the Philistines.” Then the people were summoned to Saul at Gilgal.
 13:5 Meanwhile the Philistines assembled themselves to fight with Israel: 30,000 chariots, 6,000 horsemen and troops as numerous as the sand on the seashore. They marched up and camped in Michmas, east of Beth-aven.
 13:6 When the men of Israel saw that they were in trouble, because the people were hard-pressed, they hid in caves, thickets, cliffs, crevices and pits.
@@ -282,9 +282,9 @@
 13:9 Then Saul said, “Bring me the burnt offering and the fellowship offerings,” so he offered the burnt offering.
 13:10 But as soon as he had finished offering the burnt offering, behold Samuel arrived. Saul went out to meet and greet him.
 13:11 But Samuel asked, “What have you done?” Saul replied, “Because I saw that the people were scattering from me, and that you had not come within the appointed days, and that the Philistines were assembling at Michmas,
-13:12 I thought: ‘Now the Philistines are about to advance against me at Gilgal, but I have not yet entreated </span><span class="it"><span class="sc"><span class="content">Adonai
-13:13 Samuel said to Saul, “You have acted foolishly by not keeping the commandment of </span><span class="it"><span class="sc"><span class="content">Adonai
-13:14 But now your kingship will not last. </span><span class="it"><span class="sc"><span class="content">Adonai
+13:12 I thought: ‘Now the Philistines are about to advance against me at Gilgal, but I have not yet entreated Adonai.’ So I forced myself and offered the burnt offering.”
+13:13 Samuel said to Saul, “You have acted foolishly by not keeping the commandment of Adonai your God which He commanded you. For now, Adonai would have established your kingship over Israel forever.
+13:14 But now your kingship will not last. Adonai has sought for Himself a man after His own heart. So Adonai will appoint him as ruler over His people—because you have not guarded what Adonai commanded you.”
 13:15 Samuel then departed and went up from Gilgal to Gibeah of Benjamin. Then Saul numbered the troops that were with him, about 600 men.
 13:16 Now Saul and his son Jonathan and the people that were present with them were staying in Gibeah of Benjamin, while the Philistines encamped in Michmas.
 13:17 Raiders started to come out from the camp of the Philistines in three detachments: one detachment turned toward Ophrah, to the land of Shual,
@@ -296,27 +296,27 @@
 13:23 Then the garrison of the Philistines went out to the pass of Michmas.
 14:1 One day Jonathan son of Saul said to the young man carrying his armor, “Come, let’s cross over to the Philistines’ garrison that’s on the other side.” But he did not tell his father.
 14:2 Now Saul was sitting on the outskirts of Gibeah under the pomegranate tree that is in Migron, and the troops with him were about 600 men.
-14:3 Ahijah son of Ahitub, the brother of Ichabod son of Phinehas son of Eli, the </span><span class="it"><span class="content">kohen
+14:3 Ahijah son of Ahitub, the brother of Ichabod son of Phinehas son of Eli, the kohen of Adonai in Shiloh, was wearing an ephod. But the troops did not know that Jonathan was gone.
 14:4 Between the crossings by which Jonathan sought to cross over to the Philistines’ garrison, there was a rocky crag on one side and another rocky crag on the other side—one was called Bozez and the other Seneh.
 14:5 One crag was to the north near Michmas, and the other to the south near Geba.
-14:6 Then Jonathan said to the young man carrying his armor, “Come, let’s cross over to the garrison of these uncircumcised ones. Perhaps </span><span class="it"><span class="sc"><span class="content">Adonai
+14:6 Then Jonathan said to the young man carrying his armor, “Come, let’s cross over to the garrison of these uncircumcised ones. Perhaps Adonai will work for us, for nothing restrains Adonai from delivering whether by many or by few.”
 14:7 His armor-bearer answered him, “Do whatever is in your heart; go ahead—I’m with you whatever your heart decides.”
 14:8 Then Jonathan said, “Here, we’ll cross over to the men, then let them see us.
 14:9 If they say to us: ‘Wait till we come to you,’ then we’ll stand still in our place and will not go up to them.
-14:10 But if they say, ‘Come up to us!’ then we will go up, for </span><span class="it"><span class="sc"><span class="content">Adonai
+14:10 But if they say, ‘Come up to us!’ then we will go up, for Adonai has delivered them into our hand—that will be our sign.”
 14:11 So they both let themselves be seen by the Philistine garrison. “Look, some Hebrews are coming out of the holes where they were hiding,” the Philistines said.
-14:12 So the men of the garrison shouted down to Jonathan and his armor-bearer saying, “Come up to us and we’ll teach you a lesson!” Then Jonathan said to his armor-bearer, “Follow me, for </span><span class="it"><span class="sc"><span class="content">Adonai
+14:12 So the men of the garrison shouted down to Jonathan and his armor-bearer saying, “Come up to us and we’ll teach you a lesson!” Then Jonathan said to his armor-bearer, “Follow me, for Adonai has handed them over to Israel!”
 14:13 So Jonathan climbed up on his hands and feet, with his armor-bearer behind him. Then they fell before Jonathan, his armor-bearer behind him finishing them off.
 14:14 That first assault that Jonathan and his armor-bearer made struck down about 20 men within about half a furrow in an acre of land.
 14:15 Terror then spread through the camp, in the field, and among all the troops. Even the outposts and the raiders also trembled, when the earth quaked—it was a trembling from God.
 14:16 Now Saul’s watchmen in Gibeah of Benjamin saw the throng scattering away in every direction.
 14:17 So Saul said to the people who were with him, “Call the roll now and see who went from us.” When they called the roll, behold Jonathan and his armor-bearer were not there.
-14:18 Then Saul said to Ahijah, “Bring the ark of God here.” For the ark of God at that time was with </span><span class="it"><span class="content">Bnei-Yisrael
-14:19 But while Saul was talking to the </span><span class="it"><span class="content">kohen
+14:18 Then Saul said to Ahijah, “Bring the ark of God here.” For the ark of God at that time was with Bnei-Yisrael.
+14:19 But while Saul was talking to the kohen, the commotion in the Philistine camp kept increasing, so Saul said to the kohen, “Withdraw your hand.”
 14:20 Then Saul and all the people with him rallied and rushed into the battle. Behold, every man’s sword was against his fellow in utter confusion!
 14:21 Now there were Hebrews who had defected to the Philistines previously and had gone up with them to their camp round about—even they joined the Israelites that were with Saul and Jonathan.
 14:22 Also when all the men of Israel who had hidden themselves in the hill country of Ephraim heard that the Philistines had fled, they also chased after them in the battle.
-14:23 So </span><span class="it"><span class="sc"><span class="content">Adonai
+14:23 So Adonai delivered Israel that day. The battle spread as far as Beth-aven.
 14:24 Now the men of Israel were hard-pressed that day, for Saul put the people under oath saying, “Cursed be the man that eats any food before evening, until I have avenged myself on my enemies!” So none of the people tasted food.
 14:25 But when all the people of the land entered the forest, there was honey on the ground.
 14:26 When the people entered the forest, indeed, there was a flow of honey, but no one put his hand to his mouth, for the people feared the oath.
@@ -326,19 +326,19 @@
 14:30 How much more, if only the troops had eaten freely today of the spoil of their enemies that they found? Wouldn’t the slaughter among the Philistines have then been greater?”
 14:31 That day they struck down the Philistines from Michmas to Aijalon, though the people were so weary.
 14:32 Then the people rushed greedily upon the plunder, took sheep, oxen and calves, butchered them on the ground, and the people ate them with the blood.
-14:33 Then they reported to Saul saying, “Behold, the people are sinning against </span><span class="it"><span class="sc"><span class="content">Adonai
-14:34 Then Saul said, “Disperse yourselves among the people and tell them: ‘Each one of you bring me his ox or his sheep, and butcher them here and eat. Don’t sin against </span><span class="it"><span class="sc"><span class="content">Adonai
-14:35 Then Saul built an altar to </span><span class="it"><span class="sc"><span class="content">Adonai
-14:36 Then Saul said, “Let’s go down after the Philistines by night and plunder them until the morning light, we won’t leave any survivors among them.” “Do whatever seems good in your eyes,” they replied. Then the </span><span class="it"><span class="content">kohen
+14:33 Then they reported to Saul saying, “Behold, the people are sinning against Adonai by eating with the blood.” “You have acted faithlessly,” he said. “Roll a great stone towards me at once.”
+14:34 Then Saul said, “Disperse yourselves among the people and tell them: ‘Each one of you bring me his ox or his sheep, and butcher them here and eat. Don’t sin against Adonai by eating with the blood.’” So all the people each brought his ox with him that night and butchered it there.
+14:35 Then Saul built an altar to Adonai; it was the first altar that he built to Adonai.
+14:36 Then Saul said, “Let’s go down after the Philistines by night and plunder them until the morning light, we won’t leave any survivors among them.” “Do whatever seems good in your eyes,” they replied. Then the kohen said, “Let us draw near to God here.”
 14:37 So Saul inquired of God, “Should I go down after the Philistines? Will You deliver them into the hand of Israel?” But He did not answer him that day.
 14:38 Then Saul said, “Draw near here, all you chiefs of the people; investigate and see how this sin was committed today.
-14:39 For as </span><span class="it"><span class="sc"><span class="content">Adonai
+14:39 For as Adonai—Israel’s deliverer—lives, even if it was by my son Jonathan, he will surely die.” But not one among all the people answered him.
 14:40 So he said to all Israel, “You stand on one side, and I and my son Jonathan will stand on the other side.” “Do what seems good in your eyes,” said the people to Saul.
-14:41 So Saul said to </span><span class="it"><span class="sc"><span class="content">Adonai
+14:41 So Saul said to Adonai, “God of Israel, grant a perfect lot.” Jonathan and Saul were chosen, but the people were cleared.
 14:42 Then Saul said, “Cast the lots between me and my son Jonathan,” and Jonathan was taken.
 14:43 Then Saul said to Jonathan, “Tell me what you’ve done.” Jonathan told him saying, “I certainly did taste a little honey—with the end of the rod that was in my hand. Here I am—I must die!”
 14:44 “May God do so to me and even more,” Saul said. “You must surely die, Jonathan.”
-14:45 But the people said to Saul, “Must Jonathan die? It was he who brought about this great deliverance in Israel! Far be it! As </span><span class="it"><span class="sc"><span class="content">Adonai
+14:45 But the people said to Saul, “Must Jonathan die? It was he who brought about this great deliverance in Israel! Far be it! As Adonai lives, not a hair of his head will fall to the ground! For he has worked with God this day.” So the people rescued Jonathan and he did not die.
 14:46 Then Saul broke off pursuing the Philistines, and the Philistines went to their own country.
 14:47 After Saul had secured his kingship over Israel, he waged war against all his enemies on every side—against Moab, the Ammonites, Edom, the kings of Zobah, and the Philistines. Wherever he turned, he punished them.
 14:48 He did so with valor, ­defeating the Amalekites and delivering Israel from the hands of those who had plundered them.
@@ -346,41 +346,41 @@
 14:50 The name of Saul’s wife was Ahinoam daughter of Ahimaaz. The name of the commander of his army was Abner son of Ner, Saul’s uncle.
 14:51 Kish was Saul’s father, and Abner’s father was Ner son of Abiel.
 14:52 Now there was bitter war against the Philistines all the days of Saul. So whenever Saul saw any mighty man or any son of valor, he would gather him to himself.
-15:1 Then Samuel said to Saul, “</span><span class="it"><span class="sc"><span class="content">Adonai
-15:2 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+15:1 Then Samuel said to Saul, “Adonai sent me to anoint you as king over His people, over Israel. Now therefore, listen to the voice of the words of Adonai!
+15:2 Thus says Adonai-Tzva’ot: ‘I remember what Amalek did to Israel, how he set himself against him on the way while he was coming up from Egypt.
 15:3 Now go and strike down Amalek and put all he has under the ban of destruction—so have no pity on him; but kill both men and women, children and nursing infants, oxen and sheep, camels and donkeys.’”
 15:4 So Saul summoned the troops and numbered them in Telaim: 200,000 foot soldiers and 10,000 men of Judah.
 15:5 Saul advanced to the city of Amalek and lay in wait in the valley.
-15:6 Then Saul said to the Kenites, “Go, depart, get down from among the Amalekites, or else I may destroy you with them—for you showed kindness to all </span><span class="it"><span class="content">Bnei-Yisrael
+15:6 Then Saul said to the Kenites, “Go, depart, get down from among the Amalekites, or else I may destroy you with them—for you showed kindness to all Bnei-Yisrael when they came up from Egypt.” So the Kenites withdrew from among the Amalekites.
 15:7 Then Saul struck down the Amalekites from Havilah until you come to Shur, which is close to Egypt.
 15:8 He captured King Agag of Amalek alive, and utterly destroyed all the people with the edge of the sword.
 15:9 But Saul and the people spared Agag as well as the best of the sheep, the cattle, even the fatlings and the lambs, and all that was good, since they were not willing to utterly destroy them; everything that was worthless and feeble, they destroyed completely.
-15:10 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-15:11 “I regret that I made Saul king, for he has turned back from following Me and has not carried out My commands.” So Samuel was troubled and cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
+15:10 Then the word of Adonai came to Samuel saying:
+15:11 “I regret that I made Saul king, for he has turned back from following Me and has not carried out My commands.” So Samuel was troubled and cried out to Adonai all night long.
 15:12 Then Samuel rose early in the morning to confront Saul. But it was reported to Samuel saying, “Saul went to Carmel—for some reason, he erected a monument for himself. Then he turned and went down to Gilgal.”
-15:13 Now when Samuel reached Saul, Saul said to him, “Blessed are you of </span><span class="it"><span class="sc"><span class="content">Adonai
+15:13 Now when Samuel reached Saul, Saul said to him, “Blessed are you of Adonai! I have carried out Adonai’s command.”
 15:14 But Samuel said, “Then what is this bleating of the sheep in my ears, and the lowing of the oxen that I hear?”
-15:15 “They brought them from the Amalekites,” Saul replied, “for the people spared the best of the sheep and oxen to sacrifice to </span><span class="it"><span class="sc"><span class="content">Adonai
-15:16 “Stop!” Samuel said to Saul. “Let me tell you what </span><span class="it"><span class="sc"><span class="content">Adonai
-15:17 Then Samuel said, “Isn’t it true, though you were insignificant in your own eyes, that you were made head of the tribes of Israel? </span><span class="it"><span class="sc"><span class="content">Adonai
-15:18 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-15:19 Why then did you not obey the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-15:20 “But I did obey the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-15:21 But the people took some of the spoil, sheep and oxen—the best of what was under the ban of destruction— to sacrifice to </span><span class="it"><span class="sc"><span class="content">Adonai
-15:22 Samuel said: “Does </span><span class="it"><span class="sc"><span class="content">Adonai
-15:23 For rebellion is like the sin of divination and stubbornness is like iniquity and idolatry. Since you have rejected </span><span class="it"><span class="sc"><span class="content">Adonai
-15:24 Then Saul said to Samuel, “I have sinned! For I have transgressed against the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-15:25 So now, please pardon my sin and return with me, that I may worship </span><span class="it"><span class="sc"><span class="content">Adonai
-15:26 But Samuel said to Saul, “I will not return with you, for you have rejected the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+15:15 “They brought them from the Amalekites,” Saul replied, “for the people spared the best of the sheep and oxen to sacrifice to Adonai your God—but the rest we have utterly destroyed.”
+15:16 “Stop!” Samuel said to Saul. “Let me tell you what Adonai said to me last night.” “Say on,” he said.
+15:17 Then Samuel said, “Isn’t it true, though you were insignificant in your own eyes, that you were made head of the tribes of Israel? Adonai anointed you king over Israel!
+15:18 Then Adonai sent you on a mission and said: ‘Go and utterly destroy the Amalekites, the sinners, and wage war against them until you annihilate them.’
+15:19 Why then did you not obey the voice of Adonai, but rushed greedily onto the spoil—doing what was evil in Adonai’s eyes?”
+15:20 “But I did obey the voice of Adonai,” Saul said to Samuel. “I went on the mission on which Adonai sent me, and brought back Agag the king of Amalek—and utterly destroyed the Amalekites.
+15:21 But the people took some of the spoil, sheep and oxen—the best of what was under the ban of destruction— to sacrifice to Adonai your God in Gilgal.”
+15:22 Samuel said: “Does Adonai delight in burnt offerings and sacrifices as in obeying the voice of Adonai? Behold, to obey is better than sacrifice, to pay heed than the fat of rams.
+15:23 For rebellion is like the sin of divination and stubbornness is like iniquity and idolatry. Since you have rejected Adonai’s word, He has also rejected you as king.”
+15:24 Then Saul said to Samuel, “I have sinned! For I have transgressed against the word of Adonai and your words—because I feared the people and listened to their voice.
+15:25 So now, please pardon my sin and return with me, that I may worship Adonai.”
+15:26 But Samuel said to Saul, “I will not return with you, for you have rejected the word of Adonai, and Adonai has rejected you as king over Israel.”
 15:27 As Samuel turned about to go, Saul seized the edge of his robe, and it tore.
-15:28 Then Samuel said to him, “</span><span class="it"><span class="sc"><span class="content">Adonai
+15:28 Then Samuel said to him, “Adonai has torn the kingship over Israel from you today and has given it to your neighbor who is better than you.
 15:29 Moreover, the Eternal Glory of Israel does not lie or change His mind. For He is not human that He should change His mind.”
-15:30 Then Saul said, “I have sinned! But please, honor me now before the elders of my people and before Israel, and return with me until I bow in worship to </span><span class="it"><span class="sc"><span class="content">Adonai
-15:31 So Samuel returned after Saul, and Saul bowed in worship to </span><span class="it"><span class="sc"><span class="content">Adonai
+15:30 Then Saul said, “I have sinned! But please, honor me now before the elders of my people and before Israel, and return with me until I bow in worship to Adonai your God.”
+15:31 So Samuel returned after Saul, and Saul bowed in worship to Adonai.
 15:32 Then Samuel said, “Bring me Agag the king of Amalek.” Agag approached him in chains, thinking, “Surely bitter death has turned back.”
-15:33 Then Samuel said, “As your sword has made women childless, so will your mother be childless among women.” Then Samuel cut Agag into pieces before </span><span class="it"><span class="sc"><span class="content">Adonai
+15:33 Then Samuel said, “As your sword has made women childless, so will your mother be childless among women.” Then Samuel cut Agag into pieces before Adonai in Gilgal.
 15:34 Samuel then went to Ramah, while Saul went up to his house in Gibeah of Saul.
-15:35 Samuel never did see Saul again until the day of his death. Yet Samuel mourned over Saul, while </span><span class="it"><span class="sc"><span class="content">Adonai
+15:35 Samuel never did see Saul again until the day of his death. Yet Samuel mourned over Saul, while Adonai regretted that He had made Saul king over Israel.
 16:1 Now </span><span class="it"><span class="sc"><span class="content">Adonai
 16:2 But Samuel replied, “How can I go? If Saul hears of it, he will kill me.” </span><span class="it"><span class="sc"><span class="content">Adonai
 16:3 Then invite Jesse to the sacrifice, and I will let you know what you are to do. You will anoint for Me whom I tell you.”
