@@ -259,31 +259,31 @@
 11:3 the Canaanites in the east and west, the Amorites, the Hittites, the Perizzites, the Jebusites in the hill country and the Hivites at the foot of Hermon in the land of Mizpah.
 11:4 So they came out, they and all their armies with them, a multitude with as many people as the sand on the seashore, with very many horses and chariots.
 11:5 All these kings joined forces, came and camped together at the waters of Merom to fight with Israel.
-11:6 But </span><span class="it"><span class="sc"><span class="content">Adonai
+11:6 But Adonai said to Joshua, “Do not be afraid because of them, for tomorrow at this time I will give all of them slain before Israel. You are to hamstring their horses and burn their chariots with fire.”
 11:7 So Joshua and all the people of war with him attacked them suddenly at the waters of Merom and fell upon them.
-11:8 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-11:9 Joshua did to them as </span><span class="it"><span class="sc"><span class="content">Adonai
+11:8 Then Adonai gave them into the hand of Israel, so they defeated them and chased them as far as Great Zidon and Misrephoth-maim, and up to the Valley of Mizpeh eastward. They struck them down until they left them no survivors.
+11:9 Joshua did to them as Adonai had instructed him—he hamstrung their horses and burnt their ­chariots with fire.
 11:10 At that time Joshua turned back and captured Hazor and struck its king with the sword, because Hazor had formerly been the head of all those kingdoms.
 11:11 They struck down every single soul in it with the edge of the sword, putting them to the ban. There was none left that breathed after he burned Hazor with fire.
-11:12 Thus Joshua captured all the cities of those kings and all their kings, and he struck them with the edge of the sword, putting them to the ban, just as Moses the servant of </span><span class="it"><span class="sc"><span class="content">Adonai
+11:12 Thus Joshua captured all the cities of those kings and all their kings, and he struck them with the edge of the sword, putting them to the ban, just as Moses the servant of Adonai had commanded.
 11:13 But as for the cities that stood on their mounds, Israel did not burn any of them, except Hazor alone, which Joshua did burn.
-11:14 All the spoil of these cities and the cattle, </span><span class="it"><span class="content">Bnei-Yisrael
-11:15 Just as </span><span class="it"><span class="sc"><span class="content">Adonai
+11:14 All the spoil of these cities and the cattle, Bnei-Yisrael took as their plunder, but they struck down every person with the edge of the sword until they had destroyed them, not sparing anyone who breathed.
+11:15 Just as Adonai had commanded Moses His servant, so Moses commanded Joshua, and so Joshua did. He left nothing undone of all that Adonai had commanded Moses.
 11:16 So Joshua captured all this land: the hill country, the Negev, all the land of Goshen, the lowland, the Arabah, the hill country of Israel and its lowland,
 11:17 from the Mount Halak that ascends to Seir all the way to Baal-gad in the valley of Lebanon at the foot of Mount Hermon. He captured all their kings, struck them down and put them to death.
 11:18 For a long time Joshua made war with all those kings.
-11:19 There was not a city that made peace with </span><span class="it"><span class="content">Bnei-Yisrael
-11:20 For it was of </span><span class="it"><span class="sc"><span class="content">Adonai
+11:19 There was not a city that made peace with Bnei-Yisrael except the Hivites who inhabited Gibeon. All the rest they took in battle.
+11:20 For it was of Adonai to harden their hearts to encounter Israel in battle, that they might be put to the ban, that they might receive no mercy, in order to destroy them as Adonai had commanded Moses.
 11:21 At that time Joshua went and cut off the Anakim from the hill country, from Hebron, Debir, Anab, and from the entire hill country of Judah and from the entire hill country of Israel. Joshua put a ban on them with their cities.
-11:22 There was none of the Anakim left in the land of </span><span class="it"><span class="content">Bnei-Yisrael
-11:23 So Joshua captured the whole country, according to all that </span><span class="it"><span class="sc"><span class="content">Adonai
-12:1 Now these are the kings of the land whom </span><span class="it"><span class="content">Bnei-Yisrael
+11:22 There was none of the Anakim left in the land of Bnei-Yisrael, except some were left in Gaza, Gath and Ashdod.
+11:23 So Joshua captured the whole country, according to all that Adonai had spoken to Moses; and Joshua gave it for an inheritance to Israel according to their divisions by their tribes. Then the land had rest from war.
+12:1 Now these are the kings of the land whom Bnei-Yisrael defeated and possessed their land beyond the Jordan toward the sunrise, from the valley of the Arnon to Mount Hermon, and all the Arabah eastward:
 12:2 King Sihon of the Amorites, who lived in Heshbon and ruled from Aroer, which is on the edge of the valley of the Arnon, and the middle of the valley, and half Gilead, even up to the Jabbok River, the border of the children of Ammon;
 12:3 and the Arabah up to the Sea of Chinneroth eastward, and as far as the sea of the Arabah, the Salt Sea, eastward the way to Beth-jeshimoth, and on the south, at the foot of the slopes of Pisgah.
 12:4 Also the territory of King Og of Bashan, one of the remnant of the Rephaim, who lived at Ashtaroth and at Edrei,
 12:5 and ruled over Mount Hermon and Salcah and all Bashan, as far as the border of the Geshurites and the Maacathites, and half of Gilead, as far as the border of King Sihon of Heshbon.
-12:6 Moses the servant of </span><span class="it"><span class="sc"><span class="content">Adonai
-12:7 Now these are the kings of the land whom Joshua and </span><span class="it"><span class="content">Bnei-Yisrael
+12:6 Moses the servant of Adonai and Bnei-Yisrael defeated them, then Moses the servant of Adonai gave it as a possession to the Reubenites, Gadites, and half-tribe of Manasseh.
+12:7 Now these are the kings of the land whom Joshua and Bnei-Yisrael defeated beyond the Jordan westward, from Baal-gad in the valley of Lebanon to Mount Halak that goes up to Seir (Joshua gave it to the tribes of Israel for a possession according to their divisions:
 12:8 in the hill country, in the lowland, in the Arabah, on the slopes, in the wilderness, and in the Negev, the Hittites, the Amorites, the Canaanites, the Perizzites, the Hivites and the Jebusites):
 12:9 one king of Jericho, one king of Ai which was near Bethel,
 12:10 one king of Jerusalem, one king of Hebron,
@@ -301,20 +301,20 @@
 12:22 one king of Kedesh, one king of Jokneam in Carmel,
 12:23 one king of Dor in the region of Dor, one king of Goiim in the Gilgal,
 12:24 one king of Tirzah, for a total of 31 kings.
-13:1 Now Joshua was old and advanced in years when </span><span class="it"><span class="sc"><span class="content">Adonai
+13:1 Now Joshua was old and advanced in years when Adonai said to him, “You are old and getting on in years, yet very much of the land is still left to possess.
 13:2 This is the land still left: all the regions of the Philistines and all the Geshurites;
 13:3 from the Shihor which is near Egypt to the territory of Ekron northward (counted as Canaanite); the five Philistine lords of Gaza, Ashdod, Ashkelon, Gath and Ekron; also the Avvim
 13:4 in the south, all the land of the Canaanites—from Mearah of the Sidonians to Aphek, as far as the border of the Amorites;
 13:5 the land of the Gebalites; and all Lebanon toward the sunrise, from Baal-gad at the foot of Mount Hermon to the entrance of Hamath;
-13:6 all the inhabitants of the hill country from Lebanon to Misrephoth-maim, all the Sidonians. “I Myself will drive them out from before </span><span class="it"><span class="content">Bnei-Yisrael
+13:6 all the inhabitants of the hill country from Lebanon to Misrephoth-maim, all the Sidonians. “I Myself will drive them out from before Bnei-Yisrael. Only allot it to Israel for an inheritance, as I have commanded you.
 13:7 So now, divide this land as an inheritance for the nine tribes and the half-tribe of Manasseh.”
-13:8 With the half-tribe, the Reubenites and the Gadites received their inheritance, which Moses gave them beyond the Jordan eastward, just as Moses the servant of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:8 With the half-tribe, the Reubenites and the Gadites received their inheritance, which Moses gave them beyond the Jordan eastward, just as Moses the servant of Adonai gave them;
 13:9 from Aroer, that is on the edge of the valley of the Arnon, and the city that is in the middle of the valley, and all the flatland from Medeba to Dibon;
 13:10 and all the cities of King Sihon of the Amorites, who reigned in Heshbon, up to the border of the children of Ammon;
 13:11 and Gilead, and the territory of the Geshurites and Maacathites, and all Mount Hermon, and all Bashan up to Salcah;
 13:12 all the kingdom of Og in Bashan, who reigned in Ashtaroth and in Edrei (he was left of the remnant of the Rephaim), for Moses defeated them and drove them out.
-13:13 Nevertheless, </span><span class="it"><span class="content">Bnei-Yisrael
-13:14 Only to the tribe of Levi he gave no inheritance—the fire offerings of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:13 Nevertheless, Bnei-Yisrael did not drive out the Geshurites or the Maacathites; but Geshur and Maacath lived among Israel to this day.
+13:14 Only to the tribe of Levi he gave no inheritance—the fire offerings of Adonai God of Israel are his inheritance, as He spoke to him.
 13:15  To the tribe of the children of Reuben according to their clans, Moses gave as
 13:16 their territory: from Aroer on the edge of the Arnon Valley, along with the city in the middle of the valley, and all the tableland up to Medeba,
 13:17 Heshbon and all its towns on the tableland, Dibon, Bamoth-baal, Beth-baal-meon,
@@ -322,7 +322,7 @@
 13:19 Kiriathhaim, Sibmah and Zereth-shahar on the hill of the valley,
 13:20 Beth-peor, the slopes of Pisgah, and Beth-Jeshimoth—
 13:21 all the towns of the tableland and the entire kingdom of King Sihon of the Amorites, who reigned in Heshbon. (Moses defeated him with the chiefs of Midian, Evi, Rekem, Zur, Hur and Reba, the princes of Sihon who were living in the land,
-13:22 and Balaam son of Beor the diviner, whom </span><span class="it"><span class="content">Bnei-Yisrael
+13:22 and Balaam son of Beor the diviner, whom Bnei-Yisrael killed with the sword among the rest of their slain.
 13:23 As for the border of the children of Reuben, the Jordan was their border. This was the inheritance of the children of Reuben according to their clans, the towns and their villages.
 13:24 To the tribe of Gad, Moses gave the children of Gad according to their clans
 13:25  as their territory: Jazer, all the towns of Gilead, half the land of the children of Ammon up to Aroer which is near Rabbah,
@@ -333,21 +333,21 @@
 13:30 their territory was from Mahanaim all of Bashan, the entire kingdom of King Og of Bashan and all the tent-villages of Jair which are in Bashan—60 towns;
 13:31 also half of Gilead, with Ashtaroth and Edrei, the cities of the kingdom of Og in Bashan, were for the children of Machir son of Manasseh, for half of the children of Machir according to their clans.
 13:32 These are the inheritances that Moses apportioned in the plains of Moab, across the Jordan to the east of Jericho.
-13:33 But to the tribe of Levi Moses gave no inheritance—</span><span class="it"><span class="sc"><span class="content">Adonai
-14:1 Now these are the portions that </span><span class="it"><span class="content">Bnei-Yisrael
-14:2 Their inheritance was by the lot, as </span><span class="it"><span class="sc"><span class="content">Adonai
+13:33 But to the tribe of Levi Moses gave no inheritance—Adonai God of Israel is their inheritance, as He had spoken to them.
+14:1 Now these are the portions that Bnei-Yisrael possessed in the land of Canaan, which Eleazar the kohen and Joshua son of Nun and the heads of the ancestral houses of the tribes of Bnei-Yisrael apportioned to them.
+14:2 Their inheritance was by the lot, as Adonai had commanded by Moses’ hand, for the nine tribes and half-tribe.
 14:3 For Moses had given the inheritance of the two tribes and the half-tribe across the Jordan. But he gave no inheritance to the Levites among them.
 14:4 For the children of Joseph became two tribes, Manasseh and Ephraim. They gave no portion to the Levites in the land, except towns to live in, with their pasturelands around them for their livestock and for their cattle.
-14:5 As </span><span class="it"><span class="sc"><span class="content">Adonai
-14:6 Then the children of Judah approached Joshua in Gilgal, and Caleb son of Jephunneh the Kenizzite said to him: “You know the word that </span><span class="it"><span class="sc"><span class="content">Adonai
-14:7 I was 40 years old when Moses the servant of </span><span class="it"><span class="sc"><span class="content">Adonai
-14:8 Nevertheless, my fellows that went up with me made the heart of the people melt with fear, but I fully followed </span><span class="it"><span class="sc"><span class="content">Adonai
-14:9 So Moses swore on that day saying: ‘Surely the land on which your foot has trodden will be an inheritance to you and to your children forever, because you have fully followed </span><span class="it"><span class="sc"><span class="content">Adonai
-14:10 So now behold, </span><span class="it"><span class="sc"><span class="content">Adonai
+14:5 As Adonai had commanded Moses, so Bnei-Yisrael did, and apportioned the land.
+14:6 Then the children of Judah approached Joshua in Gilgal, and Caleb son of Jephunneh the Kenizzite said to him: “You know the word that Adonai had spoken to Moses the man of God at Kadesh-barnea concerning me and you.
+14:7 I was 40 years old when Moses the servant of Adonai sent me from Kadesh-barnea to spy out the land, and I brought him back word as it was in my heart.
+14:8 Nevertheless, my fellows that went up with me made the heart of the people melt with fear, but I fully followed Adonai my God.
+14:9 So Moses swore on that day saying: ‘Surely the land on which your foot has trodden will be an inheritance to you and to your children forever, because you have fully followed Adonai my God.’
+14:10 So now behold, Adonai has kept me alive, just as He said, these 45 years, since the time that Adonai spoke this word to Moses while Israel was journeying in the wilderness, and now behold, I am 85 years old today.
 14:11 I am still as strong today as I was in the day that Moses sent me—as my strength was then, so is my strength now, for war and for going out and coming in.
-14:12 Now therefore, give me this hill country about which </span><span class="it"><span class="sc"><span class="content">Adonai
+14:12 Now therefore, give me this hill country about which Adonai spoke on that day. For you heard on that day how the Anakim were there as well as great, fortified cities. Perhaps Adonai will be with me, and I will drive them out, just as Adonai has spoken.”
 14:13 So Joshua blessed him, and he assigned Hebron to Caleb son of Jephunneh as his portion.
-14:14 Therefore Hebron became the inheritance of Caleb son of Jephunneh the Kenizzite to this day, because he followed </span><span class="it"><span class="sc"><span class="content">Adonai
+14:14 Therefore Hebron became the inheritance of Caleb son of Jephunneh the Kenizzite to this day, because he followed Adonai the God of Israel fully.
 14:15 Now the name of Hebron formerly was Kiriath-arba, for Arba was the greatest man among the Anakim. Then the land had rest from war.
 15:1 Now the allotment for the tribe of the children of Judah according to their families was as far as the border of Edom, southward to the wilderness of Zin at the extreme south.
 15:2 Their southern border was from the lower end of the Salt Sea, from the bay projecting southward.
@@ -361,7 +361,7 @@
 15:10 From Baalah the border turned westward to Mount Seir, passed along to the northern slope of Mount Jearim (that is, Chesalon) and went down to Beth-shemesh, then passed Timnah.
 15:11 Next the border went out to the slope north of Ekron, then went out to Shikkeron, passed along to Mount Baalah, went on to Jabneel, and the border ended at the sea.
 15:12 The western border was the Great Sea and its coastline. These were the borders around the children of Judah according to their clans.
-15:13 Now to Caleb son of Jephunneh he gave a portion among the children of Judah, at the command of </span><span class="it"><span class="sc"><span class="content">Adonai
+15:13 Now to Caleb son of Jephunneh he gave a portion among the children of Judah, at the command of Adonai to Joshua—Kiriath-arba, which is Hebron (Arba was the father of Anak).
 15:14 So Caleb drove out from there the three sons of Anak—Sheshai, Ahiman and Talmai, children of Anak.
 15:15 Then he went up from there against the inhabitants of Debir (now the name of Debir formerly was Kiriath-sepher).
 15:16 Caleb said, “I will give my daughter Achsah as a wife to the one who attacks Kiriath-sepher and captures it.”
@@ -379,7 +379,7 @@
 15:28 Hazar-shual, Beersheba, Biziothiah,
 15:29 Baalah, Iim, Ezem,
 15:30 El-tolad, Chesil, Hormah,
-15:31 Ziklag, Mad</span><span class="it"><span class="content">manna
+15:31 Ziklag, Madmanna h, Sansannah,
 15:32 Lebaot, Shilhim, Ain and Rimmon—a total of 29 towns, with their villages.
 15:33 In the lowland: Eshtaol, Zorah, Ashnah,
 15:34 Zanoach, En-gannim, Tappuah, Enam,
@@ -425,7 +425,7 @@
 17:1 Now this was the allotment for the tribe of Manasseh, the firstborn of Joseph. To Machir the firstborn of Manasseh, the father of Gilead, since he was a man of war, he got Gilead and Bashan.
 17:2 So for the rest of the children of Manasseh according to their clans—for the sons of Abiezer, Helek, Asriel, Shechem, Hepher and Shemida—these were the male children of Manasseh son of Joseph according to their clans.
 17:3 But Zelophehad, son of Hepher, son of Gilead, son of Machir, son of Manasseh, had no sons but only daughters—these were the names of his daughters: Mahlah, Noah, Hoglah, Milcah, and Tirzah.
-17:4 So they appeared before Eleazar the </span><span class="it"><span class="content">kohen
+17:4 So they appeared before Eleazar the kohen, before Joshua son of Nun and before the leaders saying: “Adonai commanded Moses to give us an inheritance among our kinsmen.” Therefore according to the commandment of Adonai he gave them a portion among their father’s kinsmen.
 17:5 Thus ten shares fell to Manasseh, besides the land of Gilead and Bashan that is beyond the Jordan,
 17:6 because the daughters of Manasseh received a portion among his sons. Meanwhile the land of Gilead belonged to the rest of the sons of Manasseh.
 17:7 The border of Manasseh ran from Asher to Michmethath, which is facing Shechem. Then the border went along southward to the inhabitants of En-tappuah.
@@ -434,22 +434,22 @@
 17:10 The south side belonged to Ephraim and the north side belonged to Manasseh, and the sea was its border. They reached to Asher on the north and to Issachar on the east.
 17:11 Within Issachar and Asher, Manasseh possessed Beth-shean and its villages, Ibleam and its villages, the inhabitants of Dor and its villages, the inhabitants of En-dor and its villages, the inhabitants of Taanach and its villages, and the inhabitants of Megiddo and its villages—three regions.
 17:12 Yet the children of Manasseh could not take possession of these towns, because the Canaanites were resolved to live in that land.
-17:13 But when </span><span class="it"><span class="content">Bnei-Yisrael
-17:14 Then the children of Joseph spoke to Joshua saying: “Why have you given us only one allotment and one portion for an inheritance? For we are a numerous people whom </span><span class="it"><span class="sc"><span class="content">Adonai
+17:13 But when Bnei-Yisrael became stronger, that they put the Canaanites to forced labor, but did not utterly dispossess them.
+17:14 Then the children of Joseph spoke to Joshua saying: “Why have you given us only one allotment and one portion for an inheritance? For we are a numerous people whom Adonai has thus far blessed?”
 17:15 So Joshua said to them, “If you have so many people, go you up to the forest and clear a place for yourself there in the land of the Perizzites and the Rephaim, since the hill country of Ephraim is too narrow for you.”
 17:16 “The hill country will not be enough for us,” the children of Joseph replied. “But all the Canaanites who inhabit the valley land have iron chariots—both those who are in Beth-shean and its villages and those who are in the Jezreel Valley.”
 17:17 But Joshua spoke to the house of Joseph, to Ephraim and to Manasseh saying: “You are a numerous people with great strength! You shouldn’t have just one allotment,
 17:18 because the hill country should be yours. Though it is a forest, you will clear it, and to its farthest borders it will be yours—for you will drive out the Canaanites, even though they have iron chariots and even though they are strong.”
-18:1 Then the whole congregation of </span><span class="it"><span class="content">Bnei-Yisrael
-18:2 Yet there remained among </span><span class="it"><span class="content">Bnei-Yisrael
-18:3 So Joshua said to </span><span class="it"><span class="content">Bnei-Yisrael
+18:1 Then the whole congregation of Bnei-Yisrael assembled at Shiloh and set up the Tent of Meeting there, after the land was now subdued before them.
+18:2 Yet there remained among Bnei-Yisrael seven tribes that still had not received their portions.
+18:3 So Joshua said to Bnei-Yisrael, “How long will you be slack about going in to possess the land which Adonai, the God of your fathers, has given you?
 18:4 Appoint for yourselves three men from each tribe, and I will send them, and they will arise and walk through the land, and describe it according to their inheritance, and then return to me.
 18:5 They are to divide it into seven portions: Judah will remain within its territory in the south, and the house of Joseph will remain within their territory in the north.
-18:6 After you have described the seven portions of land, bring the description here to me. Then I will cast lots for you here before </span><span class="it"><span class="sc"><span class="content">Adonai
-18:7 But the Levites have no portion among you—for the priesthood of </span><span class="it"><span class="sc"><span class="content">Adonai
-18:8 So the men arose and went, and Joshua charged those who went to write a description of the land, saying: “Go and walk through the land and describe it, then return to me, and I will cast lots for you here before </span><span class="it"><span class="sc"><span class="content">Adonai
+18:6 After you have described the seven portions of land, bring the description here to me. Then I will cast lots for you here before Adonai our God.
+18:7 But the Levites have no portion among you—for the priesthood of Adonai is their inheritance. Also Gad, Reuben and the half-tribe of Manasseh have received their inheritance beyond the Jordan eastward, which Moses the servant of Adonai gave them.”
+18:8 So the men arose and went, and Joshua charged those who went to write a description of the land, saying: “Go and walk through the land and describe it, then return to me, and I will cast lots for you here before Adonai in Shiloh.”
 18:9 So the men went, passing through the land, and described it in a scroll, town by town, in seven parts. Then they came to Joshua at the camp at Shiloh.
-18:10 Then Joshua cast lots for them in Shiloh before </span><span class="it"><span class="sc"><span class="content">Adonai
+18:10 Then Joshua cast lots for them in Shiloh before Adonai, and there Joshua apportioned the land to Bnei-Yisrael according to their divisions.
 18:11 Now the lot of the tribe of the children of Benjamin came up, for their clans. The territory of their allotment lay between the children of Judah and the children of Joseph.
 18:12 Now their border on the north side was from the Jordan—the border went up to the side of Jericho on the north, and went up through the hill country westward, and it ended at the wilderness of Beth-aven.
 18:13 Then the border passed from there to Luz, to the side of Luz (that is, Bethel) southward. Next the border went down to Atroth-addar, near the mountain that lies to the south of Lower Beth-horon.
@@ -516,37 +516,37 @@
 19:46 and the Waters of Jarkon and Rakkon along the border opposite Joppa.
 19:47 The territory of the children of Dan slipped away from them, so the children of Dan went up and fought against Leshem and captured it, and struck it with the edge of the sword, possessed it and settled in it, and called Leshem Dan, after the name of Dan their ancestor.
 19:48 This is the inheritance of the tribe of the children of Dan according to their clans, these towns with their villages.
-19:49 When they had finished allotting the land for inheritance by its borders, </span><span class="it"><span class="content">Bnei-Yisrael
-19:50 According to the command of </span><span class="it"><span class="sc"><span class="content">Adonai
-19:51 These are the portions which Eleazar the </span><span class="it"><span class="content">kohen
-20:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-20:2 “Speak to </span><span class="it"><span class="content">Bnei-Yisrael
+19:49 When they had finished allotting the land for inheritance by its borders, Bnei-Yisrael gave a portion to Joshua son of Nun in their midst.
+19:50 According to the command of Adonai they gave him the city that he requested, Timnath-serah in the hill country of Ephraim. So he built up the city and lived in it.
+19:51 These are the portions which Eleazar the kohen and Joshua son of Nun and the heads of the ancestral houses of the tribes of Bnei-Yisrael distributed for inheritance by lot in Shiloh before Adonai, at the entrance of the Tent of Meeting. So they finished apportioning the land.
+20:1 Then Adonai spoke to Joshua saying,
+20:2 “Speak to Bnei-Yisrael saying, ‘Designate your cities of refuge, about which I spoke to you through Moses.
 20:3 So the manslayer who kills any person by mistake and without premeditation may flee there. They will be your refuge from the avenger of blood.
 20:4 When one flees to one of those cities, he must stand at the entrance of the gate of the city and state his case in the hearing of the elders of that city. Then they are to take him into their city and give him a place to live among them.
 20:5 Now if the blood avenger pursues him, then they will not hand the manslayer over to him, since he killed his neighbor without premeditation and did not hate him beforehand.
-20:6 So he will stay in that city until he can stand trial before the congregation, or until the death of the </span><span class="it"><span class="content">kohen gadol
+20:6 So he will stay in that city until he can stand trial before the congregation, or until the death of the kohen gadol in those days. Then the manslayer may return to his own city and to his own house, to the city from which he had fled.’”
 20:7 So they set apart Kedesh in Galilee in the hill country of Naphtali, Shechem in the hill country of Ephraim, and Kiriath-arba (that is, Hebron) in the hill country of Judah.
 20:8 Across the Jordan east of Jericho, they designated Bezer in the wilderness on the tableland from the tribe of Reuben, Ramoth in Gilead from the tribe of Gad, and Golan in Bashan from the tribe of Manasseh.
-20:9 These were the appointed cities for all </span><span class="it"><span class="content">Bnei-Yisrael
-21:1 Then the heads of ancestral houses of the Levites approached Eleazar the </span><span class="it"><span class="content">kohen
-21:2 and they spoke to them at Shiloh in the land of Canaan saying: “</span><span class="it"><span class="sc"><span class="content">Adonai
-21:3 So </span><span class="it"><span class="content">Bnei-Yisrael
-21:4 the lot came out for the clan of the Kohathites. The children of Aaron the </span><span class="it"><span class="content">kohen
+20:9 These were the appointed cities for all Bnei-Yisrael and for the outsider who is dwelling among them, so that whoever kills any person unintentionally might flee there and not die by the hand of the blood avenger, before standing trial before the congregation.
+21:1 Then the heads of ancestral houses of the Levites approached Eleazar the kohen and Joshua son of Nun and the heads of ancestral houses of the tribes of Bnei-Yisrael,
+21:2 and they spoke to them at Shiloh in the land of Canaan saying: “Adonai commanded through Moses to give us towns to live in, with their pastures for our cattle.”
+21:3 So Bnei-Yisrael gave to the Levites from their inheritance, according to the command of Adonai, these towns and their pastures:
+21:4 the lot came out for the clan of the Kohathites. The children of Aaron the kohen, who were of the Levites, received 13 towns by lot from the tribe of Judah, the tribe of Simeon and the tribe of Benjamin.
 21:5 The rest of the children of Kohath received 10 towns by lot from the clans of the tribe of Ephraim, the tribe of Dan and the half-tribe of Manasseh.
 21:6 The children of Gershon received 13 towns by lot from the clans of the tribe of Issachar, the tribe of Asher, the tribe of Naphtali and the half-tribe of Manasseh in Bashan.
 21:7 The children of Merari according to their clans received 12 towns from the tribe of Reuben, the tribe of Gad and the tribe of Zebulun.
-21:8 So </span><span class="it"><span class="content">Bnei-Yisrael
+21:8 So Bnei-Yisrael gave by lot to the Levites these towns with their pastures, as Adonai had commanded through Moses.
 21:9 They gave from the tribe of the children of Judah and from the tribe of the children of Simeon these towns which are here mentioned by name.
 21:10 They were for the children of Aaron, of the clans of the Kohathites, of the children of Levi, for theirs was the first lot:
 21:11 So they gave them Kiriath-arba, the father of Anak (that is, Hebron) in the hill country of Judah, with its surrounding pastures.
 21:12 But the fields of the city and its villages they had already given to Caleb son of Jephunneh as his possession.
-21:13 But to the children of Aaron the </span><span class="it"><span class="content">kohen
+21:13 But to the children of Aaron the kohen they assigned Hebron (the city of refuge for the manslayer) with its pastures, Libnah with its pastures,
 21:14 Jattir with its pastures, Eshtemoa with its pastures,
 21:15 Holon with its pastures, Debir with its pastures,
 21:16 Ain with its pastures, Juttah with its pastures and Beth-shemesh with its pastures—9 towns from these two tribes.
 21:17 Then from the tribe of Benjamin: Gibeon with its pastures, Geba with its pastures,
 21:18 Anathoth with its pastures and Almon with its pastures—4 towns.
-21:19 All the towns of the </span><span class="it"><span class="content">kohanim
+21:19 All the towns of the kohanim, the children of Aaron, were 13 towns with their pastures.
 21:20 As for the other clans of the children of Kohath, the remaining Levites descended from the children of Kohath, the towns of their lot were from the tribe of Ephraim.
 21:21 So they gave them Shechem (the city of refuge for the manslayer) with its pastures in the hill country of Ephraim, Gezer with its pastures,
 21:22 Kibzaim with its pastures and Beth-horon with its pastures—4 towns.
@@ -568,91 +568,91 @@
 21:38 From the tribe of Gad: Ramoth (the city of refuge for the manslayer) in Gilead with its pastures, Mahanaim with its pastures,
 21:39 Heshbon with its pastures, and Jazer with its pastures—4 towns in all.
 21:40 All the towns that went by lot to the children of Merari (the remaining Levites) according to their clans, were 12 towns.
-21:41 The total of the towns of the Levites within the holdings of </span><span class="it"><span class="content">Bnei-Yisrael
+21:41 The total of the towns of the Levites within the holdings of Bnei-Yisrael was 48 towns with their pastures.
 21:42 Each of these towns had its own pastures; so it was for all these towns.
-21:43 So </span><span class="it"><span class="sc"><span class="content">Adonai
-21:44 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-21:45 Not one good thing that </span><span class="it"><span class="sc"><span class="content">Adonai
+21:43 So Adonai gave to Israel the entire land that He had sworn to give to their fathers. They took possession and settled in it.
+21:44 Then Adonai gave them rest on all sides, just as He had sworn to their fathers. Not one man of all their enemies withstood them, for Adonai gave all their enemies into their hand.
+21:45 Not one good thing that Adonai had promised to the house of Israel failed. All came to pass.
 22:1 Then Joshua summoned the Reubenites, Gadites and half-tribe of Manasseh,
-22:2 and said to them: “You have kept all that Moses the servant of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:3 You have not abandoned your kinsmen these many days to this day, but have kept the charge of the commandment of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:4 So now </span><span class="it"><span class="sc"><span class="content">Adonai
-22:5 Only be very careful to observe the </span><span class="it"><span class="content">mitzvah
+22:2 and said to them: “You have kept all that Moses the servant of Adonai commanded you, and have listened to my voice in all that I commanded you.
+22:3 You have not abandoned your kinsmen these many days to this day, but have kept the charge of the commandment of Adonai your God.
+22:4 So now Adonai your God has given rest to your kinsmen, as He said to them. So now, turn and go to your tents, to the land that is your possession, which Moses the servant of Adonai gave you beyond the Jordan.
+22:5 Only be very careful to observe the mitzvah and the Torah which Moses the servant of Adonai commanded you, to love Adonai your God and walk in all His ways, and to keep His mitzvot, cling to Him and worship Him with all your heart and with all your soul.”
 22:6 So Joshua blessed them and sent them away, and they went to their tents.
 22:7 Now to the one half-tribe of Manasseh Moses had given inheritance in Bashan, but to the other half Joshua gave territory among their kinsmen to the west of the Jordan. Moreover, when Joshua sent them away to their tents, he blessed them
 22:8 and spoke to them saying: “Return to your tents with great wealth and with very much cattle, with silver, gold, bronze, iron and with very many clothes. Share the spoil of your enemies with your brothers.”
-22:9 So the children of Reuben, the children of Gad and the half-tribe of Manasseh returned and departed from </span><span class="it"><span class="content">Bnei-Yisrael
+22:9 So the children of Reuben, the children of Gad and the half-tribe of Manasseh returned and departed from Bnei-Yisrael at Shiloh in the land of Canaan, to go to the land of Gilead, to the land of their inheritance that they had possessed, according to the mouth of Adonai by Moses’ hand.
 22:10 Now when they came to the region near the Jordan in the land of Canaan, the children of Reuben, the children of Gad and the half-tribe of Manasseh built there an altar by the Jordan—a large, conspicuous altar.
-22:11 Then </span><span class="it"><span class="content">Bnei-Yisrael
-22:12 And when </span><span class="it"><span class="content">Bnei-Yisrael
-22:13 So </span><span class="it"><span class="content">Bnei-Yisrael
+22:11 Then Bnei-Yisrael heard about it and said: “Behold, the children of Reuben, the children of Gad and the half-tribe of Manasseh have built an altar opposite the land of Canaan, in the region of the Jordan, across from Bnei-Yisrael.”
+22:12 And when Bnei-Yisrael heard of it, the whole congregation of Bnei-Yisrael assembled at Shiloh to go up against them in war.
+22:13 So Bnei-Yisrael sent word to the children of Reuben, the children of Gad and the half-tribe of Manasseh, into the land of Gilead, Phinehas son of Eleazar the kohen,
 22:14 and with him ten chieftains, one chieftain from each ancestral house of each of the tribes of Israel. Every one of them was the head of his ancestral house among the thousands of Israel.
 22:15 So they came to the children of Reuben, the children of Gad and the half-tribe of Manasseh in the land of Gilead, and spoke with them saying:
-22:16 “Thus says the whole congregation of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:17 Is the iniquity of Peor too little for us, from which we have not cleansed ourselves to this day, although a plague came on the congregation of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:18 that you would turn away this day from following </span><span class="it"><span class="sc"><span class="content">Adonai
-22:19 If, however, the land of your possession is unclean, then cross over to the land of the possession of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:16 “Thus says the whole congregation of Adonai: ‘What is this treachery that you have committed today against the God of Israel, by turning away from following Adonai, building yourselves an altar, rebelling this day against Adonai?
+22:17 Is the iniquity of Peor too little for us, from which we have not cleansed ourselves to this day, although a plague came on the congregation of Adonai,
+22:18 that you would turn away this day from following Adonai? Now you rebel against Adonai today, tomorrow He will be angry with the whole congregation of Israel!
+22:19 If, however, the land of your possession is unclean, then cross over to the land of the possession of Adonai, where Adonai’s Tabernacle stands. Acquire holdings among us, but do not rebel against Adonai or against us by building an altar for yourselves other than the altar of Adonai our God.
 22:20 Did not Achan son of Zerah act unfaithfully concerning the things under the ban, and so wrath fell on the entire community of Israel? Nor did that man perish alone in his iniquity.’”
 22:21 Then the children of Reuben, the children of Gad and the half-tribe of Manasseh answered, and spoke to the heads of the thousands of Israel:
-22:22 “God of gods is </span><span class="it"><span class="sc"><span class="content">Adonai
-22:23 If we have built an altar to turn away from following </span><span class="it"><span class="sc"><span class="content">Adonai
-22:24 But we have done this rather out of anxious concern, for a reason, saying: ‘In the future, your children might say to our children: “What have you to do with </span><span class="it"><span class="sc"><span class="content">Adonai
-22:25 For </span><span class="it"><span class="sc"><span class="content">Adonai
+22:22 “God of gods is Adonai! God of gods is Adonai! He knows, and may Israel itself know! If we acted in rebellion or in treachery against Adonai, don’t spare us this day!
+22:23 If we have built an altar to turn away from following Adonai, or if it was to offer burnt offering or grain offering on it, or to offer sacrifices of fellowship offerings on it, let Adonai Himself require it.
+22:24 But we have done this rather out of anxious concern, for a reason, saying: ‘In the future, your children might say to our children: “What have you to do with Adonai, God of Israel?
+22:25 For Adonai has made the Jordan a border between us and you, you children of Reuben and children of Gad—you have no share in Adonai!” So your children may make our children stop fearing Adonai.
 22:26 “Therefore we said: ‘Let’s now build an altar for ourselves—not for burnt offering or for sacrifice—
-22:27 but as a witness between us and you, and between our generations after us, so that we may do the service of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:28 Therefore we said: ‘If they say such to us or to our future generations, then we will say, “See the replica of the altar of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:29 Far be it from us that we should rebel against </span><span class="it"><span class="sc"><span class="content">Adonai
-22:30 So when Phinehas the </span><span class="it"><span class="content">kohen
-22:31 So Phinehas son of Eleazar the </span><span class="it"><span class="content">kohen
-22:32 Then Phinehas son of Eleazar the </span><span class="it"><span class="content">kohen
-22:33 The report pleased </span><span class="it"><span class="content">Bnei-Yisrael
-22:34 So the children of Reuben and the children of Gad named the altar, “for it is a witness between us that </span><span class="it"><span class="sc"><span class="content">Adonai
-23:1 Now it came about after many days, when </span><span class="it"><span class="sc"><span class="content">Adonai
+22:27 but as a witness between us and you, and between our generations after us, so that we may do the service of Adonai before Him with our burnt offerings, with our sacrifices and with our fellowship offerings. Then your children may not say to our children in times to come. “You have no share in Adonai!”’
+22:28 Therefore we said: ‘If they say such to us or to our future generations, then we will say, “See the replica of the altar of Adonai which our fathers made—not for burnt offering or for sacrifice, but as a witness between us and you.”’
+22:29 Far be it from us that we should rebel against Adonai and turn away this day from following Adonai, by building an altar for burnt offering, for grain offering or for sacrifice, besides the altar of Adonai our God that stands before His Tabernacle.”
+22:30 So when Phinehas the kohen and the leaders of the congregation—the heads of the thousands of Israel who were with him—heard the words that the children of Reuben, the children of Gad and the children of Manasseh spoke, it pleased them well.
+22:31 So Phinehas son of Eleazar the kohen said to the children of Reuben, the children of Gad and the children of Manasseh, “Today we know that Adonai is in the midst of us, because you have not committed this treachery against Adonai. Now you have delivered Bnei-Yisrael from the hand of Adonai.”
+22:32 Then Phinehas son of Eleazar the kohen and the leaders returned from the children of Reuben and from the children of Gad, from the land of Gilead, to the land of Canaan, to Bnei-Yisrael, and brought back a report to them.
+22:33 The report pleased Bnei-Yisrael, and Bnei-Yisrael blessed God, and they did not speak of going up against them in war, to destroy the land in which the children of Reuben and the children of Gad were living.
+22:34 So the children of Reuben and the children of Gad named the altar, “for it is a witness between us that Adonai is God.”
+23:1 Now it came about after many days, when Adonai had given rest to Israel from all their enemies around them, and Joshua was old and advanced in years,
 23:2 that Joshua summoned all Israel, their elders, their heads, their judges and their officials, and said to them: “I have grown old and am advanced in years.
-23:3 Now you have seen all that </span><span class="it"><span class="sc"><span class="content">Adonai
+23:3 Now you have seen all that Adonai your God has done to all these nations because of you, for it was Adonai your God who was fighting for you.
 23:4 Behold, I have allotted to you as an inheritance, according to your tribes, these nations that remain, along with all the nations that I have cut off, from the Jordan to the Great Sea toward the setting of the sun.
-23:5 So </span><span class="it"><span class="sc"><span class="content">Adonai
-23:6 “Be very resolute to keep and to do all that is written in the book of the </span><span class="it"><span class="content">Torah
+23:5 So Adonai your God, He Himself will thrust them out from before you, and drive them from before you, so you will possess their land, just as Adonai your God spoke to you.
+23:6 “Be very resolute to keep and to do all that is written in the book of the Torah of Moses, so that you may not turn aside from it to the right or to the left,
 23:7 and not intermingle with these nations who are still remaining among you. Do not mention the names of their gods or swear by them or worship them or bow down to them.
-23:8 But cling to </span><span class="it"><span class="sc"><span class="content">Adonai
-23:9 For </span><span class="it"><span class="sc"><span class="content">Adonai
-23:10 One of you can put a thousand to flight, for </span><span class="it"><span class="sc"><span class="content">Adonai
-23:11 For your own sake, therefore, be most mindful to love </span><span class="it"><span class="sc"><span class="content">Adonai
+23:8 But cling to Adonai your God, as you have done to this day.
+23:9 For Adonai has driven out from before you great and mighty nations. As for you, no one remained standing before you to this day.
+23:10 One of you can put a thousand to flight, for Adonai your God, He Himself is fighting for you, just as He said to you.
+23:11 For your own sake, therefore, be most mindful to love Adonai your God.
 23:12 For if you ever go back and cling to the remnant of these nations that are still remaining among you, and intermarry with them, and you associate with them and they with you,
-23:13 know for certain that </span><span class="it"><span class="sc"><span class="content">Adonai
-23:14 “Now today I am about to go the way of all the earth. You will know with all your heart and with all your soul that not one word of the good things which </span><span class="it"><span class="sc"><span class="content">Adonai
-23:15 Now it will be that just as all the good things which </span><span class="it"><span class="sc"><span class="content">Adonai
-23:16 When you transgress the covenant of </span><span class="it"><span class="sc"><span class="content">Adonai
+23:13 know for certain that Adonai your God will no longer drive these nations out from before you. Instead they will become a snare and a trap for you, a scourge in your sides and thorns in your eyes, until you perish from this good land which Adonai your God has given you.
+23:14 “Now today I am about to go the way of all the earth. You will know with all your heart and with all your soul that not one word of the good things which Adonai your God spoke concerning you has failed to happen. All of them have come to pass for you; not one word has failed.
+23:15 Now it will be that just as all the good things which Adonai your God has spoken to you have come upon you, so all the evil things will Adonai bring upon you, until He has wiped you off this good land which Adonai your God has given you.
+23:16 When you transgress the covenant of Adonai your God, which He commanded you, and go and worship other gods and bow down to them, then will the anger of Adonai burn against you, and you will perish quickly off this good land which He has given you.”
 24:1 Then Joshua assembled all the tribes of Israel to Shechem, and summoned Israel’s elders, heads, judges and officials. So they presented themselves before God.
-24:2 Then Joshua said to all the people: “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+24:2 Then Joshua said to all the people: “Thus says Adonai, God of Israel: ‘From ancient times your fathers—Terah, the father of Abraham and the father of Nahor—lived beyond the River and worshipped other gods.
 24:3 Then I took your father Abraham from beyond the River and led him through the entire land of Canaan and multiplied his offspring. I gave him Isaac,
 24:4 then to Isaac I gave Jacob and Esau. To Esau I gave Mount Seir to possess it as his own, but Jacob and his children went down to Egypt.
 24:5 “So I sent Moses and Aaron, and I plagued Egypt with what I did in its midst, and afterward I brought you out.
 24:6 I brought your fathers out of Egypt. When you came to the sea, the Egyptians pursued your fathers to the Sea of Reeds with chariots and horsemen.
-24:7 But when they cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
+24:7 But when they cried out to Adonai, He put darkness between you and the Egyptians, then He brought the sea upon them, and it covered them; and your eyes saw what I did to the Egyptians. Then you stayed in the wilderness for a long time.
 24:8 “Then I brought you to the land of the Amorites who were living beyond the Jordan. Though they fought against you, I gave them into your hand, and you possessed their land when I destroyed them from before you.
 24:9 Then Balak son of Zippor, king of Moab, rose and fought against Israel. He even sent and called for Balaam son of Beor to curse you.
 24:10 But I refused to listen to Balaam; instead, he had to keep blessing you. Thus I delivered you from his hand.
 24:11 “Then you crossed over the Jordan and came to Jericho, but the men of Jericho fought against you—the Amorites, the Perizzites, the Canaanites, the Hittites, the Girgashites, the Hivites and the Jebusites—but I delivered them into your hand.
 24:12 Then I sent the hornet before you and it drove them out from before you—the two kings of the Amorites—not by your sword or your bow.
 24:13 I gave you a land on which you had not labored, and cities that you had not built and you have settled in them, vineyards and olive groves that you had not planted, that you are eating.
-24:14 “Now therefore, fear </span><span class="it"><span class="sc"><span class="content">Adonai
-24:15 If it seems bad to you to worship </span><span class="it"><span class="sc"><span class="content">Adonai
-24:16 Then the people answered and said: “Far be it from us that we should forsake </span><span class="it"><span class="sc"><span class="content">Adonai
-24:17 For it was </span><span class="it"><span class="sc"><span class="content">Adonai
-24:18 It was </span><span class="it"><span class="sc"><span class="content">Adonai
-24:19 But Joshua said to the people, “You will not be able to worship </span><span class="it"><span class="sc"><span class="content">Adonai
-24:20 If you forsake </span><span class="it"><span class="sc"><span class="content">Adonai
-24:21 But the people said to Joshua, “No! For we will worship </span><span class="it"><span class="sc"><span class="content">Adonai
-24:22 So Joshua said to the people, “You are witnesses to yourselves that you have chosen for yourselves </span><span class="it"><span class="sc"><span class="content">Adonai
-24:23 “Now therefore, get rid of the foreign gods that are in your midst, and incline your hearts to </span><span class="it"><span class="sc"><span class="content">Adonai
-24:24 And the people said to Joshua, “We will worship none but </span><span class="it"><span class="sc"><span class="content">Adonai
+24:14 “Now therefore, fear Adonai and worship Him in sincerity and in truth. Get rid of the gods that your fathers had worshipped beyond the River and in Egypt, and worship Adonai.
+24:15 If it seems bad to you to worship Adonai, then choose for yourselves today whom you will serve—whether the gods that your fathers worshipped that were beyond the River or the gods of the Amorites in whose land you are living. But as for me and my household, we will worship Adonai!”
+24:16 Then the people answered and said: “Far be it from us that we should forsake Adonai to worship other gods!
+24:17 For it was Adonai our God who brought us and our fathers up from the land of Egypt, from the house of bondage, and who did those great signs in our sight and preserved us all along the way that we travelled and among all the peoples through whose midst we passed.
+24:18 It was Adonai who drove out from before us all the peoples, the Amorites that lived in the land. Therefore we also will worship Adonai, for He is our God.”
+24:19 But Joshua said to the people, “You will not be able to worship Adonai, for He is a holy God. He is a jealous God. He will not pardon your transgression and your sins.
+24:20 If you forsake Adonai and worship foreign gods, then He will turn and do you harm and consume you, after He has done good to you.”
+24:21 But the people said to Joshua, “No! For we will worship Adonai.”
+24:22 So Joshua said to the people, “You are witnesses to yourselves that you have chosen for yourselves Adonai, to worship Him.” “We are witnesses,” they responded.
+24:23 “Now therefore, get rid of the foreign gods that are in your midst, and incline your hearts to Adonai, God of Israel.”
+24:24 And the people said to Joshua, “We will worship none but Adonai our God, and we will obey none but His voice.”
 24:25 So Joshua cut a covenant with the people that day, and set for them a statute and an ordinance in Shechem.
-24:26 Then Joshua wrote these words in the scroll of the </span><span class="it"><span class="content">Torah
-24:27 Joshua said to all the people, “Behold, this stone will be a witness to us. For it has heard all the words of </span><span class="it"><span class="sc"><span class="content">Adonai
+24:26 Then Joshua wrote these words in the scroll of the Torah of God. Also he took a great stone and set it up there under the oak that was by the Sanctuary of Adonai.
+24:27 Joshua said to all the people, “Behold, this stone will be a witness to us. For it has heard all the words of Adonai which He has spoken to us. So it will be a witness to you, lest you deny your God.”
 24:28 Joshua then dismissed the people, each to his own inheritance.
-24:29 Now it came to pass after these things that Joshua son of Nun, the servant of </span><span class="it"><span class="sc"><span class="content">Adonai
+24:29 Now it came to pass after these things that Joshua son of Nun, the servant of Adonai, died at the age of 110 years.
 24:30 So they buried him in the territory of his own portion in Timnath-serah, which is in the hill country of Ephraim, north of Mount Gaash.
-24:31 Israel worshipped </span><span class="it"><span class="sc"><span class="content">Adonai
-24:32 Joseph’s bones, which </span><span class="it"><span class="content">Bnei-Yisrael
+24:31 Israel worshipped Adonai all the days of Joshua and all the days of the elders who outlived Joshua and had known all the work of Adonai that He had done for Israel.
+24:32 Joseph’s bones, which Bnei-Yisrael had brought up from Egypt, they buried in Shechem, in the parcel of ground that Jacob had bought from the sons of Hamor the father of Shechem for 100 pieces of silver. It became the inheritance of the children of Joseph.
 24:33 Then Eleazar son of Aaron died, and they buried him in Gibeah, which had been given to Phinehas his son, in the hill country of Ephraim.
