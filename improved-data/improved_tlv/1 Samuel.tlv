@@ -381,24 +381,24 @@
 15:33 Then Samuel said, “As your sword has made women childless, so will your mother be childless among women.” Then Samuel cut Agag into pieces before Adonai in Gilgal.
 15:34 Samuel then went to Ramah, while Saul went up to his house in Gibeah of Saul.
 15:35 Samuel never did see Saul again until the day of his death. Yet Samuel mourned over Saul, while Adonai regretted that He had made Saul king over Israel.
-16:1 Now </span><span class="it"><span class="sc"><span class="content">Adonai
-16:2 But Samuel replied, “How can I go? If Saul hears of it, he will kill me.” </span><span class="it"><span class="sc"><span class="content">Adonai
+16:1 Now Adonai said to Samuel, “How long will you grieve over Saul, since I have rejected him as king over Israel? Fill your horn with oil and go. I am sending you to Jesse the Beth-lehemite, for I have selected for Myself a king among his sons.”
+16:2 But Samuel replied, “How can I go? If Saul hears of it, he will kill me.” Adonai said, “Take a heifer with you and say: ‘I have come to sacrifice to Adonai.’
 16:3 Then invite Jesse to the sacrifice, and I will let you know what you are to do. You will anoint for Me whom I tell you.”
-16:4 So Samuel did what </span><span class="it"><span class="sc"><span class="content">Adonai
-16:5 “In </span><span class="it"><span class="content">shalom
-16:6 Upon their arrival, he saw Eliab and thought, “Surely, </span><span class="it"><span class="sc"><span class="content">Adonai
-16:7 But </span><span class="it"><span class="sc"><span class="content">Adonai
-16:8 Then Jesse called Abinadab and made him pass before Samuel. But he said, “Neither has </span><span class="it"><span class="sc"><span class="content">Adonai
-16:9 Then Jesse made Shammah pass by and again he said, “Neither has </span><span class="it"><span class="sc"><span class="content">Adonai
-16:10 Thus Jesse made seven of his sons pass before Samuel. But Samuel said to Jesse, “</span><span class="it"><span class="sc"><span class="content">Adonai
+16:4 So Samuel did what Adonai said and went to Beth-lehem. The elders of the town came out to meet him trembling, and asked, “Do you come in shalom?”
+16:5 “In shalom,” he said. “I have come to sacrifice to Adonai. Consecrate yourselves and come with me to the sacrifice.” He also consecrated Jesse and his sons and invited them to the sacrifice.
+16:6 Upon their arrival, he saw Eliab and thought, “Surely, Adonai’s anointed one is before Him.”
+16:7 But Adonai said to Samuel, “Do not look at his appearance or his stature, because I have already refused him. For He does not see a man as man sees, for man looks at the outward appearance, but Adonai looks into the heart.”
+16:8 Then Jesse called Abinadab and made him pass before Samuel. But he said, “Neither has Adonai chosen this one.”
+16:9 Then Jesse made Shammah pass by and again he said, “Neither has Adonai chosen this one.”
+16:10 Thus Jesse made seven of his sons pass before Samuel. But Samuel said to Jesse, “Adonai has not chosen any of these.”
 16:11 Then Samuel asked Jesse, “Are these all the boys you have?” “There’s still the youngest,” he replied. But right now, he’s tending the sheep.” “Send and bring him,” Samuel said to Jesse, “for we will not sit down until he comes here.”
-16:12 So he sent word and had him come. Now he was ruddy-cheeked, with beautiful eyes and a handsome appearance. Then </span><span class="it"><span class="sc"><span class="content">Adonai
-16:13 So Samuel took the horn of oil and anointed him in the midst of his brothers. From that day on </span><span class="it"><span class="content">Ruach
-16:14 Now the </span><span class="it"><span class="content">Ruach
+16:12 So he sent word and had him come. Now he was ruddy-cheeked, with beautiful eyes and a handsome appearance. Then Adonai said, “Arise, anoint him, for this is the one.”
+16:13 So Samuel took the horn of oil and anointed him in the midst of his brothers. From that day on Ruach Adonai came mightily upon David. Then Samuel rose up and went to Ramah.
+16:14 Now the Ruach Adonai had departed from Saul, and an evil spirit from Adonai terrified him.
 16:15 So Saul’s courtiers said to him, “Behold now, an evil spirit from God is tormenting you.
 16:16 Let our lord now command your courtiers in your service to search for a man who is a skillful player on the harp. Then whenever the evil spirit from God comes on you, he will play with his instrument and you will feel better.”
 16:17 So Saul said to his courtiers, “Find me someone who can play well and bring him to me.”
-16:18 One of the young men answered and said, “I have seen a son of Jesse the Beth-lehemite who is skillful in playing music. He is a mighty man of valor, a warrior, prudent in speech, a handsome man, and </span><span class="it"><span class="sc"><span class="content">Adonai
+16:18 One of the young men answered and said, “I have seen a son of Jesse the Beth-lehemite who is skillful in playing music. He is a mighty man of valor, a warrior, prudent in speech, a handsome man, and Adonai is with him.”
 16:19 So Saul sent messengers to Jesse and said, “Send me your son David, who is with the flock.”
 16:20 So Jesse took a donkey, loaded it with bread, a bottle of wine and a young goat, and sent them with his son David to Saul.
 16:21 Then David came to Saul and became one of his attendants. Saul loved him greatly, so David became his armor-bearer.
@@ -440,7 +440,7 @@
 17:34 But David said to Saul, “Your servant has been tending his father’s sheep. When a lion or a bear came and carried off a lamb out of the flock,
 17:35 I went out after it, struck it down, and rescued the lamb out of its mouth. If it rose up against me, I grabbed him by its fur, struck it and killed it.
 17:36 Your servant has killed both the lion and the bear, so this uncircumcised Philistine will become like one of them—since he has defied the ranks of the living God.”
-17:37 Then David said, “</span><span class="it"><span class="sc"><span class="content">Adonai
+17:37 Then David said, “Adonai, who has delivered me from the paw of the lion and from the paw of the bear, will deliver me from the hand of this Philistine.” “Go!” said Saul to David, “and may Adonai be with you.”
 17:38 Then Saul clothed David with his own garb, put a bronze helmet on his head, and clothed him in armor.
 17:39 David strapped his sword on his garment and tried to walk, but he was not used to it. So David said to Saul, “I cannot walk in these, for I am not used to them.” So David took them off.
 17:40 Then he took his staff in his hand, chose five smooth stones from the valley, put them in the pocket of the shepherd’s bag that he had, and with his sling in his hand, he approached the Philistine.
@@ -448,15 +448,15 @@
 17:42 Now when the Philistine looked and saw David, he disdained him, for he was just a ruddy boy with a handsome appearance.
 17:43 Then the Philistine said to David, “Am I a dog, that you come to me with sticks?” Then the Philistine cursed David by his gods.
 17:44 The Philistine said to David, “Come to me, so I may give your flesh to the birds of the sky and the beasts of the field.”
-17:45 Then David said to the Philistine, “You are coming to me with a sword, a spear and a javelin, but I am coming to you in the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-17:46 This very day </span><span class="it"><span class="sc"><span class="content">Adonai
-17:47 and so all this assembly will know that </span><span class="it"><span class="sc"><span class="content">Adonai
+17:45 Then David said to the Philistine, “You are coming to me with a sword, a spear and a javelin, but I am coming to you in the Name of Adonai-Tzva’ot, God of the armies of Israel, whom you have defied.
+17:46 This very day Adonai will deliver you into my hand, and I will strike you down and take your head off you, and I will give the carcasses of the Philistines’ camp today to the birds of the sky and the wild beasts of the earth. Then all the earth will know that there is a God in Israel,
+17:47 and so all this assembly will know that Adonai delivers not with sword and spear—for the battle belongs to Adonai—and He will give you into our hands.”
 17:48 Then when the Philistine rose and began to advance, drawing near to meet David, David ran quickly toward the battle line to meet the Philistine.
 17:49 David put his hand in his bag, took from it a stone and slung it, striking the Philistine on his forehead. The stone sank into his forehead, so that he fell on his face to the ground.
 17:50 So David prevailed over the Philistine with a sling and a stone, struck the Philistine down and killed him. Since there was no sword in David’s hand,
 17:51 David ran, stood over the Philistine, picked up his sword, drew it from its sheath, slew him and cut off his head with it. When the Philistines saw that their champion was dead, they fled.
 17:52 Then the men of Israel and Judah rose up, shouted and pursued the Philistines all the way to the valley up to the gates of Ekron. The slain Philistines fell down along the way to Shaaraim, even up to Gath and Ekron.
-17:53 When </span><span class="it"><span class="content">Bnei-Yisrael
+17:53 When Bnei-Yisrael returned from chasing the Philistines, they plundered their camp.
 17:54 David took the head of the Philistine and brought it to Jerusalem, but he put his armor in his own tent.
 17:55 Now when Saul saw David going out against the Philistine, he asked Abner, the commander of the army, “Abner, whose son is this boy?” Abner said, “As your soul lives, your majesty, I don’t know.”
 17:56 So the king said, “Then, find out whose son this young man is.”
@@ -473,12 +473,12 @@
 18:9 So Saul eyed David from that day on.
 18:10 It came about the next day that an evil spirit from God came mightily upon Saul, so that he was raving within the palace. While David was playing music with his hand, as he did day by day, Saul had his spear in his hand,
 18:11 and Saul hurled the spear, thinking, “I’ll pin David to the wall!” But David eluded him—twice.
-18:12 Now Saul became afraid of David, because </span><span class="it"><span class="sc"><span class="content">Adonai
+18:12 Now Saul became afraid of David, because Adonai was with him but had departed from Saul.
 18:13 Therefore Saul removed him from his entourage by appointing him as a captain of a thousand. So David went out and came in before the troops.
-18:14 David had success in all his undertakings, since </span><span class="it"><span class="sc"><span class="content">Adonai
+18:14 David had success in all his undertakings, since Adonai was with him.
 18:15 When Saul saw that he had great success, he dreaded him.
 18:16 But all Israel and Judah loved David, for he went out and came in before them.
-18:17 Then Saul said to David, “Here is my older daughter Merab—I give her to you as a wife. Only continue to be my son of valor and fight </span><span class="it"><span class="sc"><span class="content">Adonai
+18:17 Then Saul said to David, “Here is my older daughter Merab—I give her to you as a wife. Only continue to be my son of valor and fight Adonai’s battles.” For Saul thought, “My hand needn’t be against him—let the hand of the Philistines be against him.”
 18:18 But David replied to Saul, “Who am I, and what is my life or my father’s family in Israel, that I should become the king’s son-in-law?”
 18:19 But when it was time to give Saul’s daughter Merab to David in marriage, she was given as wife to Adriel the Meholathite instead.
 18:20 Now Saul’s daughter Michal loved David. When they told Saul, the matter pleased him.
@@ -489,18 +489,18 @@
 18:25 Then Saul said, “Thus you will say to David, ‘The king desires no bridal dowry except 100 foreskins of the Philistines—to take vengeance on the king’s enemies.’” So Saul schemed to make David fall by the hand of the Philistines.
 18:26 When his courtiers told David these words, the word seemed right in David’s eyes to become the king’s son-in-law. Before the days were fulfilled,
 18:27  David had risen, gone with his men and killed 200 Philistine men. Then David brought their foreskins and gave them in full number to the king—to become the king’s son-in-law. So Saul gave him Michal his daughter as a wife.
-18:28 When Saul saw and realized that </span><span class="it"><span class="sc"><span class="content">Adonai
+18:28 When Saul saw and realized that Adonai was with David and that Michal, Saul’s daughter, loved him,
 18:29 Saul grew even more afraid of David. Thus Saul became David’s enemy for all days.
 18:30 When the chiefs of the Philistines marched out, as often as they came out, David proved more successful than all of Saul’s officers. So his name became highly esteemed.
 19:1 Now Saul told his son Jonathan and all his courtiers to kill David. But Saul’s son Jonathan delighted much in David.
 19:2 So Jonathan informed David saying, “My father Saul is seeking to kill you. So now, please be on guard in the morning, and stay in a secret place and hide yourself.
 19:3 I will go out and stand beside my father in the field where you will be, and I will speak with my father about you. If I notice anything, I will tell you.”
 19:4 So Jonathan spoke well of David to his father Saul and said to him, “May the king not sin against his servant David, since he has not sinned against you, and since his deeds have been very beneficial for you;
-19:5 For he put his life in his hand and killed the Philistine, and </span><span class="it"><span class="sc"><span class="content">Adonai
-19:6 Saul listened to the voice of Jonathan, and Saul swore, “As </span><span class="it"><span class="sc"><span class="content">Adonai
+19:5 For he put his life in his hand and killed the Philistine, and Adonai won a great victory for all Israel—you saw it and rejoiced. So why would you sin against innocent blood by killing David without a cause?”
+19:6 Saul listened to the voice of Jonathan, and Saul swore, “As Adonai lives, he will not be put to death.”
 19:7 So Jonathan called David, and Jonathan told him all these things. Jonathan brought David to Saul and in his presence as before.
 19:8 Once again war broke out, and David marched out and fought the Philistines, and inflicted a great slaughter on them and they fled before him.
-19:9 Yet once again an evil spirit from </span><span class="it"><span class="sc"><span class="content">Adonai
+19:9 Yet once again an evil spirit from Adonai came upon Saul as he was sitting in his house with his spear in his hand, as David was playing music with his hand.
 19:10 Saul sought to pin David to the wall with the spear, but he slipped away from Saul’s face, so that he drove the spear into the wall. That night David fled and got away.
 19:11 Then Saul sent agents to David’s house to watch him, in order to kill him in the morning. But David’s wife Michal warned him saying, “If you don’t escape for your life tonight, tomorrow you will be dead!”
 19:12 So Michal lowered David down through the window, and thus he went, fled and escaped.
@@ -511,34 +511,34 @@
 19:17 Saul then said to Michal, “Why have you deceived me like this and let my enemy get away, so that he escaped?” Michal answered Saul, “He said to me, ‘Let me go or I’ll kill you!’”
 19:18 So David fled and escaped, went to Samuel at Ramah, and told him all that Saul had done to him. Then he and Samuel went and stayed at Naioth.
 19:19 Saul was told, “Behold, David is at Naioth in Ramah.”
-19:20 So Saul sent agents to seize David, but they saw a band of prophets prophesying, and Samuel standing and presiding over them. Then the </span><span class="it"><span class="content">Ruach
+19:20 So Saul sent agents to seize David, but they saw a band of prophets prophesying, and Samuel standing and presiding over them. Then the Ruach of God came upon Saul’s agents and they too prophesied.
 19:21 When Saul was told, he sent other agents and they too prophesied. Then Saul sent a third group of messengers, and they too prophesied.
 19:22 Then he himself went to Ramah, and when he arrived at the great cistern in Secu, he asked, “Where are Samuel and David?” Someone answered, “Look, they are at Naioth at Ramah.”
-19:23 So he proceeded there, to Naioth at Ramah, and the </span><span class="it"><span class="content">Ruach
+19:23 So he proceeded there, to Naioth at Ramah, and the Ruach of God came upon him as well, and he prophesied as he kept walking until he arrived to Naioth at Ramah.
 19:24 Then he too stripped off his clothes, and he too prophesied before Samuel, and lay down naked all that day and all that night. That is why people were saying, “Is Saul too among the prophets?”
 20:1 Then David fled from Naioth at Ramah, came before Jonathan and said, “What have I done? What is my crime? What is my sin against your father that he should be seeking my life?”
 20:2 “Never!” he said to him. “You will not die! Behold, my father does nothing great or small without disclosing it to me. So why should my father hide this matter from me? It cannot be.”
-20:3 Then David swore again saying, “Your father knows very well that I have found favor in your eyes. So he must have thought, ‘Let’s not let Jonathan know about this, else he will be grieved.’ But truly as </span><span class="it"><span class="sc"><span class="content">Adonai
+20:3 Then David swore again saying, “Your father knows very well that I have found favor in your eyes. So he must have thought, ‘Let’s not let Jonathan know about this, else he will be grieved.’ But truly as Adonai lives and as your soul lives, there is but a step between me and death.”
 20:4 Then Jonathan said to David, “Whatever you say, I will do for you!”
 20:5 So David said to Jonathan, “Look, tomorrow is the New Moon, when I am supposed to sit down with the king to eat. Instead, let me go hide myself in the countryside until the third evening.
 20:6 If your father misses me at all, then say: ‘David earnestly asked my permission to run to Beth-lehem, his town, for it is the annual sacrifice there for the whole family.’
 20:7 If he says thus, ‘Very well,’ then your servant is safe; but if he becomes very angry, then know that he is determined to harm me.
-20:8 Therefore deal kindly with your servant, for you have brought your servant into a covenant of </span><span class="it"><span class="sc"><span class="content">Adonai
+20:8 Therefore deal kindly with your servant, for you have brought your servant into a covenant of Adonai with you. But if there is any iniquity in me, then kill me yourself! Why should you bring me to your father?”
 20:9 Jonathan replied, “Far be it from you! For if I know for sure that my father has determined evil to come on you, then wouldn’t I tell you about it?”
 20:10 Then David asked Jonathan, “Who will tell me if your father answers you harshly?”
 20:11 Jonathan said to David, “Come, let’s go out to the field.” So they both went out to the field.
-20:12 Then Jonathan said to David, “By </span><span class="it"><span class="sc"><span class="content">Adonai
-20:13 May </span><span class="it"><span class="sc"><span class="content">Adonai
-20:14 “Now if I am still alive, wouldn’t you show me the loyal love of </span><span class="it"><span class="sc"><span class="content">Adonai
-20:15 Yet also, don’t cut off your loyal love from my household ever—not even when </span><span class="it"><span class="sc"><span class="content">Adonai
-20:16 So Jonathan cut a covenant with the house of David, “So may </span><span class="it"><span class="sc"><span class="content">Adonai
+20:12 Then Jonathan said to David, “By Adonai, God of Israel, I will sound out my father about this time tomorrow or the day after. Look, if it is good toward David, wouldn’t I then send word to you and disclose it to you?
+20:13 May Adonai do so to Jonathan and even worse, should my father intend to do you evil, if I don’t disclose it to you and send you away, that you may go in shalom. So may Adonai be with you as He has been with my father.
+20:14 “Now if I am still alive, wouldn’t you show me the loyal love of Adonai so I wouldn’t die?
+20:15 Yet also, don’t cut off your loyal love from my household ever—not even when Adonai cuts off all of David’s enemies from the face of the earth.”
+20:16 So Jonathan cut a covenant with the house of David, “So may Adonai requite David’s enemies.”
 20:17 Jonathan made David swear again because of the love he had for him, for he loved him as he loved himself.
 20:18 Then Jonathan said to him, “Tomorrow is the New Moon. You’ll be missed because your seat will be empty.
 20:19 On the third day, you must go down quickly and come to the place where you hid as you did on that day, and remain close to the stone Ezel.
 20:20 I will shoot three arrows to the side of it, as though I were shooting at a target.
-20:21 Now look, I will send a lad saying, ‘Go, find the arrows.’ If I specifically say to the lad, ‘See, the arrows are on this side of you—get them,’ then come; for it is safe for you and no danger, as </span><span class="it"><span class="sc"><span class="content">Adonai
-20:22 But if I say to the boy: ‘Look, the arrows are beyond you,’ then go your way, for </span><span class="it"><span class="sc"><span class="content">Adonai
-20:23 But as for the matter which I and you have spoken about, behold, </span><span class="it"><span class="sc"><span class="content">Adonai
+20:21 Now look, I will send a lad saying, ‘Go, find the arrows.’ If I specifically say to the lad, ‘See, the arrows are on this side of you—get them,’ then come; for it is safe for you and no danger, as Adonai lives.
+20:22 But if I say to the boy: ‘Look, the arrows are beyond you,’ then go your way, for Adonai has released you.
+20:23 But as for the matter which I and you have spoken about, behold, Adonai is between me and you forever.”
 20:24 So David hid himself in the field, and when the New Moon came, the king sat down to eat a meal.
 20:25 So the king sat on his seat—as usual, the seat by the wall—Jonathan stood up and Abner sat down by Saul’s side, but David’s place was empty.
 20:26 Nevertheless, Saul said nothing that day, for he thought, “It must be an accident; he must be ceremonially unclean—yes, that’s it, he’s unclean.”
@@ -557,22 +557,23 @@
 20:39 But the lad knew nothing; only Jonathan and David knew the arrangement.
 20:40 Then Jonathan gave his weapons to his lad and said to him, “Go, take them back to the town.”
 20:41 As soon as the lad was gone, David emerged from the south side and fell on his face to the ground and bowed down three times. Then they kissed each other and wept together, though David wept more.
-20:42 Then Jonathan said to David, “Go in the </span><span class="it"><span class="content">shalom
+20:42 Then Jonathan said to David, “Go in the shalom that we both have sworn to each other in the Name of Adonai saying: ‘May Adonai be between me and you, and between my offspring and your offspring, forever.’”
 21:1 Then David got up and left, while Jonathan returned to the town.
-21:2 David went to Nob to Ahimelech the </span><span class="it"><span class="content">kohen
-21:3 David said to Ahimelech the </span><span class="it"><span class="content">kohen
+21:2 David went to Nob to Ahimelech the kohen. Ahimelech was afraid to meet David, so he said to him, “Why are you alone and no one with you?”
+21:3 David said to Ahimelech the kohen, “The king has commissioned me with a matter, and told me: ‘Let no one know anything about the mission on which I am sending you, or with what I have commissioned you.’ So, I have directed the young men to such and such a place.
 21:4 So now, what do you have on hand? Give me five loaves of bread or whatever can be found.”
-21:5 The </span><span class="it"><span class="content">kohen
-21:6 “Of course women have been kept from us, as on previous campaigns,” David answered the </span><span class="it"><span class="content">kohen
-21:7 So the </span><span class="it"><span class="content">kohen
-21:8 Now one of Saul’s servants was there that day, detained before </span><span class="it"><span class="sc"><span class="content">Adonai
+21:5 The kohen answered David saying, “There is no common bread on hand, but there is consecrated bread—so long as the young men have kept themselves from women.”
+21:6 “Of course women have been kept from us, as on previous campaigns,” David answered the kohen. “So the young men’s vessels were holy, though it was an ordinary mission—how much more so will their vessels be holy today!”
+21:7 So the kohen gave him consecrated bread, for there was no bread there but the bread of the Presence, which was taken out from the presence of Adonai in order to replace it with hot bread on the day it was taken away.
+21:8 Now one of Saul’s servants was there that day, detained before Adonai. His name was Doeg the Edomite, chief of Saul’s shepherds.
 21:9 Then David said to Ahimelech, “Isn’t there a spear or sword on hand? For I did not take my sword or my weapons with me, because the king’s mission was urgent.”
-21:10 The </span><span class="it"><span class="content">kohen
+21:10 The kohen said, “The sword of Goliath the Philistine whom you killed in the valley of Elah—it’s here, wrapped in a cloth behind the ephod. If you want to take it for yourself, take it. For there’s nothing else here.” “There’s nothing like it!” David said. “Give it to me.”
 21:11 Then David got up and fled that day from Saul, and went to Achish, king of Gath.
 21:12 But Achish’s courtiers said to him, “Isn’t this David king of the land? Isn’t he the one they sing about in their dances saying, ‘Saul has slain his thousands, and David his ten thousands?’”
 21:13 David took these words to heart, and he became so afraid of King Achish of Gath
 21:14 that he changed his demeanor before them and acted like a mad man while in their hands—scribbling on the doors of the gate and letting his saliva run down his beard.
 21:15 Then Achish said to his courtiers, “Look, you can see the man is insane. Why did you bring him to me?
+21:16 Do I have a shortage of crazy people that you’ve brought this fellow to go crazy on me? Is this one going to come into my house?”
 22:1 So David walked from there and escaped to the cave of Adullam. When his brothers and all his father’s house heard about it, they went down there to him.
 22:2 Anyone who was in distress, anyone in debt, and anyone embittered rallied around him, and he became their leader. There were about 400 men with him.
 22:3 Then David left from there to Mizpah of Moab, and he said to the king of Moab, “Please, let my father and my mother come and stay with you until I know what God will do for me.”
@@ -582,41 +583,41 @@
 22:7 Saul said to his courtiers standing about him, “Listen now, Benjamites! Will the son of Jesse give every one of you fields and vineyards? Will he make all of you captains of thousands and captains of hundreds?
 22:8 Yet all of you have conspired against me, and there was nobody disclosing to me when my son makes a covenant with the son of Jesse! None of you is sorry for me or discloses to me that my son has stirred up my servant against me to lie in ambush—as is the case today?”
 22:9 Then Doeg the Edomite, who was standing among Saul’s courtiers, answered and said, “I saw the son of Jesse coming to Nob—to Ahimelech son of Ahitub—
-22:10 and he inquired of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:11 Then the king sent word to summon the </span><span class="it"><span class="content">kohen
+22:10 and he inquired of Adonai for him, gave him provisions and gave him the sword of Goliath the Philistine.”
+22:11 Then the king sent word to summon the kohen Ahimelech son of Ahitub and all the kohanim of his father’s house who were in Nob. So they all came to the king.
 22:12 “Listen now, son of Ahitub,” Saul said. “Here I am, my lord,” he said.
 22:13 Then Saul said to him, “Why have you conspired against me—you and the son of Jesse—by giving him bread and a sword, and by inquiring of God for him, that he should rise against me by lying in ambush, as is the case today?”
 22:14 Then Ahimelech answered the king saying, “Who among all your servants is as trusted as David, the king’s son-in-law, a captain of the royal guard, and honored in your house?
 22:15 Just today I began to inquire of God for him? Far be it from the king to accuse his servant or to anyone of my father’s house. For your servant knows nothing of all this, whether little or much.”
 22:16 But the king said, “You will surely die, Ahimelech, you and all your father’s house.”
-22:17 Then the king ordered the guards attending him, “Turn around and kill the </span><span class="it"><span class="content">kohanim
-22:18 So the king said to Doeg, “You, turn around and kill the </span><span class="it"><span class="content">kohanim
-22:19 Nob, the town of the </span><span class="it"><span class="content">kohanim
+22:17 Then the king ordered the guards attending him, “Turn around and kill the kohanim of Adonai, for they are in cahoots with David, for they knew that he was running away but did not inform me.” But the servants of the king were not willing to raise their hand to assault the kohanim of Adonai.
+22:18 So the king said to Doeg, “You, turn around and kill the kohanim!” So Doeg the Edomite turned and fell upon the kohanim and on that day killed 85 men who wore the linen ephod.
+22:19 Nob, the town of the kohanim, he struck with the edge of the sword: men and women, children and infants, oxen, asses, and sheep with the edge of the sword.
 22:20 Yet one of the sons of Ahimelech son of Ahitub, named Abiathar, escaped and fled to David.
-22:21 Abiathar told David that Saul had slain </span><span class="it"><span class="sc"><span class="content">Adonai
+22:21 Abiathar told David that Saul had slain Adonai’s kohanim.
 22:22 Then David said to Abiathar, “I knew on that day, when Doeg the Edomite was there, that he would surely tell Saul. I have brought about the death of all the people of your father’s house.
 22:23 Stay with me, and fear not; for the one who is seeking my life is seeking your life too—but with me you will be safe.”
 23:1 Then they reported to David saying, “Look, the Philistines are raiding Keilah and they are plundering the threshing floors.”
-23:2 So David inquired of </span><span class="it"><span class="sc"><span class="content">Adonai
+23:2 So David inquired of Adonai saying, “Shall I go and attack those Philistines?” Adonai said to David, “Go, attack the Philistines and deliver Keilah.”
 23:3 But David’s fellow men said to him, “Look, we’re afraid here in Judah; how much more so if we go to Keilah against the Philistine forces?”
-23:4 Once again David inquired of </span><span class="it"><span class="sc"><span class="content">Adonai
+23:4 Once again David inquired of Adonai, and Adonai answered him saying, “Arise! Go to Keilah, for I am going to deliver the Philistines into your hand.”
 23:5 So David and his fellow men went to Keilah and fought against the Philistines, drove off their livestock and inflicted a great slaughter on them. Thus David rescued the inhabitants of Keilah.
 23:6 It came about, when Abiathar son of Ahimelech fled to David at Keilah, he came down with an ephod in his hand.
 23:7 Now when Saul was told that David had gone to Keilah, Saul said, “God has delivered him into my hand! For he shut himself in by entering a town with barred gates.”
 23:8 So Saul summoned all the troops for battle, to go down to Keilah to besiege David and his fellow men.
-23:9 Now David knew that Saul was plotting evil against him, so he said to Abiathar the </span><span class="it"><span class="content">kohen
-23:10 Then David said, “</span><span class="it"><span class="sc"><span class="content">Adonai
-23:11 Will the men of Keilah surrender me into his hand? Will Saul come down, as Your servant has heard? </span><span class="it"><span class="sc"><span class="content">Adonai
-23:12 Then David asked, “Will the men of Keilah surrender me and my fellow men into the hand of Saul?” “They will surrender,” </span><span class="it"><span class="sc"><span class="content">Adonai
+23:9 Now David knew that Saul was plotting evil against him, so he said to Abiathar the kohen, “Bring the ephod.”
+23:10 Then David said, “Adonai, God of Israel, Your servant has heard for certain that Saul intends to come to Keilah to destroy the town because of me.
+23:11 Will the men of Keilah surrender me into his hand? Will Saul come down, as Your servant has heard? Adonai God of Israel, I pray, tell Your servant.” “He will come down,” Adonai said.
+23:12 Then David asked, “Will the men of Keilah surrender me and my fellow men into the hand of Saul?” “They will surrender,” Adonai said.
 23:13 Then David and his fellow men, about 600, got up and left Keilah, and went wherever they could go. When Saul was told that David had escaped from Keilah, he stopped the pursuit.
 23:14 So David stayed in the strongholds of the wilderness, remaining in the hill country in the wilderness of Ziph. Saul searched for him every day, but God did not give him into his hand.
 23:15 By now David was aware that Saul would come out to seek his life while David was in the wilderness of Ziph at Choresh.
 23:16 Then Saul’s son Jonathan arose and went to David at Choresh and strengthened him in God.
 23:17 “Don’t be afraid,” he said to him, “because my father Saul will never find you. You will be king over Israel and I will be second to you. Even my father Saul recognizes that.”
-23:18 Again they cut a covenant before </span><span class="it"><span class="sc"><span class="content">Adonai
+23:18 Again they cut a covenant before Adonai. David remained at Choresh, but Jonathan went home.
 23:19 Then some of the Ziphites went up to Saul in Gibeah, saying, “Isn’t David hiding with us in the strongholds at Choresh, in the hill of Hachilah which is south of Jeshimon?
 23:20 Now therefore, O king, come down whenever it is a desire of your soul to come down—our part will be to deliver him into the king’s hand.”
-23:21 “May you be blessed of </span><span class="it"><span class="sc"><span class="content">Adonai
+23:21 “May you be blessed of Adonai,” Saul said, “for you have taken pity on me.
 23:22 Go now, make more sure, investigate and scout out his place where he usually goes and who has seen him there. For I have been told that he is very cunning.
 23:23 Look around and see in which of all the hiding places he has been hiding, and return to me with certainty, and I will go with you. If he is in the area, I will search him out among all the clans of Judah.”
 23:24 Then they got up and went to Ziph ahead of Saul. But David and his men were then in the wilderness of Maon in the Arabah, to the south of Jeshimon.
@@ -628,31 +629,31 @@
 24:1 Now when Saul returned from pursuing the Philistines, they told him saying, “Look, David is in the wilderness of En-gedi.”
 24:2 So Saul took 3,000 chosen men from all Israel and went to search for David and his men near the rocks of the mountain goats.
 24:3 When he came across the sheepfolds along the way where there was a cave, Saul went in to relieve himself. Now David and his men were already sitting in the innermost parts of the cave.
-24:4 So David’s men said to him, “Look, it’s the day </span><span class="it"><span class="sc"><span class="content">Adonai
+24:4 So David’s men said to him, “Look, it’s the day Adonai spoke to you about, ‘Behold, I will deliver your enemy into your hand, so you may do to him as seems good in your eyes.’” Then David crept and cut off the corner of Saul’s robe stealthily.
 24:5 But afterward, David’s conscience bothered him for cutting off the edge of Saul’s robe.
-24:6 So he said to his fellow men, “</span><span class="it"><span class="sc"><span class="content">Adonai
+24:6 So he said to his fellow men, “Adonai forbid that I should do such a thing to my lord, Adonai’s anointed, stretching out my hand against him—for he is Adonai’s anointed.”
 24:7 So David persuaded his fellow men with these words and did not let them rise against Saul. Then Saul left the cave and went on his way.
 24:8 David also rose afterward, went out of the cave, and called out after Saul saying, “My lord the king!” When Saul looked behind him, David bowed with his face to the earth and prostrated himself.
 24:9 Then David said to Saul, “Why do you listen to men’s words saying: ‘Look, David intends you harm’?
-24:10 Look, today your own eyes should see how </span><span class="it"><span class="sc"><span class="content">Adonai
+24:10 Look, today your own eyes should see how Adonai delivered you today into my hand, in the cave. Some urged me to kill you, but my eye had pity on you, and I said: ‘I will not stretch out my hand against my lord, for he is Adonai’s anointed.’
 24:11 Moreover, my father, see! Yes, look at the corner of your robe in my hand! For in cutting off the corner of your robe, yet not killing you, you should know and realize that there is no evil or rebellion in my hand. I haven’t sinned against you, even though you are lying in wait for my life, to take it.
-24:12 May </span><span class="it"><span class="sc"><span class="content">Adonai
+24:12 May Adonai judge between me and you, and may Adonai avenge me of you, but my hand will not be against you.
 24:13 As the old proverb goes, ‘Out of the wicked comes forth wickedness’—but my hand will never be on you.
 24:14 Whom has the king of Israel come after? Who are you chasing? A dead dog? A single flea?
-24:15 May </span><span class="it"><span class="sc"><span class="content">Adonai
+24:15 May Adonai be judge and decide between me and you! And may He see and plead my cause and vindicate me against you.”
 24:16 Now when David finished speaking these words to Saul, Saul said, “Is this your voice, my son, David?” Then Saul lifted up his voice and wept aloud.
 24:17 Then he said to David, “You are more righteous than I, for you have done good to me, while I have done evil to you.
-24:18 You’ve told today how well you’ve dealt with me, for </span><span class="it"><span class="sc"><span class="content">Adonai
-24:19 For if a man finds his enemy, will he let him go away on a good road? May </span><span class="it"><span class="sc"><span class="content">Adonai
+24:18 You’ve told today how well you’ve dealt with me, for Adonai had delivered me up into your hand, yet you did not kill me.
+24:19 For if a man finds his enemy, will he let him go away on a good road? May Adonai reward you with good in return for what you have done to me today.
 24:20 Now behold, I know for certain that you will be king, and that the kingdom of Israel will rise in your hand.
-24:21 Swear now to me by </span><span class="it"><span class="sc"><span class="content">Adonai
+24:21 Swear now to me by Adonai that you won’t cut off my descendants after me, and that you won’t wipe out my name from my father’s house.”
 24:22 So David swore to Saul. Then Saul went to his home, but David and his men went up to the stronghold.
 25:1 Then Samuel died, and all Israel gathered and lamented him, and buried him at his house in Ramah. David then arose and went down to the wilderness of Paran.
 25:2 Now there was a man in Maon, whose business was in Carmel, and the man was so wealthy, he had 3,000 sheep and 1,000 goats. At that time he was shearing his sheep in Carmel.
 25:3 The man’s name was Nabal and his wife’s name was Abigail. The woman was intelligent and beautiful, but the man, a Calebite, was harsh and evil in his dealings.
 25:4 While David was in the wilderness, he heard that Nabal was shearing his sheep.
 25:5 So David dispatched ten young men, and said to the young men, “Go up to Carmel, and when you reach Nabal, greet him in my name.
-25:6 Thus you will say: ‘Long life! And </span><span class="it"><span class="content">shalom
+25:6 Thus you will say: ‘Long life! And shalom to you, shalom to your house and shalom to all that is yours.
 25:7 Now I hear that you have shearers. When your shepherds were with us, we did them no harm and nothing of theirs was missing all the time they were in Carmel.
 25:8 Ask your young men and they will tell you. Therefore, let the young men find favor in your eyes, for we have come on a festive day. So please, give to your servants and to your son David, whatever you find at hand.’”
 25:9 David’s young men went and told Nabal all those words in David’s name, and waited.
@@ -672,20 +673,20 @@
 25:23 When Abigail saw David, she quickly dismounted from her donkey, fell before David on her face and bowed down to the ground.
 25:24 As she fell at his feet, she pleaded, “On me, only me, my lord, be the punishment! But please, let your maidservant speak in your ears, and listen to the words of your maidservant.
 25:25 Please my lord, pay no attention to this worthless fellow, Nabal, for as his name is, so is he—Nabal is his name and disgraceful folly is with him. But I, your maidservant, did not see the young men of my lord whom you sent.
-25:26 “So now my lord, as </span><span class="it"><span class="sc"><span class="content">Adonai
+25:26 “So now my lord, as Adonai lives and as your soul lives, since Adonai has restrained you from shedding blood and from avenging yourself with your own hand, now therefore let your enemies and those who are seeking to harm my lord be as Nabal.
 25:27 Now let this blessing, which your maidservant has brought to my lord, be given to the young men who are accompanying my lord.
-25:28 Please, forgive the trespass of your maidservant. For </span><span class="it"><span class="sc"><span class="content">Adonai
-25:29 If anyone rises to pursue you and seek your life, then let my lord’s life be bound up in the bundle of the living—with </span><span class="it"><span class="sc"><span class="content">Adonai
-25:30 “So when </span><span class="it"><span class="sc"><span class="content">Adonai
-25:31 then this will not be a stumbling-block for you, or offense of heart to my lord, or needless bloodshed by my lord avenging himself. So when </span><span class="it"><span class="sc"><span class="content">Adonai
-25:32 Then David said to Abigail, “Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
+25:28 Please, forgive the trespass of your maidservant. For Adonai will certainly make an enduring house for my lord, because my lord is fighting the battles of Adonai. So let no wrongdoing be found in you all your days.
+25:29 If anyone rises to pursue you and seek your life, then let my lord’s life be bound up in the bundle of the living—with Adonai your God. But let the soul of your enemies be hurled away as from the hollow of a sling.
+25:30 “So when Adonai has fulfilled for my lord all the good things that He had spoken concerning you, and has appointed you ruler over Israel,
+25:31 then this will not be a stumbling-block for you, or offense of heart to my lord, or needless bloodshed by my lord avenging himself. So when Adonai has dealt graciously with my lord, then remember your handmaid.”
+25:32 Then David said to Abigail, “Blessed be Adonai God of Israel, who sent you to meet me this day!
 25:33 Blessed be your discernment, and may you be blessed for keeping me this day from shedding blood, from avenging myself with my own hand.
-25:34 Yet as </span><span class="it"><span class="sc"><span class="content">Adonai
-25:35 So David received from her hand what she had brought him, and said to her, “Go up in </span><span class="it"><span class="content">shalom
+25:34 Yet as Adonai God of Israel lives, who restrained me from harming you, unless you had come quickly to meet me, surely not one male of Nabal’s line would have been left alive by the morning light!”
+25:35 So David received from her hand what she had brought him, and said to her, “Go up in shalom to your house. Look, I have listened to your plea and have granted your request.”
 25:36 Then Abigail went to Nabal, and there he was holding a banquet in his house like that of a king—Nabal’s heart was merry within him, for he was quite drunk. So she told him nothing at all until daybreak.
 25:37 It came to pass in the morning, when the wine had gone out of Nabal, and his wife told him these things, that his heart died within him, and he was paralyzed like a stone.
-25:38 About ten days later, </span><span class="it"><span class="sc"><span class="content">Adonai
-25:39 When David heard that Nabal was dead, he said, “Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
+25:38 About ten days later, Adonai struck Nabal and he died.
+25:39 When David heard that Nabal was dead, he said, “Blessed be Adonai who took the case of my insult from the hand of Nabal, yet has restrained His servant from evil! Adonai has returned Nabal’s vileness on his own head.” Then David sent word and proposed to Abigail to take her as his wife.
 25:40 When David’s servants came to Abigail at Carmel, they told her, “David has sent us to you, to take you as his wife.”
 25:41 So she rose, bowed down with her face to the ground and said, “Behold, your handmaid is a servant to wash the feet of the servants of my lord.”
 25:42 Then Abigail rose quickly and mounted a donkey, with five of her maidens following her, following David’s messengers, and she became his wife.
@@ -699,22 +700,22 @@
 26:6 Then David spoke and asked Ahimelech the Hittite and Joab’s brother Abishai son of Zeruiah, saying, “Who will go down with me to Saul in the camp?” “I will go down with you,” Abishai answered.
 26:7 So David and Abishai approached the troops by night. Behold, Saul was lying asleep within the barricade with his spear stuck in the ground at his head, and Abner and the troops were sleeping around him.
 26:8 Then Abishai said to David, “God has delivered your enemy into your hand today. Now let me pin him to the ground with a single thrust of the spear. I will not have to strike him twice.”
-26:9 But David said to Abishai, “Don’t destroy him! For who can lay his hand on </span><span class="it"><span class="sc"><span class="content">Adonai
-26:10 David added, “As </span><span class="it"><span class="sc"><span class="content">Adonai
-26:11 ’s anointed! Now, just take the spear that is at his head and the water jar and let’s go.”
-26:12 So David took the spear and the water jar from beside Saul’s head. They got away—and no one saw it, or knew it, or woke up—for all were asleep, for a deep sleep from </span><span class="it"><span class="sc"><span class="content">Adonai
+26:9 But David said to Abishai, “Don’t destroy him! For who can lay his hand on Adonai’s anointed and be guiltless?”
+26:10 David added, “As Adonai lives, either Adonai will strike him down, or his day will come to die, or he will go down to battle and be swept away.
+26:11 Adonai forbid that I should lay my hand on Adonai’s anointed! Now, just take the spear that is at his head and the water jar and let’s go.”
+26:12 So David took the spear and the water jar from beside Saul’s head. They got away—and no one saw it, or knew it, or woke up—for all were asleep, for a deep sleep from Adonai had fallen upon them.
 26:13 Then David crossed over to the other side and stood on the top of a distant hill with a wide space between them.
 26:14 David shouted to the troops and to Abner son of Ner saying, “Aren’t you going to answer, Abner?” Then Abner answered saying, “Who are you, who called out to the king?”
 26:15 “Aren’t you a man?” David said to Abner. “Indeed, who is like you in Israel? So, why didn’t you guard your lord the king? For one of the troops came in to kill the king your lord.
-26:16 This thing that you’ve done is no good. As </span><span class="it"><span class="sc"><span class="content">Adonai
+26:16 This thing that you’ve done is no good. As Adonai lives, all of you deserve to die, because you have not kept watching over your lord, Adonai’s anointed. So now, look around, where are the king’s spear and the water jar that were at his head?”
 26:17 Saul then recognized David’s voice and said, “Is this your voice, David my son?” “It is my voice, my lord the king,” David said,
 26:18 then added, “Yet why is my lord pursuing his servant? What have I done? What evil is in my hand?
-26:19 Now please, let my lord the king listen to the words of his servant. If </span><span class="it"><span class="sc"><span class="content">Adonai
-26:20 So now, let not my blood fall to the ground, away from the presence of </span><span class="it"><span class="sc"><span class="content">Adonai
+26:19 Now please, let my lord the king listen to the words of his servant. If Adonai has stirred you up against me, let Him accept an offering. But if men have done so, then cursed are they before Adonai, because they have now driven me out that I would not cling to Adonai’s inheritance, saying: ‘Go, worship other gods.’
+26:20 So now, let not my blood fall to the ground, away from the presence of Adonai. For the king of Israel has come out to search for but a single flea, just as one hunts for a partridge in the mountains.”
 26:21 Then Saul replied, “I have sinned! Return, David my son, for I will no longer do you harm, since my life was precious in your eyes this day. Behold, I’ve played the fool and erred so seriously.”
 26:22 David then answered and said, “There is the king’s spear! Let one of the young men cross over and take it.
-26:23 ’s anointed.
-26:24 See, just as your life was highly valued in my eyes today, so let my life be highly valued in </span><span class="it"><span class="sc"><span class="content">Adonai
+26:23 Adonai will repay everyone his righteousness and his faithfulness. For Adonai gave you into my hand today, but I refused to lay my hand on Adonai’s anointed.
+26:24 See, just as your life was highly valued in my eyes today, so let my life be highly valued in Adonai’s eyes, and may He deliver me from all trouble.”
 26:25 Then Saul said to David, “Blessed are you, David my son! You will both do mightily and will surely prevail.” So David went his way, and Saul returned to his place.
 27:1 Then David said in his heart, “One day I’ll be swept away by the hand of Saul. There’s nothing better for me than to escape immediately to the land of the Philistines. Then Saul will give up searching for me in all the territories of Israel, so I’ll escape from his hand.”
 27:2 So David rose and crossed over, he and the 600 men that were with him, to Achish son of Maoch, king of Gath.
@@ -733,20 +734,20 @@
 28:3 Now Samuel had died, and all Israel had lamented him and buried him in Ramah, his hometown. Saul had removed from the land those who were mediums and spiritists.
 28:4 So the Philistines mustered and came and camped in Shunem; and Saul gathered all Israel together and they camped at Gilboa.
 28:5 Now when Saul saw the camp of the Philistines, he was afraid and his heart trembled greatly.
-28:6 When Saul inquired of </span><span class="it"><span class="sc"><span class="content">Adonai
+28:6 When Saul inquired of Adonai, Adonai did not answer, neither by dreams nor by Urim or prophets.
 28:7 Then Saul said to his courtiers, “Find me a woman who is a medium, so I may go to her and inquire through her.” So his courtiers said to him, “Behold, there is a woman that is a medium at En-dor.”
 28:8 So Saul disguised himself, put on other clothes, and went with two other men, and they reached the woman by night. Then he said, “Please conjure up for me a ghost—bring up for me the one I will name to you.”
 28:9 “Look, you know what Saul has done,” she said, “how he has cut off the mediums and spiritists from the land. So why then are you setting a trap for my life to get me killed?”
-28:10 Saul vowed to her by </span><span class="it"><span class="sc"><span class="content">Adonai
+28:10 Saul vowed to her by Adonai saying, “As Adonai lives, no punishment will come on you for this thing.”
 28:11 “Whom will I bring up for you?” the woman asked. “Bring me up Samuel,” he said.
 28:12 But when the woman saw Samuel, she cried out with a loud shriek. Then the woman spoke to Saul saying, “Why have you deceived me? You are Saul!”
 28:13 “Don’t be afraid!” the king said to her. “What do you see?” The woman said to Saul, “I see a godlike being coming up from the earth.”
 28:14 “What does he look like?” he asked her. “An old man is coming up, and he is wrapped with a robe,” she said. Then Saul knew that it was Samuel, so he bowed down and prostrated himself with his face to the ground.
 28:15 Samuel said to Saul, “Why have you disturbed me by bringing me up?” “I’m in great distress,” Saul answered. “The Philistines are waging war against me, and God has turned away from me—He doesn’t answer me anymore, whether by prophets or by dreams. So I called you up to tell me what I should do.”
-28:16 Samuel said, “So why ask me, since </span><span class="it"><span class="sc"><span class="content">Adonai
-28:17 Now </span><span class="it"><span class="sc"><span class="content">Adonai
-28:18 Since you did not obey the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-28:19 Moreover, </span><span class="it"><span class="sc"><span class="content">Adonai
+28:16 Samuel said, “So why ask me, since Adonai has turned away from you and become your adversary?
+28:17 Now Adonai has done for Himself just as He foretold through me—Adonai has torn the kingship out of your hand and has given it to another fellow, to David.
+28:18 Since you did not obey the voice of Adonai and did not execute His fierce wrath on Amalek, so Adonai has done this to you today.
+28:19 Moreover, Adonai will also give the Israelites who are with you into the hand of the Philistines. Tomorrow you and your sons will be with me! Yes, Adonai will give the army of Israel into the hand of the Philistines.”
 28:20 Then Saul immediately fell full length upon the ground, and became so terrified because of the words of Samuel that there was absolutely no strength in him, for he had eaten nothing all day and all night.
 28:21 Then the woman came to Saul and saw that he was so agitated, so she told him, “Behold, your maidservant obeyed you; I put my life in my hand by listening to your words, which you spoke to me.
 28:22 Please you too listen to the voice of your maidservant, and let me set a morsel of bread before you, so you can eat and have strength to go on your way.”
@@ -758,7 +759,7 @@
 29:3 Then the Philistine commanders said, “What are these Hebrews doing here?” Achish said to the Philistine commanders, “No! That’s David, servant of Israel’s King Saul—he’s been with me today for over a year, and I’ve not found any fault in him since the day he defected to me until now.”
 29:4 But the Philistine commanders got angry with him, and the Philistine commanders said to him, “Make this man go back—back to his place you assigned him. He must not go down with us to the battle, or in the battle he might become our adversary. For how would this fellow appease his lord? Wouldn’t it be with the heads of our men?
 29:5 Isn’t this one David, about whom they were singing in dances saying: ‘Saul has slain his thousands, and David his ten thousands?’”
-29:6 So Achish called David and said to him, “As </span><span class="it"><span class="sc"><span class="content">Adonai
+29:6 So Achish called David and said to him, “As Adonai lives, you have been upright and your going out and your coming in with me, in the army are pleasing in my eyes. For I never found fault with you since the day of your coming to me up to this day. However, the other lords do not approve of you.
 29:7 So now, turn around and go back in peace, and you won’t be doing anything to displease the Philistine lords.”
 29:8 “But what have I done?” David said to Achish. “What have you found in your servant from the day I have been before you to this day, that I shouldn’t go and fight against the enemies of my lord the king?”
 29:9 “I know,” Achish answered saying to David. “You are as pleasing in my eyes as an angel of God. Nevertheless, the Philistine commanders have said, ‘He must not go up with us to the battle.’
@@ -769,9 +770,9 @@
 30:3 So when David and his men came to the town, behold, it was burned with fire—and their wives, their sons and their daughters had been taken captives.
 30:4 Then David and the troops with him lifted up their voice and wept until they there was no more strength in them to weep.
 30:5 Even David’s two wives were taken captive—Ahinoam of Jezreel, and Abigail of Carmel, Nabal’s widow.
-30:6 So David was in a serious bind, for the troops were calling for his stoning, for all the troops were bitter of soul, every man for his sons and his daughters. But David strengthened himself in </span><span class="it"><span class="sc"><span class="content">Adonai
-30:7 Then David said to Abiathar the </span><span class="it"><span class="content">kohen
-30:8 David inquired of </span><span class="it"><span class="sc"><span class="content">Adonai
+30:6 So David was in a serious bind, for the troops were calling for his stoning, for all the troops were bitter of soul, every man for his sons and his daughters. But David strengthened himself in Adonai his God.
+30:7 Then David said to Abiathar the kohen son of Ahimelech, “Please bring me the ephod.” So Abiathar brought the ephod to David.
+30:8 David inquired of Adonai saying, “Should I pursue after this raiding band? Shall I overtake them?” He answered him, “Pursue! For you will surely overtake and you will surely rescue!”
 30:9 So David went, he and the 600 men with him, and came to the Wadi Besor, where those left behind remained—
 30:10 for 200 men stayed behind because they were too exhausted to cross Wadi Besor. Yet David pursued, he and the other 400 men.
 30:11 Then they found an Egyptian in the open field and brought him to David, gave him bread to eat and water to drink,
@@ -786,10 +787,10 @@
 30:20 David took all the flocks and the herd that they had driven ahead of the other cattle, so they said, “This is David’s spoil.”
 30:21 When David reached the 200 men—who had been too exhausted to follow David and were left at Wadi Besor—they came out to meet David and to meet the men with him, so David approached these people and greeted them.
 30:22 But all the wicked men and worthless fellows among those who accompanied David said, “Because they did not accompany us, we shouldn’t give them any of the spoil that we’ve recovered, except every man may take his wife and his children and leave.”
-30:23 “You must not do so, my brothers with what </span><span class="it"><span class="sc"><span class="content">Adonai
+30:23 “You must not do so, my brothers with what Adonai has given us,” David said. “It is He who has protected us and gave into our hands the raiding band that attacked us.
 30:24 Who would listen to you in this matter? The share of him who went down to the battle is to be the same as that of him who remained by the baggage. They will share alike.”
 30:25 So it has been from that day forward—he made it a statute and an ordinance for Israel to this day.
-30:26 When David arrived at Ziklag, he sent some of the spoil to the elders of Judah, to his friends, saying, “Look, a blessing for you from the spoil of the enemies of </span><span class="it"><span class="sc"><span class="content">Adonai
+30:26 When David arrived at Ziklag, he sent some of the spoil to the elders of Judah, to his friends, saying, “Look, a blessing for you from the spoil of the enemies of Adonai,”
 30:27 to those in Beth-el, Ramoth-Negev, Jattir,
 30:28 Aroer, Siphmoth, Eshtemoa,
 30:29 Racal, to those in the towns of Jerahmeelite, to those in the towns of the Kenites,
