@@ -409,17 +409,17 @@
 16:5 When King David arrived at Bahurim, behold, just coming out from there was a man of the family of the house of Saul—his name was Shimei son of Gera. As he came out, he kept on cursing
 16:6 and flinging stones at David and at all King David’s servants, while all the people and all the mighty men were at his right hand and on his left.
 16:7 Thus Shimei said as he cursed, “Get out, get out! The man of bloodshed, the good-for-nothing!
-16:8  has handed the kingdom over to your son Absalom—so see, your own evil has overtaken you, because you are a man of bloodshed.”
+16:8 Adonai has returned on you all the blood of Saul’s house, in whose place you’ve reigned. Adonai has handed the kingdom over to your son Absalom—so see, your own evil has overtaken you, because you are a man of bloodshed.”
 16:9 Then Abishai son of Zeruiah said to the king, “Why let this dead dog curse my lord the king? Let me go over now and take off his head!”
-16:10 But the king said, “What have I to do with you, sons of Zeruiah? If he curses, it’s because </span><span class="it"><span class="sc"><span class="content">Adonai
-16:11 Then David said to Abishai and to all his officials, “Look, my son who came from my own body is seeking my life—how much more this Benjamite? Leave him alone and let him curse, since </span><span class="it"><span class="sc"><span class="content">Adonai
-16:12 Perhaps </span><span class="it"><span class="sc"><span class="content">Adonai
+16:10 But the king said, “What have I to do with you, sons of Zeruiah? If he curses, it’s because Adonai has said to him, ‘Curse David!’ So who should say, ‘Why did you do so?’”
+16:11 Then David said to Abishai and to all his officials, “Look, my son who came from my own body is seeking my life—how much more this Benjamite? Leave him alone and let him curse, since Adonai has told him.
+16:12 Perhaps Adonai will look on my affliction and return good to me for his cursing this day.”
 16:13 So David and his men continued on the way, while Shimei kept walking alongside the hill parallel with him, cursing as he walked, casting stones at him and throwing dirt.
 16:14 Finally the king and all the people that were with him arrived weary, so he refreshed himself there.
 16:15 Meanwhile Absalom and all the people of the men of Israel arrived in Jerusalem. Ahithophel was with him.
 16:16 Now when David’s friend Hushai the Archite came to Absalom, Hushai said to Absalom, “Long live the king! Long live the king!”
 16:17 But Absalom said to Hushai, “Is this your loyalty to your friend? Why did you not go with your friend?”
-16:18 “No!” said Hushai to Absalom. “For the one whom </span><span class="it"><span class="sc"><span class="content">Adonai
+16:18 “No!” said Hushai to Absalom. “For the one whom Adonai has chosen—as well as these people, all the men of Israel—his I will be and with him I will stay.
 16:19 Besides, whom should I serve? Shouldn’t I be in the presence of his son? As I have served in your father’s presence, so I will be in your presence.”
 16:20 Then Absalom said to Ahithophel, “Give your counsel. What should we do?”
 16:21 So Ahithophel said to Absalom, “Go to your father’s concubines whom he has left to take care of the palace. Then all Israel will hear that you have made yourself abhorrent to your father and the hands of all who are with you will also be strengthened.”
@@ -438,8 +438,8 @@
 17:11 Instead, I counsel that all Israel be gathered altogether to you—from Dan to Beersheba, as abundant as the sand by the sea—and that you personally go into the battle.
 17:12 Then we will come upon him in one of the places where he can be found and we’ll fall upon him as dew falls on the ground. None will be left of all the men who are with him—not even one.
 17:13 Moreover if he withdraws into a city, then all Israel will bring ropes to that city and drag it into the valley until not even one small stone will be found there.”
-17:14 Then Absalom and all the men of Israel said, “The counsel of Hushai the Archite is better than the counsel of Ahithophel.” For </span><span class="it"><span class="sc"><span class="content">Adonai
-17:15 Then Hushai said to Zadok and Abiathar the </span><span class="it"><span class="content">kohanim
+17:14 Then Absalom and all the men of Israel said, “The counsel of Hushai the Archite is better than the counsel of Ahithophel.” For Adonai had ordained to thwart Ahithophel’s good counsel, so that Adonai might bring evil upon Absalom.
+17:15 Then Hushai said to Zadok and Abiathar the kohanim, “This and that is what Ahithophel counseled Absalom and the elders of Israel, and this and that is what I advised.
 17:16 Now therefore send word quickly and tell David saying, ‘Don’t spend the night at the fords in the wilderness but by all means, cross over or else the king and all the people with him may be swallowed up.’”
 17:17 Now Jonathan and Ahimaaz were staying at En-rogel, and a maidservant used to go and pass information along to them. Then they would go and inform King David for they could not be seen entering the city.
 17:18 But a lad did see them and informed Absalom. So the two of them left quickly and arrived at the house of a man in Bahurim. He had a well in his courtyard; so they went down into it.
@@ -469,10 +469,10 @@
 18:13 Otherwise, I would have betrayed his soul—and nothing stays hidden from the king—and you yourself would have stood aloof.”
 18:14 “I won’t wait for you!” Joab said. So he took three darts in his hand and thrust them through Absalom’s heart while he was yet alive in the midst of the oak.
 18:15 Then ten young men who were Joab’s armor-bearers surrounded Absalom, struck and finished him off.
-18:16 Then Joab blew the </span><span class="it"><span class="content">shofar
+18:16 Then Joab blew the shofar and the troops returned from pursuing Israel, for Joab held back the troops.
 18:17 They took Absalom and threw him into a deep pit in the forest and piled over him a very large heap of stones. Then all Israel fled, everyone to his tent.
 18:18 (Now Absalom, in his lifetime, had taken and set up for himself a pillar, which is in the King’s Valley, for he said, “I have no son to preserve the memory of my name.” So he called the pillar by his name and it has been called Absalom’s Monument to this day.)
-18:19 Then Ahimaaz son of Zadok said, “Let me now run and bring the king news that </span><span class="it"><span class="sc"><span class="content">Adonai
+18:19 Then Ahimaaz son of Zadok said, “Let me now run and bring the king news that Adonai has vindicated him against the hand of his enemies.”
 18:20 But Joab said to him, “You are not to be the bearer of news today. You may do it another day, but today you shall bear no news—for the king’s son is dead.”
 18:21 Then Joab said to the Cushite, “Go tell the king what you have seen.” So the Cushite bowed to Joab and took off running.
 18:22 But Ahimaaz son of Zadok once again said to Joab, “Whatever happens, please let me also run after the Cushite.” “Why should you run, my son,” Joab said, “since you would have no news worth telling?”
@@ -481,12 +481,11 @@
 18:25 The watchman cried out and told the king. The king said, “If he is alone, there is good news in his mouth.” So he came closer and closer.
 18:26 Then the watchman saw another man running, so the watchman called out to the gatekeeper and said, “Look, another man is running alone.” The king said, “He too is bringing good news.”
 18:27 Then the watchman said, “I can see that the running of the first one is like the running of Ahimaaz son of Zadok.” “This is a good man and he comes with good news,” the king replied.
-18:28 Then Ahimaaz called out and said to the king, “</span><span class="it"><span class="content">Shalom
+18:28 Then Ahimaaz called out and said to the king, “Shalom.” Then he prostrated himself before the king with his face to the ground and said, “Blessed be Adonai your God, who has given over the men who lifted up their hand against my lord the king.”
 18:29 Then the king asked, “Is it well with the young man Absalom?” Ahimaaz answered, “I saw a great tumult when the king’s servant Joab sent me, your servant, but I did not know what it was about.”
 18:30 “Step aside and stand here,” the king said. So he stepped aside and stood still.
-18:31 Then the Cushite arrived and said, “Let my lord the king receive good news for </span><span class="it"><span class="sc"><span class="content">Adonai
+18:31 Then the Cushite arrived and said, “Let my lord the king receive good news for Adonai has vindicated you today against all who rose up against you.”
 18:32 Then the king asked the Cushite, “Is it well with the young man Absalom?” The Cushite answered, “Let the enemies of my lord the king and all who rise up against you for evil be as that young man!”
-18:33
 19:1 The king was shaken. So he went up to the chamber over the gate and wept. As he walked he cried, “My son Absalom! O my son, my son Absalom! If only I had died instead of you! Absalom, my son, my son!”
 19:2 Then Joab was told, “Look, the king is weeping and mourning over Absalom!”
 19:3 So the victory that day was turned into mourning for all the troops, for the troops heard it said that day, “The king is grieving over his son.”
@@ -494,11 +493,11 @@
 19:5 The king covered his face and cried with a loud voice, “My son Absalom, O Absalom, my son, my son!”
 19:6 Then Joab came into the house to the king and said, “Today you have humiliated all your servants—who this day have saved your life, the lives of your sons and daughters, and the lives of your wives and the lives of your concubines—
 19:7 by loving those who hate you, and hating those who love you! For you have shown today that officers and officials are nothing to you. For today I realize that if Absalom were alive and all of us were dead, then it would have pleased you well.
-19:8 So now arise, go out, and speak to the heart of your servants! For I swear by </span><span class="it"><span class="sc"><span class="content">Adonai
+19:8 So now arise, go out, and speak to the heart of your servants! For I swear by Adonai that if you do not go out, not a single man will stay with you tonight, and that would be worse for you than all the evil that has befallen you from your youth until now.”
 19:9 So the king arose and sat in the gate. When they told all the troops saying, “See, the king is sitting at the gate,” all the troops presented themselves before the king. Meanwhile, Israel had fled each man to his tent.
 19:10 All the people throughout all the tribes of Israel were at strife saying, “The king delivered us from the hand of our enemies and he saved us from the hand of the Philistines. Yet now he had to flee from the land because of Absalom,
 19:11 but Absalom, whom we anointed over us, has died in battle. So why are we silent about restoring the king?”
-19:12 Then King David sent word to Zadok and Abiathar the </span><span class="it"><span class="content">kohanim
+19:12 Then King David sent word to Zadok and Abiathar the kohanim saying, “Speak to the elders of Judah saying, ‘Why should you be the last to bring the king back to his palace? The talk of all Israel had reached the king at his residence.
 19:13 ‘You are my kinsmen, my bone and my flesh! Why then should you be the last to bring back the king?’
 19:14 “Also say to Amasa, ‘Are you not my bone and my flesh? May God do so to me and even more if you do not become my army commander before me continually, in place of Joab!’”
 19:15 Thus he turned the heart of all the men of Judah as one man, and then they sent word to the king, “Come back, you and all your servants.”
@@ -508,16 +507,16 @@
 19:19 They ferried across the ford to bring the king’s household and they did whatever seemed good in his eyes. Now, Shimei son of Gera fell down before the king when he was crossing over the Jordan,
 19:20 so he implored the king, “Let my lord not hold me guilty, and not remember the iniquity that your servant committed on the day my lord the king left Jerusalem. Let the king not take it to his heart.
 19:21 For your servant knows that I have sinned. So behold, I have come today the first of all the house of Joseph to go down to meet my lord the king.”
-19:22 But Abishai son of Zeruiah answered and said, “Shouldn’t Shimei be put to death for this, because he cursed </span><span class="it"><span class="sc"><span class="content">Adonai
+19:22 But Abishai son of Zeruiah answered and said, “Shouldn’t Shimei be put to death for this, because he cursed Adonai’s anointed?”
 19:23 But David said, “What have I to do with you sons of Zeruiah that you should be my adversary today? Should any man be put to death in Israel this day? Don’t I know that today I am king over Israel?”
 19:24 Then the king said to Shimei, “You shall not die,” and the king swore it to him.
-19:25 Then Mephibosheth son of Saul came down to meet the king. Now he had neither dressed his feet nor trimmed his beard nor washed his clothes from the day the king departed until the day he came home in </span><span class="it"><span class="content">shalom
+19:25 Then Mephibosheth son of Saul came down to meet the king. Now he had neither dressed his feet nor trimmed his beard nor washed his clothes from the day the king departed until the day he came home in shalom.
 19:26 Now it came to pass when he came from Jerusalem to meet the king, the king asked him, “Why did you not go with me Mephibosheth?”
 19:27 “My lord the king, my own servant deceived me,” he answered. “For your servant had said, ‘I will saddle a donkey for myself, ride on it and go with the king,’ because your servant is lame.
 19:28 However, he has slandered your servant to my lord the king. But my lord the king is like an angel of God. So do what is good in your eyes.
 19:29 For all my father’s household deserved only death at the hand of my lord the king; yet you set your servant among those eating at your own table! What right do I have yet to cry to the king?”
 19:30 Then the king said to him, “Why do you still speak of your affairs? I have decreed, ‘You and Ziba shall divide the land.’”
-19:31 “So let him take all,” Mephibosheth replied to the king, “as long as my lord the king has come back to his own home in </span><span class="it"><span class="content">shalom
+19:31 “So let him take all,” Mephibosheth replied to the king, “as long as my lord the king has come back to his own home in shalom.”
 19:32 Then Barzillai the Gileadite came down from Rogelim, and he approached the Jordan with the king to escort him over the Jordan.
 19:33 Now Barzillai was a very aged man—80 years old—and he had provided for the king during his residence at Mahanaim, for he was a very wealthy man.
 19:34 The king said to Barzillai, “Cross over with me, and I will provide for you with me in Jerusalem.”
@@ -530,7 +529,8 @@
 19:41 Then the king crossed over to Gilgal, and Chimham and all the people of Judah crossed over with him, and also half the people of Israel escorted the king over.
 19:42 Then all the men of Israel came to the king and said to him, “Why did our brothers, the men of Judah, steal you away by escorting the king and his household over the Jordan, along with all David’s men that were with him?”
 19:43 Then all the men of Judah answered the men of Israel, “Because the king is our close relative. So why are you angry over this matter? Have we eaten at all at the king’s cost? Or has he given us any gifts?”
-20:1 Now a worthless fellow happened to be there, a Benjamite named Sheba son of Bichri. He blew the </span><span class="it"><span class="content">shofar
+19:44 Then the men of Israel answered the men of Judah and said, “We have ten shares in the king, so in David we have even more than you. Why then did you despise us? Weren’t we the first to speak of restoring our king?” Yet the words of the men of Judah were harsher than the words of the men of Israel.
+20:1 Now a worthless fellow happened to be there, a Benjamite named Sheba son of Bichri. He blew the shofar and said, “We have no portion in David, no inheritance in the son of Jesse! Every man to his tents, O Israel!”
 20:2 So all the men of Israel withdrew from following David and followed Sheba son of Bichri, but the men of Judah kept close to their king from the Jordan to Jerusalem.
 20:3 Now when David arrived at his palace in Jerusalem, the king took the ten women, the concubines whom he had left to take care of the palace, and put them in a guarded house. He provided for them but he did not cohabit with them. So they were confined until the day they died, living in widowhood.
 20:4 Then the king said to Amasa, “Summon to me the men of Judah within three days and be here yourself.”
@@ -541,21 +541,21 @@
 20:9 Then Joab said to Amasa, “Is it well with you my brother?” With his right hand Joab took Amasa by the beard to kiss him.
 20:10 But Amasa took no heed to the sword that was in Joab’s other hand. So he stabbed him with it in the groin and poured out his entrails to the ground, and did not strike him again, for he died. Then Joab and his brother Abishai pursued Sheba son of Bichri.
 20:11 Meanwhile, one of Joab’s young men stood over Amasa and said, “Whoever favors Joab and whoever is for David, let him follow Joab!”
-20:12 Yet Amasa lay wallowing in his blood in the midst of the highway. So when the man saw that all the people stood still, he dragged Amasa from the highway into the field and threw a garment over him because he saw that everyone passing by him paused. 
+20:12 Yet Amasa lay wallowing in his blood in the midst of the highway. So when the man saw that all the people stood still, he dragged Amasa from the highway into the field and threw a garment over him because he saw that everyone passing by him paused.
 20:13 Once he removed him from the highway, everyone passed on, following Joab to pursue Sheba son of Bichri.
 20:14 Now he went through all the tribes of Israel, to Abel and Beth-Maacah. All the Berites gathered together and indeed followed him.
 20:15 They came and besieged him in Abel of Beth-Maacah and cast up a siege ramp against the city. It stood against the outer fortification and all the people with Joab battered the wall in order to topple it.
 20:16 Then a wise woman cried out from the city, “Listen! Listen! Please tell Joab to come over here that I may speak with him.”
-20:17 When he approached her, the woman asked, “Are you Joab?” “I am,” he answered. Then she said to him, “Listen to the words of your handmaid.” “I’m listening,” he answered.
+20:17 When he approached her, the woman asked, “Are you Joab?” “I am,” he answered. Then she said to him, “Listen to the words of your handmaid.” “I’m listening,” he answered.
 20:18 Then she spoke up saying, “They used to say in old time, ‘They shall surely seek counsel at Abel and that’s how they settled any dispute.
-20:19 I am of those who are peaceable and faithful in Israel. Are you seeking to destroy a mother city in Israel? Why would you devour </span><span class="it"><span class="sc"><span class="content">Adonai
+20:19 I am of those who are peaceable and faithful in Israel. Are you seeking to destroy a mother city in Israel? Why would you devour Adonai’s inheritance?”
 20:20 Joab replied saying, “Never! Far be it from me that I would devour up or ruin.
 20:21 The matter is not so; but a fellow from the hill country of Ephraim, Sheba son of Bichri his name, has lifted up his hand against King David. Give him up alone and I will withdraw from the city.” So the woman replied to Joab, “Look here, his head will be thrown to you over the wall.”
-20:22 Then the woman approached all the people wisely. So they cut off the head of Sheba son of Bichri and threw it over to Joab. He then blew the </span><span class="it"><span class="content">shofar
+20:22 Then the woman approached all the people wisely. So they cut off the head of Sheba son of Bichri and threw it over to Joab. He then blew the shofar and they were dismissed from the city, each to his tent. Then Joab returned to Jerusalem to the king.
 20:23 Now Joab remained over all the army of Israel; Benaiah son of Jehoiada was over the Cherethites and the Pelethites;
 20:24 Adoram was over the forced labor; Jehoshaphat son of Ahilud was the recorder;
-20:25 Sheba was scribe; Zadok and Abiathar were </span><span class="it"><span class="content">kohanim
-20:26 and Ira the Jairite also was a </span><span class="it"><span class="content">kohen
+20:25 Sheba was scribe; Zadok and Abiathar were kohanim;
+20:26 and Ira the Jairite also was a kohen to David.
 21:1 Now there was a famine in the days of David for three years, year after year, so David sought the face of </span><span class="it"><span class="sc"><span class="content">Adonai
 21:2 So the king summoned the Gibeonites and spoke to them. (Now the Gibeonites were not of </span><span class="it"><span class="content">Bnei-Yisrael
 21:3 David asked the Gibeonites, “What should I do for you? How may I make atonement so that you would bless the inheritance of </span><span class="it"><span class="sc"><span class="content">Adonai
