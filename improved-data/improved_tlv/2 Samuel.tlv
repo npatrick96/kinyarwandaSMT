@@ -259,34 +259,34 @@
 11:22 So the messenger went and came and told David all that Joab had sent him to report.
 11:23 The messenger said to David, “The men prevailed against us and came out against us in the open field, but we drove them back as far as the entrance of the gate.
 11:24 Then the archers shot at your troops from the wall, and some of the king’s officers fell dead, and your servant Uriah the Hittite died, too.”
-11:25 Then David said to the messenger, “Thus you shall say to Joab, ‘Don’t let this matter upset you, for the sword devours one as well as another. Press your attack against the city and overthrow it!’ So tell him, </span><span class="it"><span class="content">chazak
+11:25 Then David said to the messenger, “Thus you shall say to Joab, ‘Don’t let this matter upset you, for the sword devours one as well as another. Press your attack against the city and overthrow it!’ So tell him, chazak!”
 11:26 Now when the wife of Uriah heard that her husband Uriah had died, she mourned over her husband.
-11:27 When the time of mourning was over, David sent someone who brought her to his palace. So she became his wife and bore him a son. But the thing David had done was evil in </span><span class="it"><span class="sc"><span class="content">Adonai
-12:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+11:27 When the time of mourning was over, David sent someone who brought her to his palace. So she became his wife and bore him a son. But the thing David had done was evil in Adonai’s eyes.
+12:1 Then Adonai sent Nathan to David. When he came to him, he said to him, “There were two men in the same city—one was rich and the other poor.
 12:2 The rich man had an exceedingly huge flock and herd,
 12:3 but the poor man had nothing at all, except one little ewe lamb, which he had bought and nourished, and it grew up together with him and his children. It ate from his own morsel and drank from his own cup, and nestled in his bosom, and it was to him like a daughter.
 12:4 Now a traveler came to the rich man, but he was unwilling to take one from his own flock or herd to prepare a meal for the wayfarer who had come to him. Rather, he took the poor man’s lamb and prepared it for the man that had come to him.”
-12:5 Then David’s anger blazed hot against the man and he said to Nathan, “As </span><span class="it"><span class="sc"><span class="content">Adonai
+12:5 Then David’s anger blazed hot against the man and he said to Nathan, “As Adonai lives, the man that did this deserves to die!
 12:6 So he must make restitution for the lamb fourfold, because he did such a thing and showed no pity.”
-12:7 Then Nathan said to David, “You are the man! Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+12:7 Then Nathan said to David, “You are the man! Thus says Adonai, God of Israel: It is I who anointed you king over Israel, and it is I who delivered you from the hand of Saul.
 12:8 I also gave you your master’s house and your master’s wives into your bosom, and I gave you the house of Israel and of Judah. Now if that were too little, then I would have added to you so much more.
-12:9 Why then have you despised the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+12:9 Why then have you despised the word of Adonai by doing such evil in My eyes? Uriah the Hittite you have struck down with the sword, and his wife you have taken to be your wife, and him you have slain with the sword of the children of Ammon
 12:10 So now the sword will never depart from your house—because you have despised Me and have taken the wife of Uriah the Hittite to be your wife.
-12:11 “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+12:11 “Thus says Adonai: Behold, I am going to raise up evil against you from your own household, and I will take your wives before your eyes and give them to your neighbor, and he will lie with your wives in the sight of this sun.
 12:12 Indeed you have done it secretly, but I will do this thing before all Israel and under the sun.”
-12:13 Then David said to Nathan, “I have sinned against </span><span class="it"><span class="sc"><span class="content">Adonai
-12:14 However, because by this deed you have made the enemies of </span><span class="it"><span class="sc"><span class="content">Adonai
-12:15 Then Nathan went to his house. Then </span><span class="it"><span class="sc"><span class="content">Adonai
+12:13 Then David said to Nathan, “I have sinned against Adonai.” Nathan replied to David, “Adonai also has made your sin pass away—you will not die.
+12:14 However, because by this deed you have made the enemies of Adonai greatly blaspheme, so even the child born to you will surely die.”
+12:15 Then Nathan went to his house. Then Adonai struck the child that Uriah’s wife bore to David and he became very sick.
 12:16 David therefore sought God for the child; and David fasted, and went in and lay all night on the floor.
 12:17 The elders of his household stood beside him in order to get him up from the floor but he was unwilling and would not eat food with them.
 12:18 Then it came to pass on the seventh day that the child died. But David’s servants were afraid to tell him that the child was dead, for they thought, “Behold, while the child was still alive, we spoke to him and he didn’t listen to our voice. So how can we tell him that the child is dead? He might do something terrible!”
 12:19 But when David saw that his servants were whispering together, David perceived that the child was dead. So David asked his servants, “Is the child dead?” “He is dead,” they said.
-12:20 Then David got up from the floor, washed and anointed himself, and changed his clothes. Then he went to the House of </span><span class="it"><span class="sc"><span class="content">Adonai
+12:20 Then David got up from the floor, washed and anointed himself, and changed his clothes. Then he went to the House of Adonai and worshipped. When he came back to his own palace, he asked for food, so they set food before him and he ate.
 12:21 His servants asked him, “What is this thing you have done? You fasted and wept while the child was still alive, but as soon as the child died, you got up and ate food.”
-12:22 He replied, “While the child was yet alive, I fasted and wept, for I thought, ‘Who knows? </span><span class="it"><span class="sc"><span class="content">Adonai
+12:22 He replied, “While the child was yet alive, I fasted and wept, for I thought, ‘Who knows? Adonai might be gracious to me and let the child live.’
 12:23 But now that he has died, why should I fast? Can I bring him back again? It is I who will be going to him, but he will never return to me.”
-12:24 Then David comforted his wife Bathsheba. He went to her and lay with her, and she bore a son and called his name Solomon. </span><span class="it"><span class="sc"><span class="content">Adonai
-12:25 and He sent word by the hand of the prophet Nathan. So he called his name Jedidiah, for </span><span class="it"><span class="sc"><span class="content">Adonai
+12:24 Then David comforted his wife Bathsheba. He went to her and lay with her, and she bore a son and called his name Solomon. Adonai loved him,
+12:25 and He sent word by the hand of the prophet Nathan. So he called his name Jedidiah, for Adonai’s sake.
 12:26 Now Joab attacked Rabbah of the children of Ammon and captured the royal city.
 12:27 So Joab sent messengers to David and said, “I have attacked Rabbah and captured the city’s water supply.
 12:28 So now gather the rest of the troops together, camp against the city and capture it. Otherwise I will capture the city myself and it will be named after me.”
@@ -342,13 +342,13 @@
 14:8 Then the king said to the woman, “Go to your home. I will issue an order concerning you.”
 14:9 The woman of Tekoa said to the king, “My lord the king, let the iniquity be on me and on my father’s house but may the king and his throne be innocent.”
 14:10 “Whoever speaks to you,” the king said, “bring him to me and he shall not touch you anymore.”
-14:11 “Please, let the king remember </span><span class="it"><span class="sc"><span class="content">Adonai
+14:11 “Please, let the king remember Adonai your God,” she said, “so that the avenger of blood does not destroy any more, so they won’t destroy my son.” “As Adonai lives,” he said, “not one hair of your son will fall to the ground.”
 14:12 Then the woman said, “Please, let your handmaid speak a word to my lord the king.” “Say on,” he said.
 14:13 The woman said, “Why have you devised a situation just like this against God’s people? For by speaking this word, the king is like the guilty one—by not bringing back the one he banished.
 14:14 For we will all surely die and be like water spilt on the ground that cannot be gathered up again. Yet God does not take away life but rather, He devises plans so that a banished person may not remain an outcast from Him.
 14:15 Now the reason I came to speak this word to my lord the king is because the people have made me afraid. So your handmaid thought, ‘I must speak to the king—perhaps the king will fulfill the request of his maidservant.
 14:16 Surely the king will hear, to deliver his maidservant from the hand of the one who would eliminate both me and my son together out of the inheritance of God.’
-14:17 Then your handmaid also thought, ‘Please let the word of my lord the king bring relief. For like an angel of God so is my lord the king to discern good and evil.’ So may </span><span class="it"><span class="sc"><span class="content">Adonai
+14:17 Then your handmaid also thought, ‘Please let the word of my lord the king bring relief. For like an angel of God so is my lord the king to discern good and evil.’ So may Adonai your God be with you.”
 14:18 Then the king answered and said to the woman, “Please do not hide anything from me concerning what I am about to ask you.” “Please let my lord the king speak,” the woman said.
 14:19 Then the king said, “Is the hand of Joab with you in all this?” “As your soul lives, my lord the king,” the woman answered, “no one can turn to the right or to the left from anything that my lord the king has spoken. Yes, your servant Joab was the one who commanded me and put all these words in the mouth of your handmaid.
 14:20 Your servant Joab did this thing in order to bring about a change in the situation. But my lord is wise—like the wisdom of an angel of God—to know all that goes on in the land.”
@@ -371,10 +371,10 @@
 15:4 Moreover, Absalom would say, “If only I were appointed judge in the land, then every man who has any suit or case would come to me, and I would get him justice!”
 15:5 Also, whenever anyone approached to bow to him, he would stretch his hand, take hold of him, and kiss him.
 15:6 So Absalom kept doing this to everyone of Israel who came to the king for judgment. Thus Absalom stole the hearts of the people of Israel.
-15:7 At the end of 40 years Absalom said to the king, “Please let me go to Hebron and pay my vow which I have vowed to </span><span class="it"><span class="sc"><span class="content">Adonai
-15:8 For your servant vowed a vow while I was still living at Geshur in Aram saying, ‘If </span><span class="it"><span class="sc"><span class="content">Adonai
-15:9 So the king said to him, “Go in </span><span class="it"><span class="content">shalom
-15:10 But Absalom sent spies to all the tribes of Israel to say, “As soon as you hear the sound of the </span><span class="it"><span class="content">shofar
+15:7 At the end of 40 years Absalom said to the king, “Please let me go to Hebron and pay my vow which I have vowed to Adonai.
+15:8 For your servant vowed a vow while I was still living at Geshur in Aram saying, ‘If Adonai will indeed bring me back to Jerusalem, then I will serve Adonai.’”
+15:9 So the king said to him, “Go in shalom.” Then he rose and went to Hebron.
+15:10 But Absalom sent spies to all the tribes of Israel to say, “As soon as you hear the sound of the shofar, then you are to say, ‘Absalom has become king in Hebron!’”
 15:11 Now 200 men from Jerusalem went with Absalom, who were invited and were going innocently, knowing nothing of the situation.
 15:12 Also Absalom sent for Ahithophel the Gilonite, David’s counselor from his town Giloh, while he was offering the sacrifices. So the conspiracy gained momentum for the people following Absalom continued to increase.
 15:13 Then a messenger came to David saying, “The hearts of the men of Israel are following Absalom.”
@@ -385,21 +385,21 @@
 15:18 All his servants passed on beside him: all the Cherethites, all the Pelethites and all the Gittites—600 men that had come after him from Gath—passed on before the king.
 15:19 Then the king said to Ittai the Gittite, “Why should you also go with us? Go back and stay with the king, for you are a foreigner and also an exile from your own place.
 15:20 Your arrival was only yesterday—should I make you wander around with us today, to go wherever I may go? Go back and take your kinsmen back with you. Kindness and truth be with you!”
-15:21 But Ittai answered the king and said, “As </span><span class="it"><span class="sc"><span class="content">Adonai
+15:21 But Ittai answered the king and said, “As Adonai lives, and as my lord the king lives, surely in whatever place my lord the king will be, whether for death or for life, there also will your servant be.”
 15:22 So David said to Ittai, “Go on and cross over.” So Ittai the Gittite passed on, with all his men and all the little children who were with him.
 15:23 While all the country was weeping with a loud voice, all the people were crossing over as the king was crossing over Kidron Valley. So all the people crossed over toward the road of the wilderness.
 15:24 Then behold, Zadok also came and all the Levites with him, carrying the ark of the covenant of God. They set down the ark of God, then Abiathar came up, until all the people had passed by, out of the city.
-15:25 But the king said to Zadok, “Return the ark of God to the city. If I find favor in </span><span class="it"><span class="sc"><span class="content">Adonai
+15:25 But the king said to Zadok, “Return the ark of God to the city. If I find favor in Adonai’s eyes, He will bring me back, and let me see it and His dwelling.
 15:26 But if He says thus, ‘I have no delight in you,’ here I am, let Him do to me as seems good in His eyes.”
-15:27 The king also said to Zadok the priest, “Do you not see? Return to the city in </span><span class="it"><span class="content">shalom
+15:27 The king also said to Zadok the priest, “Do you not see? Return to the city in shalom with your two sons with you, Ahimaaz your son and Jonathan son of Abiathar.
 15:28 See, I will wait at the fords of the wilderness, until word comes from you to inform me.”
 15:29 Therefore Zadok and Abiathar carried the ark of God back to Jerusalem, and they remained there.
 15:30 Then David continued to go up the ascent of the Mount of Olives, weeping as he ascended. He had his head covered and was walking barefoot. So all the people with him each covered his head as they went up, weeping as they ascended.
-15:31 Then someone told David saying, “Ahithophel is among the conspirators with Absalom.” So David prayed, “</span><span class="it"><span class="sc"><span class="content">Adonai
+15:31 Then someone told David saying, “Ahithophel is among the conspirators with Absalom.” So David prayed, “Adonai, please turn the counsel of Ahithophel into foolishness.”
 15:32 Then David went on until he reached the summit—where God was worshiped—and behold, Hushai the Archite met him with his coat rent and dust on his head.
 15:33 David said to him, “If you pass on with me then you will be a burden to me,
 15:34 but if you return to the city and say to Absalom, ‘I will be your servant, O king—I was your father’s servant from then, but now I will be your servant,’ then you can thwart Ahithophel’s counsel for me.
-15:35 Won’t you have with you Zadok and Abiathar the </span><span class="it"><span class="content">kohanim
+15:35 Won’t you have with you Zadok and Abiathar the kohanim there? So whatever you hear from the royal palace, you should report it to Zadok and Abiathar the kohanim.
 15:36 See, they have their two sons with them there, Zadok’s son Ahimaaz, and Abiathar’s son Jonathan—by them you can send to me everything you hear.”
 15:37 So David’s friend Hushai reached the city just as Absalom was entering Jerusalem.
 16:1 Now when David had passed a little beyond the summit, there was Ziba the servant of Mephibosheth to meet him with a pair of saddled donkeys, and on them 200 loaves of bread, 100 clusters of raisins, 100 fig cakes and a bottle of wine.
