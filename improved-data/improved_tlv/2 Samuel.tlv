@@ -556,15 +556,15 @@
 20:24 Adoram was over the forced labor; Jehoshaphat son of Ahilud was the recorder;
 20:25 Sheba was scribe; Zadok and Abiathar were kohanim;
 20:26 and Ira the Jairite also was a kohen to David.
-21:1 Now there was a famine in the days of David for three years, year after year, so David sought the face of </span><span class="it"><span class="sc"><span class="content">Adonai
-21:2 So the king summoned the Gibeonites and spoke to them. (Now the Gibeonites were not of </span><span class="it"><span class="content">Bnei-Yisrael
-21:3 David asked the Gibeonites, “What should I do for you? How may I make atonement so that you would bless the inheritance of </span><span class="it"><span class="sc"><span class="content">Adonai
+21:1 Now there was a famine in the days of David for three years, year after year, so David sought the face of Adonai. Adonai replied, “It is because of Saul and his bloody house, for he put the Gibeonites to death.”
+21:2 So the king summoned the Gibeonites and spoke to them. (Now the Gibeonites were not of Bnei-Yisrael but a remnant of the Amorites; however, Bnei-Yisrael had sworn a covenant with them. Yet Saul had tried to eradicate them in his zeal for Bnei-Yisrael and Judah.)
+21:3 David asked the Gibeonites, “What should I do for you? How may I make atonement so that you would bless the inheritance of Adonai?”
 21:4 The Gibeonites said to him, “It is not a matter of silver or gold between us and Saul or his house; nor is it our right to put any man to death in Israel.” “Whatever you say, I will do for you,” he said.
 21:5 Then they said to the king, “The man who consumed us and plotted against us to annihilate us from remaining in any of Israel’s territory,
-21:6 let seven men of his sons be given over to us and we will hang them up before </span><span class="it"><span class="sc"><span class="content">Adonai
-21:7 Now the king spared Mephibosheth, son of Jonathan son of Saul, because of </span><span class="it"><span class="sc"><span class="content">Adonai
+21:6 let seven men of his sons be given over to us and we will hang them up before Adonai at Gibeah of Saul, Adonai’s chosen.” “I will give them over,” the king said.
+21:7 Now the king spared Mephibosheth, son of Jonathan son of Saul, because of Adonai’s oath that was between them, between David and Jonathan son of Saul.
 21:8 But the king took the two sons of Rizpah daughter of Aiah, whom she bore to Saul—Armoni and Mephibosheth; also the five sons of Michal daughter of Saul, whom she bore to Adriel son of Barzillai the Meholathite,
-21:9 and he gave them into the hands of the Gibeonites. So they hanged them on the hill before </span><span class="it"><span class="sc"><span class="content">Adonai
+21:9 and he gave them into the hands of the Gibeonites. So they hanged them on the hill before Adonai, so that all seven fell together. They were put to death during the days of harvest, at the beginning of barley harvest.
 21:10 Then Rizpah daughter of Aiah took sackcloth and spread it on the rock for herself, from the beginning of harvest until the rain poured on them from the sky. She did not let the birds of the sky rest on them by day nor the beasts of the field by night.
 21:11 David was told what Rizpah daughter of Aiah, the concubine of Saul, had done.
 21:12 So David went and took the bones of Saul and the bones of his son Jonathan from the men of Jabesh-gilead, who had stolen them from the open square of Beth-shan, where the Philistines had hanged them on the day that the Philistines killed Saul in Gilboa.
@@ -578,38 +578,38 @@
 21:20 Once again there was war at Gath, where there was a champion that had on every hand six fingers and on every foot six toes— a total of 24, and he also was a descendant of the Rapha.
 21:21 When he taunted Israel, Jonathan son of David’s brother Shimea killed him.
 21:22 These four were born to the Rapha in Gath, and they fell by the hand of David and by the hand of his servants.
-22:1 David spoke to </span><span class="it"><span class="sc"><span class="content">Adonai
-22:2 He said: “</span><span class="it"><span class="sc"><span class="content">Adonai
+22:1 David spoke to Adonai the words of this song in the day that Adonai delivered him from the hand of all his enemies and from the hand of Saul.
+22:2 He said: “Adonai is my rock, my fortress and my deliverer.
 22:3 My God is my rock, in Him I take refuge, my shield, my horn of salvation, my stronghold and my refuge, my Savior—You save me from violence.
-22:4 I called upon </span><span class="it"><span class="sc"><span class="content">Adonai
+22:4 I called upon Adonai, worthy of praise, and I was rescued from my enemies.
 22:5 For waves of death encompassed me. Torrents of Belial overwhelmed me.
 22:6 Cords of death entangled me. Snares of death came before me.
-22:7 In my distress I called upon </span><span class="it"><span class="sc"><span class="content">Adonai
+22:7 In my distress I called upon Adonai, yes, I called to my God. From His Temple He heard my voice, my cry came into His ears.
 22:8 Then the earth rocked and quaked, the foundation of heaven trembled. They reeled because He was angry.
 22:9 Smoke rose from His nostrils and consuming fire from His mouth. Coals blazed from Him.
 22:10 He parted the heavens and came down, with thick darkness under His feet.
-22:11 He rode upon a </span><span class="it"><span class="content">cheruv
-22:12 He made darkness as a </span><span class="it"><span class="content">sukkah
+22:11 He rode upon a cheruv and flew. He was seen on the wings of the wind.
+22:12 He made darkness as a sukkah around Him— a mass of waters, thick clouds of the skies.
 22:13 Out of the brilliance before Him coals of fire flamed out.
-22:14  also thundered from heaven and Elyon gave forth His voice.
+22:14 Adonai also thundered from heaven and Elyon gave forth His voice.
 22:15 He shot arrows and scattered them, lightning bolts, and routed them.
-22:16 Then the ravines of the sea appeared, the foundations of the world were exposed by the rebuke of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:16 Then the ravines of the sea appeared, the foundations of the world were exposed by the rebuke of Adonai, at a blast of the breath of His nostrils.
 22:17 He reached down from on high and He took hold of me. He drew me out of mighty waters.
 22:18 He delivered me from my powerful enemy, from those who hated me— for they were much stronger than me.
-22:19 They came against me in the day of my calamity, but </span><span class="it"><span class="sc"><span class="content">Adonai
+22:19 They came against me in the day of my calamity, but Adonai was my support.
 22:20 He brought me out to a wide-open place. He rescued me since He delighted in me.
-22:21  rewarded me for my righteousness. For the cleanness of my hands He repaid me.
-22:22 For I kept the ways of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:21 Adonai rewarded me for my righteousness. For the cleanness of my hands He repaid me.
+22:22 For I kept the ways of Adonai, and did not turn wickedly from my God.
 22:23 For all His judgments are before me. As for His rulings, I do not turn away from them.
 22:24 I also had integrity with Him, and kept myself from my sin.
-22:25 So </span><span class="it"><span class="sc"><span class="content">Adonai
+22:25 So Adonai rewarded me for my righteousness, according to my cleanness in His eyes.
 22:26 With the loyal You deal loyally. With the blameless You are blameless.
 22:27 With the pure You show Yourself pure, but with the crooked You show Yourself shrewd.
 22:28 You save lowly people. But Your eyes are on the haughty— You will humble them.
-22:29 For You are my lamp, </span><span class="it"><span class="sc"><span class="content">Adonai
+22:29 For You are my lamp, Adonai. Adonai shines in my darkness.
 22:30 For with You I rush on a troop, with my God I can leap over a wall.
-22:31 As for God, His way is perfect. The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:32 For who is God, besides </span><span class="it"><span class="sc"><span class="content">Adonai
+22:31 As for God, His way is perfect. The word of Adonai is pure. He is a shield to all who take refuge in Him.
+22:32 For who is God, besides Adonai? and who is a Rock, besides our God?
 22:33 God is my strong fortress and He keeps my way blameless.
 22:34 He makes my legs like a deer and sets me on my heights.
 22:35 Who trains my hands for battle, so my arms can bend a bronze bow.
@@ -619,18 +619,18 @@
 22:39 I consumed them and crushed them till they cannot rise; yes, they fall beneath my feet.
 22:40 You girded me with strength for battle. You made those rising up against me bow down before me.
 22:41 You also made my enemies turn their backs to me. I cut off those who hate me.
-22:42 They looked, but there was none to save —to </span><span class="it"><span class="sc"><span class="content">Adonai
+22:42 They looked, but there was none to save —to Adonai, but He did not answer them.
 22:43 Then I beat them as the dust of the earth, I stamped and crushed them like mud of the streets.
 22:44 You free me from strifes of my people. You kept me as head of the nations— people I did not know are serving me.
 22:45 Children of foreigners cringe before me. As soon as they hear, they obey me.
 22:46 Children of foreigners lose heart and come trembling from their hideouts.
-22:47  lives! And blessed be my Rock! Exalted be God— the Rock of my salvation!
+22:47 Adonai lives! And blessed be my Rock! Exalted be God— the Rock of my salvation!
 22:48 God—He gives me vengeance and brings down peoples under me.
 22:49 He brings me out from my enemies. Indeed You lift me up above those who rise up against me. You deliver me from the violent man.
-22:50 Therefore I praise You among the nations, </span><span class="it"><span class="sc"><span class="content">Adonai
+22:50 Therefore I praise You among the nations, Adonai, and will sing praises to Your name.
 22:51 He is a tower of salvation to His king, He shows loyal love to His anointed— to David and to his seed, forever.
 23:1 Now these are the last words of David, the utterance of David son of Jesse, the utterance of the man raised on high, the anointed of the God of Jacob and the sweet singer of Israel:
-23:2 “The </span><span class="it"><span class="content">Ruach
+23:2 “The Ruach Adonai has spoken through me and His word is on my tongue.
 23:3 The God of Israel has said, the Rock of Israel has spoken to me, ‘He who rules over men righteously, he who rules in the fear of God—
 23:4 he is like the light of the morning when the sun rises, a cloudless morning of glistening as grass springs from the earth.’
 23:5 Is it not true that my house is with God? For He made an everlasting covenant with me, ordered and secured in all things. Will He not make all my salvation and every desire come to fruition?
@@ -638,14 +638,14 @@
 23:7 But the man who touches them must be armed with iron and the shaft of a spear. They must be completely burned up with fire on the spot.”
 23:8 These are the names of the mighty men whom David had: Josheb-basshebeth a Tahchemonite, chief of the captains—he wielded his spear against 800 and slew them in one encounter.
 23:9 Next to him was Eleazar son of Dodo son of an Ahohite, one of the three mighty men with David when they defied the Philistines who were gathered there to battle. The men of Israel retreated,
-23:10 but he stood his ground and struck down the Philistines until his hand became weary and stuck to the sword. So </span><span class="it"><span class="sc"><span class="content">Adonai
+23:10 but he stood his ground and struck down the Philistines until his hand became weary and stuck to the sword. So Adonai brought about a great victory that day, and the people returned after him only to strip the slain.
 23:11 Next to him was Shammah son of Agee the Hararite. Now the Philistines were assembled in formation where there was a plot of ground full of lentils, and the people fled from the Philistines.
-23:12 But he took his stand in the midst of the plot and defended it, and struck down the Philistines—so </span><span class="it"><span class="sc"><span class="content">Adonai
+23:12 But he took his stand in the midst of the plot and defended it, and struck down the Philistines—so Adonai brought about a great victory.
 23:13 Once the three of the thirty chiefs went down and came to David at the cave of Adullam during the harvest, while a troop of Philistines was camping in the Valley of Rephaim.
 23:14 David was then in the stronghold, while the garrison of the Philistines was in Bethlehem.
 23:15 David said longingly, ‘“Who would get me water to drink from the well which is by the gate in Bethlehem?’”
-23:16 So the three mighty men broke through the Philistine lines, drew water from the well of Bethlehem by the gate, took it and brought it to David. However, he would not drink it but poured it out to </span><span class="it"><span class="sc"><span class="content">Adonai
-23:17 and he said, “‘Far be it from me, </span><span class="it"><span class="sc"><span class="content">Adonai
+23:16 So the three mighty men broke through the Philistine lines, drew water from the well of Bethlehem by the gate, took it and brought it to David. However, he would not drink it but poured it out to Adonai
+23:17 and he said, “‘Far be it from me, Adonai, that I should do this—the blood of the men who went in jeopardy of their lives?’” So he would not drink it. These things the three mighty men did.
 23:18 Now Abishai, the brother of Joab, son of Zeruiah, was chief of the Thirty. Once he wielded his spear against 300 and killed them—he had a reputation among the Three.
 23:19 He was the most honored of the Thirty, so he was made their commander; however, he did not become one of the Three.
 23:20 Then there was Benaiah son of Jehoiada, son of a valiant man from Kabzeel, who had done mighty deeds. He killed the two from Ariel of Moab. Once, on a snowy day, he went down and killed a lion in the midst of a pit.
@@ -668,28 +668,28 @@
 23:37 Zelek the Ammonite, Naharai the Beerothite, armor-bearer to Joab son of Zeruiah,
 23:38 Ira the Ithrite, Gareb the Ithrite,
 23:39 and Uriah the Hittite—37 in all.
-24:1 Now the anger of </span><span class="it"><span class="sc"><span class="content">Adonai
+24:1 Now the anger of Adonai again flared up against Israel, so He incited David against them saying, “Go, number Israel and Judah.”
 24:2 The king said to Joab the commander of the army who was with him, “Go about now through all the tribes of Israel, from Dan to Beersheba, and number the people, so that I may know the sum of the people.”
-24:3 But Joab said to the king, “May </span><span class="it"><span class="sc"><span class="content">Adonai
+24:3 But Joab said to the king, “May Adonai your God add to the people a hundred times as many as they are, while the eyes of my lord the king looks on! But why does my lord the king desire such a thing?”
 24:4 Nevertheless, the king’s command to Joab and the army generals remained firm. So Joab and the army generals went out from the king’s presence to number the people of Israel.
 24:5 They crossed over the Jordan and camped in Aroer, on the right side of the town that is in the middle of the valley of Gad, and toward Jazer.
 24:6 Then they went to Gilead and to the land of Tahtim-hodshi. Then they came to Dan-jaan and round about to Sidon,
 24:7 and came to the stronghold of Tyre, to all the cities of the Hivites and the Canaanites. Then they went out to the south of Judah, to Beersheba.
 24:8 So when they had gone throughout all the land, they came back to Jerusalem at the end of nine months and 20 days.
 24:9 Joab reported the sum of the numbering of the people to the king: there were in Israel 800,000 valiant men who drew the sword and the men of Judah were 500,000 men.
-24:10 But David’s heart troubled him after he had numbered the people. So David prayed to </span><span class="it"><span class="sc"><span class="content">Adonai
-24:11 When David rose up in the morning, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-24:12 “Go and speak to David, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+24:10 But David’s heart troubled him after he had numbered the people. So David prayed to Adonai, “I have sinned greatly in what I have done! But now, Adonai, please take away the iniquity of Your servant, for I have acted very foolishly.”
+24:11 When David rose up in the morning, the word of Adonai came to the prophet Gad, David’s seer, saying:
+24:12 “Go and speak to David, thus says Adonai: ‘Three things I am proposing to you—choose one of them and I will bring it upon you.’”
 24:13 So Gad came to David and told him, saying to him, “Shall seven years of famine come on you in your land? Or will you flee from your adversary for three months while he is pursuing you? Or shall there be three days of pestilence in your land? Now consider and see what answer I should return to Him who sent me.”
-24:14 Then David said to Gad, “I am in a great distress. Let us now fall into the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
-24:15 So </span><span class="it"><span class="sc"><span class="content">Adonai
-24:16 When the angel stretched out his hand toward Jerusalem to destroy it, </span><span class="it"><span class="sc"><span class="content">Adonai
-24:17 When David saw the angel that was striking down the people, he spoke to </span><span class="it"><span class="sc"><span class="content">Adonai
-24:18 On that day Gad came to David and said to him, “Go up, set up an altar to </span><span class="it"><span class="sc"><span class="content">Adonai
-24:19 So David went up according to the word of Gad, as </span><span class="it"><span class="sc"><span class="content">Adonai
+24:14 Then David said to Gad, “I am in a great distress. Let us now fall into the hand of Adonai, for His mercies are great, and let me not fall into the hand of man.”
+24:15 So Adonai sent a pestilence upon Israel from the morning until the appointed time, so that 70,000 men of the people died from Dan to Beersheba.
+24:16 When the angel stretched out his hand toward Jerusalem to destroy it, Adonai relented from the calamity and said to the angel who was destroying the people, “Enough! Now withdraw your hand.” The angel of Adonai was then by the threshing floor of Araunah the Jebusite.
+24:17 When David saw the angel that was striking down the people, he spoke to Adonai saying, “Behold, it is I who have sinned, and it is I who have done wrong! But these sheep, what have they done? Please, let Your hand be against me and against my father’s house.”
+24:18 On that day Gad came to David and said to him, “Go up, set up an altar to Adonai on the threshing floor of Araunah the Jebusite.”
+24:19 So David went up according to the word of Gad, as Adonai had commanded.
 24:20 Now when Araunah looked down and saw the king and his courtiers crossing over toward him, Araunah went out and bowed down before the king with his face to the ground.
-24:21 Then Araunah said, “Why has my lord the king come to his servant?” David said, “To buy the threshing floor from you in order to build an altar to </span><span class="it"><span class="sc"><span class="content">Adonai
+24:21 Then Araunah said, “Why has my lord the king come to his servant?” David said, “To buy the threshing floor from you in order to build an altar to Adonai, so that the plague may be held back from the people.”
 24:22 Then Araunah said to David, “Let my lord the king take and offer up what seems good in his eyes. Look here, the oxen for the burnt offering, as well as the threshing sledges and the ox yokes for the wood.
-24:23 All this Araunah gives to the king.” Araunah said further to the king, “May </span><span class="it"><span class="sc"><span class="content">Adonai
-24:24 But the king said to Araunah, “No, but I will surely buy it from you at a price. I will not offer burnt offerings to </span><span class="it"><span class="sc"><span class="content">Adonai
-24:25 Then David built there an altar to </span><span class="it"><span class="sc"><span class="content">Adonai
+24:23 All this Araunah gives to the king.” Araunah said further to the king, “May Adonai your God accept you.”
+24:24 But the king said to Araunah, “No, but I will surely buy it from you at a price. I will not offer burnt offerings to Adonai my God that cost me nothing.” So David bought the threshing floor and the oxen for 50 shekels of silver.
+24:25 Then David built there an altar to Adonai, and offered burnt offerings and fellowship offerings. So Adonai was moved by prayer of entreaty for the land, and restrained the plague from Israel.
