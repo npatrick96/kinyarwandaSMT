@@ -564,125 +564,125 @@
 15:32 So there was war between Asa and King Baasa of Israel all their days.
 15:33 In the third year of King Asa of Judah, Baasa son of Ahijah began to reign over all Israel in Tirzah, reigning 24 years.
 15:34 He did what was evil in Adonai’s eyes, and followed the way of Jeroboam and the sin that he had made Israel commit.
-16:1 Now the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+16:1 Now the word of Adonai came to Jehu son of Hanani against Baasa, saying:
 16:2 “Since I raised you up from the dust and made you ruler over My people Israel, yet you have walked in the way of Jeroboam and have caused My people Israel to sin, vexing Me with their sins.
 16:3 I am about to consume Baasa and his house. I will make your house like the house of Jeroboam son of Nebat.
 16:4 Anyone of Baasa who dies in the city, the dogs will eat, and anyone of his who dies in the field, the birds of the sky will eat.”
 16:5 Now the rest of the deeds of Baasa and what he did and his might, are they not written in Book of the Chronicles of the Kings of Israel?
 16:6 Then Baasa slept with his fathers and was buried in Tirzah, and his son Elah became king in his place.
-16:7 But the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+16:7 But the word of Adonai had already come by the hand of the prophet Jehu son of Hanani against Baasa and against his house, because of all the evil he had done in Adonai’s eyes, vexing Him with the work of his hands, becoming thus like the house of Jeroboam which He struck down.
 16:8 In the twenty-sixth year of King Asa of Judah, Elah son of Baasa became king over Israel in Tirzah, and reigned two years.
 16:9 Then his servant Zimri, commander of half his chariotry, conspired against him while he was in Tirzah, making himself drunk in the house of Arza, who was in charge of the palace in Tirzah.
 16:10 Then Zimri went in, struck him down and killed him, in the twenty-seventh year of King Asa of Judah, and became king in his place.
 16:11 It came about when he became king, as soon as he sat on the throne, he struck down all the household of Baasa, leaving him not even one man, nor his kinsmen nor his friend.
-16:12 So Zimri destroyed the entire house of Baasa, according to the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-16:13 for all the sins of Baasa and the sins of his son Elah, which they committed and caused Israel to commit, vexing </span><span class="it"><span class="sc"><span class="content">Adonai
+16:12 So Zimri destroyed the entire house of Baasa, according to the word of Adonai which He spoke against Baasa by the prophet Jehu,
+16:13 for all the sins of Baasa and the sins of his son Elah, which they committed and caused Israel to commit, vexing Adonai God of Israel with their useless idols.
 16:14 Now the rest of the deeds of Elah and all that he did, are they not written in Book of the Chronicles of the Kings of Israel?
 16:15 In the twenty-seventh year of King Asa of Judah, Zimri reigned for seven days in Tirzah. Now the people were encamped against Gibbethon of the Philistines.
 16:16 When the people encamped heard it said, “Zimri has conspired and even struck down the king,” then all Israel proclaimed Omri—the commander of the army—king over Israel that very day in the camp.
 16:17 Then Omri and all Israel with him went up from Gibbethon and besieged Tirzah.
 16:18 When Zimri saw that the city was captured, he went into the citadel of the royal palace, and burned down the royal palace over him with fire. So he died too,
-16:19 because of the sins which he committed, doing what was evil in </span><span class="it"><span class="sc"><span class="content">Adonai
+16:19 because of the sins which he committed, doing what was evil in Adonai’s eyes, walking in the way of Jeroboam and in the sin which he had committed, making Israel sin.
 16:20 Now the rest of the deeds of Zimri and his treason that he did, are they not written in the Book of the Chronicles of the Kings of Israel?
 16:21 Then the people of Israel were divided into two factions: half of the people followed Tibni son of Ginath, making him king, while the other half followed Omri.
 16:22 But the people following Omri prevailed against the people following Tibni son of Ginath. Tibni died, and Omri became king.
 16:23 In the thirty-first year of King Asa of Judah, Omri began to reign over Israel, and reigned 12 years, six years in Tirzah.
 16:24 Then he bought the hill of Samaria from Shemer for two talents of silver, and built a city on the hill. He named the city that he built Samaria, based on the name Shemer, the owner of the hill.
-16:25 But Omri did what was evil in </span><span class="it"><span class="sc"><span class="content">Adonai
-16:26 For he walked in all the ways of Jeroboam son of Nebat and in the sins that he had caused Israel to commit, vexing </span><span class="it"><span class="sc"><span class="content">Adonai
+16:25 But Omri did what was evil in Adonai’s eyes, and acted more wickedly than all who were before him.
+16:26 For he walked in all the ways of Jeroboam son of Nebat and in the sins that he had caused Israel to commit, vexing Adonai God of Israel, with their useless idols.
 16:27 Now the rest of the deeds of Omri that he did and the valiant deeds that he did, are they not written in the Book of the Chronicles of the Kings of Israel?
 16:28 So Omri slept with his fathers and was buried in Samaria. Then his son Ahab became king in his place.
 16:29 In the thirty-eighth year of King Asa of Judah, Ahab son of Omri began to reign over Israel; and Ahab son of Omri reigned over Israel in Samaria 22 years.
-16:30 But Ahab son of Omri did what was evil in </span><span class="it"><span class="sc"><span class="content">Adonai
+16:30 But Ahab son of Omri did what was evil in Adonai’s eyes, more than all who were before him.
 16:31 Now, as if it was a trifling thing to walk in the sins of Jeroboam son of Nebat, he also took as wife Jezebel the daughter of King Ethbaal of the Sidonians, and went and served Baal and worshipped him.
 16:32 He also erected an altar for Baal in the temple of Baal that he had built in Samaria.
-16:33 Also Ahab made the Asherah pole. So Ahab did yet more to provoke the </span><span class="it"><span class="sc"><span class="content">Adonai
-16:34 During his days, Hiel of Bethel rebuilt Jericho. At the cost of Abiram his firstborn, he laid its foundation, and at the cost of his youngest son Segub, he set up its gates—according to the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-17:1 Now Elijah the Tishbite, one of the settlers of Gilead, said to Ahab: “As </span><span class="it"><span class="sc"><span class="content">Adonai
-17:2 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+16:33 Also Ahab made the Asherah pole. So Ahab did yet more to provoke the Adonai God of Israel than all the kings of Israel who were before him.
+16:34 During his days, Hiel of Bethel rebuilt Jericho. At the cost of Abiram his firstborn, he laid its foundation, and at the cost of his youngest son Segub, he set up its gates—according to the word of Adonai, which He had spoken through Joshua son of Nun.
+17:1 Now Elijah the Tishbite, one of the settlers of Gilead, said to Ahab: “As Adonai God of Israel lives, before whom I stand, there shall be no dew or rain these years, except at my word.”
+17:2 Then the word of Adonai came to him saying:
 17:3 “Leave this place, turn eastward, and hide yourself by the Wadi Cherith, east of the Jordan.
 17:4 It will come about that you will drink from the wadi. I have also commanded the ravens to feed you there.”
-17:5 So he went and did according to the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+17:5 So he went and did according to the word of Adonai—he went and lived by the Wadi Cherith, which is east of the Jordan.
 17:6 The ravens kept bringing him bread and meat in the morning and bread and meat in the evening, and he drank from the wadi.
 17:7 Then it came to pass after a while that the wadi dried up, because there was no rain in the land.
-17:8 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+17:8 Then the word of Adonai came to him saying:
 17:9 “Arise, go to Zarephath of Sidon and stay there. I have just commanded a widow there to provide for you.”
 17:10 So he arose and went to Zarephath. Now when he came to the town gate, to his surprise, a widow was there gathering sticks. So he called her and said, “Please bring a little water in a jar that I may drink.”
 17:11 As she was going to fetch it, he called her and said, “Please bring me a morsel of bread in your hand.”
-17:12 So she said, “As </span><span class="it"><span class="sc"><span class="content">Adonai
+17:12 So she said, “As Adonai your God lives, I have nothing baked, only a handful of flour in the jar, and a little oil in the jug. Now look, I am gathering a couple of sticks, so that I may go in and prepare it for me and my son, that we may eat it and die.”
 17:13 Elijah said to her, “Fear not! Go and do as you said, but first make me a little cake from what you have there. Bring it out to me and afterwards, make some for you and for your son.
-17:14 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+17:14 For thus says Adonai God of Israel, ‘The jar of flour shall not be exhausted nor shall the jug of oil be empty until the day Adonai sends rain on the land.’”
 17:15 So she went and did according to the word of Elijah—and she and he, and her household ate for many days.
-17:16 The jar of flour was not exhausted, nor did the jug of oil become empty, according to the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+17:16 The jar of flour was not exhausted, nor did the jug of oil become empty, according to the word of Adonai which He spoke through Elijah.
 17:17 After these things, it came to pass that the son of the woman, the mistress of the house fell sick, and his sickness was getting much worse until he had no breath left in him.
 17:18 So she said to Elijah, “What do I have to do with you, man of God? Have you come to me to remind me of my sin and kill my son?”
 17:19 He said to her, “Give me your son.” Then he took him from her arms, carried him up to the upper room where he was staying and laid him on his own bed.
-17:20 He cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-17:21 Then he stretched himself upon the child three times. He cried out to </span><span class="it"><span class="sc"><span class="content">Adonai
-17:22  listened to the cry of Elijah, so the soul of the child came back into his body and he was revived.
+17:20 He cried out to Adonai and said, “Adonai my God, have You brought such evil even on the widow with whom I am staying, by causing her son to die?”
+17:21 Then he stretched himself upon the child three times. He cried out to Adonai and said, “Adonai my God, please let this child’s soul come back into his body!”
+17:22 Adonai listened to the cry of Elijah, so the soul of the child came back into his body and he was revived.
 17:23 Then Elijah took the child and brought him down from the upper room into the house, and gave him to his mother. Elijah said, “See! Your son is alive.”
 17:24 Then the woman said to Elijah, “Now I know that you are a man of God, and that the word in your mouth is truth.”
-18:1 Now it was after many days that the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+18:1 Now it was after many days that the word of Adonai came to Elijah in the third year saying, “Go, show yourself to Ahab; then I will send rain on the land.
 18:2 So Elijah went to show himself to Ahab. Now the famine was severe in Samaria.
-18:3 Ahab summoned Obadiah who was the steward of the palace. Now Obadiah feared </span><span class="it"><span class="sc"><span class="content">Adonai
-18:4 for when Jezebel was cutting off the prophets of </span><span class="it"><span class="sc"><span class="content">Adonai
+18:3 Ahab summoned Obadiah who was the steward of the palace. Now Obadiah feared Adonai greatly—
+18:4 for when Jezebel was cutting off the prophets of Adonai, Obadiah took 100 prophets, hid them 50 to a cave, and provided them with bread and water.
 18:5 Then Ahab said to Obadiah, “Go through the land to all the springs of water and to all the wadis. Perhaps we may find grass and so keep the horses and mules alive and not lose all the animals.”
 18:6 So they divided the land between them to explore it—Ahab went one way by himself while Obadiah went another way by himself.
 18:7 As Obadiah was on the road, all of a sudden, Elijah met him. When he recognized him, he fell on his face and said, “Is it you, my lord Elijah?”
 18:8 “It is I,” he answered him. Go tell your lord, ‘Look, Elijah is here!”
 18:9 “How have I sinned,” he replied, “that you are giving your servant into the hand of Ahab, to put me to death?
-18:10 As </span><span class="it"><span class="sc"><span class="content">Adonai
+18:10 As Adonai your God lives, there is no nation or kingdom where my master has not sent to search for you; and when they said, ‘He is not here,’ he made that kingdom or nation swear that they could not find you.
 18:11 “Now you’re saying, ‘Go tell your lord, “Look, Elijah is here!”’
-18:12 But as soon as I leave you, the </span><span class="it"><span class="content">Ruach
-18:13 Wasn’t my lord told what I did when Jezebel slaughtered the prophets of </span><span class="it"><span class="sc"><span class="content">Adonai
+18:12 But as soon as I leave you, the Ruach Adonai may carry you off where I wouldn’t know. Then, when I come and tell Ahab and he can’t find you, he’ll kill me! Now I, your servant, have feared Adonai since my youth.
+18:13 Wasn’t my lord told what I did when Jezebel slaughtered the prophets of Adonai—how I hid 100 of Adonai’s prophets, 50 to a cave and provided them with bread and water?
 18:14 So now you say, ‘Go tell your lord, “Look, Elijah is here!’” He’ll kill me!”
-18:15 Then Elijah said, “As </span><span class="it"><span class="sc"><span class="content">Adonai
+18:15 Then Elijah said, “As Adonai-Tzva’ot lives, before whom I stand, I will surely show myself to him today.”
 18:16 So Obadiah went to meet Ahab and told him; then, Ahab went to meet Elijah.
 18:17 Now when Ahab saw Elijah, Ahab said to him, “Is it you, the one who causes trouble for Israel?”
-18:18 But he answered, “I have not troubled Israel. Rather, it is you and your father’s house—by forsaking the </span><span class="it"><span class="content">mitzvot
+18:18 But he answered, “I have not troubled Israel. Rather, it is you and your father’s house—by forsaking the mitzvot of Adonai and going after the Baalim.
 18:19 Now then, send and gather to me all Israel at Mount Carmel, together with the 450 prophets of Baal and the 400 prophets of Asherah who eat at Jezebel’s table.”
 18:20 So Ahab sent word to all the children of Israel and gathered the prophets together at Mount Carmel.
-18:21 Then Elijah approached all the people and said, “How long will you waver between two opinions? If </span><span class="it"><span class="sc"><span class="content">Adonai
-18:22 Then Elijah said to the people, “I am the only prophet of </span><span class="it"><span class="sc"><span class="content">Adonai
+18:21 Then Elijah approached all the people and said, “How long will you waver between two opinions? If Adonai is God, follow Him; but if Baal is, follow him.” But the people did not answer him, not even a word.
+18:22 Then Elijah said to the people, “I am the only prophet of Adonai left, but Baal’s prophets are 450 men.
 18:23 Now let them give us two young bulls. Let them choose one bull for themselves, cut it into pieces, lay it on the wood, and put no fire underneath, while I prepare the other bull, lay it on the wood, and put no fire underneath.
-18:24 Then you will call on the name of your god, and then, I will call on the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+18:24 Then you will call on the name of your god, and then, I will call on the Name of Adonai. The God who answers with fire, He is God.” All the people responded and said, “It’s a good thing.”
 18:25 Then Elijah said to the prophets of Baal, “Choose one bull for yourselves and prepare it first—since you are so many. Then call on the name of your god, but put no fire underneath.”
 18:26 So they took the bull that he gave them, prepared it, and called on the name of Baal from morning till noon, crying, “O Baal, answer us!” But there was no voice—no one was answering. They also danced leaping around the altar that was made.
 18:27 Now when it was about noon, Elijah mocked them and said, “Shout louder! After all, he is a god! Maybe he’s deep in thought, or he’s relieving himself, or he’s off on a journey, or perhaps he’s asleep and must wake up!”
 18:28 So they shouted even louder and cut themselves with swords and spears, as was their custom, until the blood gushed over them.
 18:29 When midday was past, they kept prophesying ecstatically until the time of offering up the evening sacrifice. But there was no voice, no one answering, no one paying attention.
-18:30 Then Elijah said to all the people, “Come near to me.” So all the people came closer to him. Then he repaired the damaged altar of </span><span class="it"><span class="sc"><span class="content">Adonai
-18:31 Elijah took twelve stones—like the number of the tribes of the sons of Jacob, to whom the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-18:32 and with the stones he built an altar in the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+18:30 Then Elijah said to all the people, “Come near to me.” So all the people came closer to him. Then he repaired the damaged altar of Adonai.
+18:31 Elijah took twelve stones—like the number of the tribes of the sons of Jacob, to whom the word of Adonai had come saying, “Israel shall be your name”—
+18:32 and with the stones he built an altar in the Name of Adonai. Then he made a trench around the altar, large enough to contain two measures of seed.
 18:33 Then he put the wood in order, cut the bull in pieces and laid it on the wood.
 18:34 Then he said, “Fill four jars with water and pour it on the burnt offering and on the wood.” Then he said, “A second time!” and they did it a second time. Then he said, “A third time!” and they did it a third time.
 18:35 So the water ran around the altar and he also filled the trench with water.
-18:36 Now it was at the time of offering up the evening sacrifice that Elijah the prophet came near and said, “</span><span class="it"><span class="sc"><span class="content">Adonai
-18:37 Answer me, </span><span class="it"><span class="sc"><span class="content">Adonai
-18:38 Then the fire of </span><span class="it"><span class="sc"><span class="content">Adonai
-18:39 When all the people saw it, they fell on their faces, and they said, “</span><span class="it"><span class="sc"><span class="content">Adonai
+18:36 Now it was at the time of offering up the evening sacrifice that Elijah the prophet came near and said, “Adonai, God of Abraham, Isaac and Israel, let it be known today that You are God in Israel, that I am Your servant, and that I have done all these things at Your word.
+18:37 Answer me, Adonai, answer me, so that these people may know that You, Adonai, are God, and that You have turned their heart back again.”
+18:38 Then the fire of Adonai fell and consumed the burnt offering—and the wood, the stones and the dust—and licked up the water that was in the trench.
+18:39 When all the people saw it, they fell on their faces, and they said, “Adonai, He is God! Adonai, He is God!”
 18:40 Then Elijah said to them, “Seize the prophets of Baal! Let not a single one of them escape.” So they seized them; and Elijah brought them down to the Wadi Kishon and slew them there.
 18:41 Then Elijah said to Ahab, “Go up, eat and drink, for there’s the sound of rain.”
 18:42 So Ahab went up to eat and drink. But Elijah went up to the top of Carmel, crouched on the ground and put his face between his knees.
 18:43 Then he said to his servant, “Go up now, look toward the sea.” So he went up, looked, and said, “There’s nothing.” Then he said, “Go back”—seven times—
 18:44 and it was the seventh time that he said, “Look! A cloud as small as a man’s hand is rising from the sea.” Then he said, “Go up, say to Ahab, ‘Harness your chariot and go down before the rain stops you.’”
 18:45 In a little while the sky grew black with clouds and wind, and there was a heavy rain. Ahab mounted and rode, and headed to Jezreel.
-18:46 Now the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
+18:46 Now the hand of Adonai was on Elijah, so he girded up his loins and outran Ahab to the entrance of Jezreel.
 19:1 Then Ahab told Jezebel all that Elijah had done and how he had slain all the prophets with the sword.
 19:2 Then Jezebel sent a messenger to Elijah saying, “So let the gods do to me and worse if by this time tomorrow I don’t make your life like the life of one of them.”
 19:3 Frightened, he got up and ran for his life. When he came to Beersheba, which belongs to Judah, he left his servant there.
-19:4 But he himself went a day’s journey into the wilderness, and came and sat down under a broom bush. He prayed that he might die. “It’s too much!” he said. “Now, </span><span class="it"><span class="sc"><span class="content">Adonai
+19:4 But he himself went a day’s journey into the wilderness, and came and sat down under a broom bush. He prayed that he might die. “It’s too much!” he said. “Now, Adonai, take my life! For I’m no better than my fathers.”
 19:5 Then he lay down and slept under the broom bush. Then behold, an angel touched him, and said to him, “Get up, and eat.”
 19:6 So he looked, and to his surprise, there by his head was a cake baked on the hot stones and a jar of water. So he ate and drank, and lay down again.
-19:7 Then the angel of </span><span class="it"><span class="sc"><span class="content">Adonai
+19:7 Then the angel of Adonai came again a second time, touched him and said. “Get up and eat, because the journey is too much for you.”
 19:8 So he arose and ate and drank, and in the strength of that meal forty days and forty nights went to Horeb, the mountain of God.
-19:9 When he arrived there at the cave, he spent the night there. Then behold, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-19:10 “I have been very zealous for </span><span class="it"><span class="sc"><span class="content">Adonai
-19:11 Then He said, “Come out and stand on the mount before </span><span class="it"><span class="sc"><span class="content">Adonai
-19:12 After the earthquake a fire, but </span><span class="it"><span class="sc"><span class="content">Adonai
+19:9 When he arrived there at the cave, he spent the night there. Then behold, the word of Adonai came to him, and He said to him, “What are you doing here, Elijah?”
+19:10 “I have been very zealous for Adonai-Tzva’ot,” he said, “for the children of Israel have forsaken Your covenant, torn down Your altars and slain Your prophets with the sword—and I alone am left, and they are seeking my life, to take it!”
+19:11 Then He said, “Come out and stand on the mount before Adonai.” Behold, Adonai was passing by—a great and mighty wind was tearing at the mountains and shattering cliffs before Adonai. But Adonai was not in the wind. After the wind there was an earthquake, but Adonai was not in the earthquake.
+19:12 After the earthquake a fire, but Adonai was not in the fire. After the fire there was a soft whisper of a voice.
 19:13 As soon as Elijah heard it, he wrapped his face in his mantle, went out and stood at the entrance of the cave. Then all of a sudden, a voice addressed him and said, “What are you doing here, Elijah?”
-19:14 “I have been very zealous for </span><span class="it"><span class="sc"><span class="content">Adonai
-19:15 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+19:14 “I have been very zealous for Adonai Tzva’ot,” he said, “for the children of Israel have forsaken Your covenant, torn down Your altars, and slain Your prophets with the sword—and I alone am left, and they are seeking to take my life!”
+19:15 Then Adonai said to him, “Go, return on your way to the wilderness of Damascus, and when you get there, anoint Hazael king over Aram,
 19:16 and anoint Jehu son of Nimshi king over Israel, and anoint Elisha son of Shaphat of Abel-meholah as prophet in your place.
 19:17 It shall come to pass that whoever escapes from the sword of Hazael, Jehu will slay; and whoever escapes from the sword of Jehu, Elisha will slay.
 19:18 Yet I have preserved seven thousand in Israel whose knees have not bowed to Baal and whose mouth has not kissed him.”
@@ -701,8 +701,8 @@
 20:10 Then Ben-Hadad sent word to him again saying, “May the gods do so to me and even more, if the dust of Samaria will suffice for handfuls for all the people at my feet.”
 20:11 The king of Israel answered and said, “Tell him: ‘Let not the one who puts on his armor boast like the one who takes it off.”
 20:12 On hearing this reply—while he and the other kings were drinking in the booths—he said to his servants, “Take your positions.” So they stationed themselves against the city.
-20:13 Then behold, a prophet approached King Ahab of Israel and said, “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-20:14 Ahab asked, “By whom?” He said, “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+20:13 Then behold, a prophet approached King Ahab of Israel and said, “Thus says Adonai: Have you seen all this great multitude? Behold, I will deliver it into your hand this day, and you will know that I am Adonai.”
+20:14 Ahab asked, “By whom?” He said, “Thus says Adonai: By the young men of the rulers of the provinces.” Then he asked, “Who should begin the battle?” “You!” he answered.
 20:15 So he mustered the young men of the rulers of the provinces. There were 232. After them he mustered all the people of all the children of Israel, 7,000.
 20:16 They marched out at noon, while Ben-Hadad was drinking himself drunk in the booths—he and the 32 kings allied with him.
 20:17 The young men of the rulers of the provinces marched out first. Ben-Hadad sent out scouts, who reported to him saying, “There are men coming out from Samaria.”
@@ -716,25 +716,25 @@
 20:25 Then muster an army like the army that you lost—horse for horse and chariot for chariot—and let’s fight against them in the plain, and surely we’ll be stronger than them!” He listened to their advice and acted accordingly.
 20:26 It came about at the turn of the year that Ben-Hadad mustered the Arameans and marched up to Aphek, to fight against Israel.
 20:27 Now the children of Israel were mustered, given provisions, and marched against them. But when the children of Israel encamped before them, they looked like two little flocks of goats while the Arameans covered the land.
-20:28 Then a man of God approached the king of Israel and spoke to him saying, “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+20:28 Then a man of God approached the king of Israel and spoke to him saying, “Thus says Adonai: Because the Arameans have said, ‘Adonai is a God of the mountains, but He is not a God of the valleys,’ therefore I will deliver all this great multitude into your hand, and you shall know that I am Adonai.”
 20:29 So they encamped one over against the other seven days. On the seventh day the battle was joined, and the children of Israel struck down 100,000 of the Aramean foot soldiers in a single day.
 20:30 The rest fled to Aphek into the city and the wall fell upon 27,000 men that were left. But Ben-Hadad fled into the city, into an inner chamber.
 20:31 His officials said to him, “Look now, we have heard that the kings of the house of Israel are merciful kings. Please let’s put sackcloth on our loins and ropes on our heads, and surrender to the king of Israel. Perhaps he will spare your life.”
 20:32 So they girded sackcloth on their loins, put ropes on their heads, came to the king of Israel and said, “Your servant Ben-Hadad says: ‘Please let me live.’” He replied, “Is he still alive? He is my brother.”
 20:33 The men took it as a good sign and were quick to catch on, so they said, “Yes, Ben-Hadad is your brother.” “Go, bring him,” he said. So Ben-Hadad came out to him and he took him up into his chariot.
 20:34 Then he said to him, “The cities which my father took from your father I will give back, and you may set up markets for yourself in Damascus, as my father did in Samaria.” “Then I will let you go with this covenant.” So he made a covenant with him and let him go.
-20:35 Now a certain man of the sons of the prophets said to his fellow by the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-20:36 Then he said to him, “Because you did not obey the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
+20:35 Now a certain man of the sons of the prophets said to his fellow by the word of Adonai, “Strike me please!” But the man refused to strike him.
+20:36 Then he said to him, “Because you did not obey the voice of Adonai, behold, as soon as you leave me, a lion shall kill you.” As soon as he left him, a lion found him and killed him.
 20:37 Then he found another man, and said, “Strike me please!” So the man struck him and wounded him.
 20:38 Then the prophet left and waited for the king by the road, disguising himself with a headband over his eyes.
 20:39 As the king was passing by, he cried to the king and said, “Your servant went out into the midst of the battle, and behold, a man turned aside and brought another man to me and said, ‘Guard this man! If by any means he is missing, then your life will be for his life, or else you will weigh out a talent of silver.’
 20:40 Then as your servant was busy here and there, he was gone.” The king of Israel said to him, “So will your sentence be—you yourself have decided it.”
 20:41 Then he quickly took the headband away from his eyes, and the king of Israel recognized him as one of the prophets.
-20:42 Then he said to him, “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+20:42 Then he said to him, “Thus says Adonai: ‘Because you have released out of your hand the man whom I had devoted to destruction, therefore your life will be in place of his life and your people in place of his people.’”
 20:43 Then the king of Israel went home to Samaria sullen and resentful.
 21:1 Now it came about after these things that Naboth the Jezreelite had a vineyard in Jezreel, next to the palace of King Ahab of Samaria.
 21:2 Ahab spoke to Naboth saying, “Give me your vineyard, so I may have it for a garden of herbs, since it’s right next to my house. I’ll give you a better vineyard than it in exchange, or if it seems better to you, I’ll give you its price in money.”
-21:3 But Naboth said to Ahab, “</span><span class="it"><span class="sc"><span class="content">Adonai
+21:3 But Naboth said to Ahab, “Adonai forbid that I should give you the inheritance of my fathers.”
 21:4 So Ahab went into his house sullen and resentful because of the word which Naboth the Jezreelite had spoken to him, when he said, “I will not give you the inheritance of my fathers.” He lay down on his bed, turned away his face and would eat no food.
 21:5 Then his wife Jezebel came to him and asked him, “Why is your spirit so sullen that you are eating no food?”
 21:6 Then he told her, “Because I spoke to Naboth the Jezreelite and asked him: ‘Give me your vineyard for money, or if it pleases you, I’ll give you another vineyard for it,’ but he answered, ‘I will not give you my vineyard.’”
@@ -748,47 +748,47 @@
 21:14 Then they sent word to Jezebel saying, “Naboth has been stoned and is dead.”
 21:15 Now when Jezebel heard that Naboth had been stoned and was dead, Jezebel said to Ahab, “Arise, take possession of the vineyard of Naboth the Jezreelite which he refused to sell you for money—for Naboth is not alive, but dead.”
 21:16 As soon as Ahab heard that Naboth was dead, Ahab rose up to go down to the vineyard of Naboth the Jezreelite to take possession of it.
-21:17 Then the word of the </span><span class="it"><span class="sc"><span class="content">Adonai
+21:17 Then the word of the Adonai came to Elijah the Tishbite saying:
 21:18 “Arise, go down to meet King Ahab of Israel, who is in Samaria. Behold, he is in the vineyard of Naboth where he has gone down to take possession of it.
-21:19 You shall speak to him saying, ‘Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-21:20 Ahab said to Elijah, “Have you found me, my enemy?” “I have found you,” he answered, “because you have sold yourself over to do what is evil in </span><span class="it"><span class="sc"><span class="content">Adonai
+21:19 You shall speak to him saying, ‘Thus says Adonai: Have you murdered and then taken possession?’ You shall also speak to him saying, ‘Thus says Adonai: In the same place where dogs licked the blood of Naboth shall dogs lick your blood too.’”
+21:20 Ahab said to Elijah, “Have you found me, my enemy?” “I have found you,” he answered, “because you have sold yourself over to do what is evil in Adonai’s eyes.
 21:21 ‘Behold, I will bring evil upon you, utterly sweep you away, and will cut off from Ahab every male, both bond and free in Israel.
 21:22 I will make your house like the house of Jeroboam son of Nebat, and like the house of Baasa son of Ahijah because you provoked My anger by leading Israel to sin.’
-21:23 “</span><span class="it"><span class="sc"><span class="content">Adonai
+21:23 “Adonai has also spoken about Jezebel saying: ‘The dogs will devour Jezebel by the wall of Jezreel.
 21:24 Any of Ahab who die in the city, the dogs will eat; or any who die in the country, the birds of the sky will eat.’”
-21:25 Surely there was none like Ahab, who sold himself over to do evil in </span><span class="it"><span class="sc"><span class="content">Adonai
-21:26 He did grossly loathsome acts in following idols just like all that the Amorites had done, whom </span><span class="it"><span class="sc"><span class="content">Adonai
+21:25 Surely there was none like Ahab, who sold himself over to do evil in Adonai’s eyes, at the instigation of Jezebel his wife.
+21:26 He did grossly loathsome acts in following idols just like all that the Amorites had done, whom Adonai had dispossessed before the children of Israel.
 21:27 Now when Ahab heard those words, he tore his clothes, put sackcloth on his body, fasted, lay in sackcloth and walked about subdued.
-21:28 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+21:28 Then the word of Adonai came to Elijah the Tishbite saying:
 21:29 “Have you seen how Ahab has humbled himself before Me? Because he has humbled himself before Me, I will not bring the evil in his days, but in his son’s days I will bring the evil upon his house.”
 22:1 Three years remained without war between Aram and Israel.
 22:2 Then it came about in the third year that King Jehoshaphat of Judah came down to the king of Israel.
 22:3  The king of Israel said to his courtiers, “Do you know that Ramoth-gilead is ours, yet we are still doing nothing to recover it from the hand of the king of Aram?”
 22:4 Then he said to Jehoshaphat, “Will you go with me to battle at Ramot-gilead?” Jehoshaphat said to the king of Israel, “I am as you are, my people as your people, my horses as your horses.”
-22:5 Jehoshaphat said further to the king of Israel, “Please inquire of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:5 Jehoshaphat said further to the king of Israel, “Please inquire of Adonai for a word first,”
 22:6 So the king of Israel gathered the prophets together, about 400 men, and asked them: “Should I march against Ramot-gilead to battle or should I refrain?” They responded, “Go up, for my Lord will deliver it into the hand of the king.”
-22:7 But Jehoshaphat said: “Is there no longer a prophet of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:8 The king of Israel said to Jehoshaphat, “Yes, there is still one by whom we may inquire of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:7 But Jehoshaphat said: “Is there no longer a prophet of Adonai here that we may inquire of Him?”
+22:8 The king of Israel said to Jehoshaphat, “Yes, there is still one by whom we may inquire of Adonai—Micaiah son of Imlah—but I hate him, because he never prophesies good concerning me, only evil.” But Jehoshaphat said, “May the king not say so!”
 22:9 So the king of Israel summoned one of his eunuchs and said, “Bring Micaiah son of Imlah quickly.”
 22:10 Now the king of Israel and King Jehoshaphat of Judah were sitting each on his throne, arrayed in their robes, at a threshing-floor at the entrance of Samaria’s gate. All the prophets were prophesying before them.
-22:11 Now Zedekiah son of Chenaanah made himself horns of iron and said, “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-22:12 Then all the prophets were prophesying so, saying, “Go up to Ramot-gilead and triumph! For </span><span class="it"><span class="sc"><span class="content">Adonai
+22:11 Now Zedekiah son of Chenaanah made himself horns of iron and said, “Thus says Adonai: ‘With these you will gore the Arameans until they are consumed!”
+22:12 Then all the prophets were prophesying so, saying, “Go up to Ramot-gilead and triumph! For Adonai will deliver it into the hand of the king!”
 22:13 Meanwhile the messenger that went to summon Micaiah spoke to him saying, “Behold now, the words of the prophets are uniformly declaring favor to the king. So please let your word be like the word of one of them, and speak favorably.”
-22:14 But Micaiah said, “As </span><span class="it"><span class="sc"><span class="content">Adonai
-22:15 Now when he came to the king, the king asked him, “Micaiah, should we march to Ramot-gilead in battle or should we refrain?” “March and triumph!” he answered, “and </span><span class="it"><span class="sc"><span class="content">Adonai
-22:16 But the king said to him, “How many times must I make you swear to speak to me nothing but the truth in the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:17 Then he said, “I saw all Israel scattered on the hills, as sheep without a shepherd. Then </span><span class="it"><span class="sc"><span class="content">Adonai
+22:14 But Micaiah said, “As Adonai lives, what Adonai says to me, that will I speak.”
+22:15 Now when he came to the king, the king asked him, “Micaiah, should we march to Ramot-gilead in battle or should we refrain?” “March and triumph!” he answered, “and Adonai will give it into the hand of the king.”
+22:16 But the king said to him, “How many times must I make you swear to speak to me nothing but the truth in the Name of Adonai?”
+22:17 Then he said, “I saw all Israel scattered on the hills, as sheep without a shepherd. Then Adonai said, ‘These have no master; let each of them return home in peace.’”
 22:18 And the king of Israel said to Jehoshaphat, “Didn’t I tell you that he wouldn’t prophesy good concerning me, only evil?”
-22:19 Micaiah then continued, “Therefore hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-22:20 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-22:21 until a certain spirit came forward and stood before </span><span class="it"><span class="sc"><span class="content">Adonai
+22:19 Micaiah then continued, “Therefore hear the word of Adonai. I saw Adonai sitting on His throne, with all the hosts of heaven standing by Him on His right hand and on His left.
+22:20 Then Adonai said, ‘Who will entice Ahab to go up and fall at Ramoth-gilead?’ One suggested this and another that,
+22:21 until a certain spirit came forward and stood before Adonai and said, ‘I will entice him.’ So Adonai asked him, ‘How?’
 22:22 And he said: ‘I will go and be a deceiving spirit in the mouth of all his prophets.’ Then He said: ‘You shall entice him and shall prevail also—go and do so.’
-22:23 Now therefore, behold, </span><span class="it"><span class="sc"><span class="content">Adonai
-22:24 Then Zedekiah son of Chenaanah approached Micaiah, struck him on the cheek and said, “Which way did the </span><span class="it"><span class="content">Ruach
+22:23 Now therefore, behold, Adonai has put a deceiving spirit in the mouth of all these prophets of yours, and Adonai has decreed evil upon you.”
+22:24 Then Zedekiah son of Chenaanah approached Micaiah, struck him on the cheek and said, “Which way did the Ruach Adonai pass from me to speak to you?”
 22:25 Micaiah replied, “Behold, you will see on that day when you go into an inner chamber to hide.”
 22:26 Then the king of Israel said, “Take Micaiah and take him back to Amon the city governor and to Joash the king’s son,
 22:27 and say, “Thus says the king: ‘Put this fellow in the prison, and feed him only bread and water until I return safely.’”
-22:28 Micaiah then said, “If you ever return safely, then </span><span class="it"><span class="sc"><span class="content">Adonai
+22:28 Micaiah then said, “If you ever return safely, then Adonai has not spoken through me.” And he added, “Did you hear, all you people?”
 22:29 So the king of Israel and Jehoshaphat the king of Judah marched to Ramot-gilead.
 22:30 Then the king of Israel said to Jehoshaphat, “I will disguise myself and go into the battle, but you, put on your robes.” So the king of Israel disguised himself and went into the battle.
 22:31 Now the king of Aram had commanded his 32 chariot commanders saying, “Do no single combat with anyone, small or great—except the king of Israel.”
@@ -798,12 +798,12 @@
 22:35 The battle raged that day, and the king remained propped up in his chariot facing the Arameans. But he died at evening—and the blood ran out of the wound into the bottom of the chariot.
 22:36 As the sun was setting, a shout went throughout the army, saying, “Each man to his town, and each man to his land!”
 22:37 So the king died, and was brought to Samaria; and they buried the king in Samaria.
-22:38 Then they washed the chariot at the pool of Samaria where the harlots washed and the dogs licked up his blood—just as was the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:38 Then they washed the chariot at the pool of Samaria where the harlots washed and the dogs licked up his blood—just as was the word of Adonai that He had spoken.
 22:39 Now the rest of Ahab’s deeds and all he did, including the ivory palace he built and all the cities he fortified, are they not written in Book of the Chronicles of the Kings of Israel?
 22:40 So Ahab slept with his fathers, and his son Ahaziah became king in his place.
 22:41 Now Jehoshaphat son of Asa began to reign over Judah in the fourth year of Ahab king of Israel.
 22:42 Jehoshaphat was 35 years old when he became king, and he reigned 25 years in Jerusalem. His mother’s name was Azubah the daughter of Shilhi.
-22:43 He walked in all the ways of his father Asa, not straying from them, but doing what was right in </span><span class="it"><span class="sc"><span class="content">Adonai
+22:43 He walked in all the ways of his father Asa, not straying from them, but doing what was right in Adonai’s eyes.
 22:44 However, they did not take away the high places, and the people continued to sacrifice and burn incense on the high places.
 22:45 Jehoshaphat also made peace with the king of Israel.
 22:46 Now the rest of the deeds of Jehoshaphat along with his might that he showed and how he warred, are they not written in Book of the Chronicles of the Kings of Judah?
@@ -813,4 +813,5 @@
 22:50 Then Ahaziah son of Ahab said to Jehoshaphat, “Let my servants sail with your servants in the ships.” But Jehoshaphat refused.
 22:51 Jehoshaphat slept with his fathers, and was buried with his fathers in the city of his father David, and his son Jehoram became king in his place.
 22:52 Ahaziah son of Ahab began to reign over Israel in Samaria in the seventeenth year of Jehoshaphat king of Judah, and he reigned two years over Israel.
-22:53 But he did what was evil in </span><span class="it"><span class="sc"><span class="content">Adonai
+22:53 But he did what was evil in Adonai’s eyes and followed the way of his father, and the way of his mother, and the way of Jeroboam son of Nebat who caused Israel to sin.
+22:54 For he worshipped Baal and bowed down to him, vexing Adonai God of Israel, like all his father had done.
