@@ -68,7 +68,7 @@
 3:25 They destroyed the cities. Also each man threw his stone onto every good field and covered it. They stopped up all the springs of water and cut down all the good trees—until nothing was left except Kir-hareseth with the stones of its wall. However, the slingers encircled it and struck it down.
 3:26 When the king of Moab saw that the battle was too fierce for him, he took with him 700 swordsmen to break through to the king of Edom, but they could not.
 3:27 Then he took his firstborn son who should have become king in his place and offered him as a burnt offering on the wall. And there was great wrath against Israel that they withdrew from him and returned to their own land.
-4:1 Now a certain woman of the wives of the sons of the prophets cried out to Elisha saying, “Your servant my husband is dead—you know that your servant feared </span><span class="it"><span class="sc"><span class="content">Adonai
+4:1 Now a certain woman of the wives of the sons of the prophets cried out to Elisha saying, “Your servant my husband is dead—you know that your servant feared Adonai. Now the creditor has come to take my two children to be his slaves.”
 4:2 “What should I do for you?” Elisha asked her. “Tell me, what do you have in the house?” She replied, “Your handmaid has nothing in the house except a jar of oil.”
 4:3 Then he said, “Go borrow for yourself vessels from all your neighbors—empty jars—not just a few.
 4:4 Then go inside and shut the door behind you and behind your sons, and pour into all those vessels, setting aside what is full.”
@@ -94,13 +94,13 @@
 4:24 Then she saddled the donkey and said to her servant, “Move on! Don’t slow down riding unless I tell you.”
 4:25 So she set out and came near the man of God at Mount Carmel. Upon seeing her from a distance, the man of God said to his servant Gehazi, “Look! There’s the Shunammite.
 4:26 Please, run now to meet her and ask her: ‘Is it well with you? Is it well with your husband? Is it well with the boy?’” She answered, “It is well.”
-4:27 But when she arrived at the mountain, up to the man of God, she caught hold of his feet. Then Gehazi stepped forward to push her away, but the man of God said, “Leave her alone, for her soul is bitter within her, yet </span><span class="it"><span class="sc"><span class="content">Adonai
+4:27 But when she arrived at the mountain, up to the man of God, she caught hold of his feet. Then Gehazi stepped forward to push her away, but the man of God said, “Leave her alone, for her soul is bitter within her, yet Adonai has hid it from me and has not told me.”
 4:28 “Did I ask my lord for a son?” she said. “Didn’t I say, ‘Don’t deceive me’?”
 4:29 Then he said to Gehazi, “Gird up your loins and take my staff in your hand and go. If you meet anyone, don’t greet him. Or if anyone greets you, don’t answer him; and lay my staff on the face of the child.”
-4:30 But the mother of the child said, “As </span><span class="it"><span class="sc"><span class="content">Adonai
+4:30 But the mother of the child said, “As Adonai lives and as you live, I won’t leave you.” So he arose and followed her.
 4:31 Gehazi passed on ahead of them and laid the staff on the face of the child, but there was no sound or response. So he returned to meet him and told him, saying, “The boy has not awakened.”
 4:32 When Elisha entered the house, there was the child, dead and laying on his bed.
-4:33 So he entered and shut the door behind the two of them and prayed to </span><span class="it"><span class="sc"><span class="content">Adonai
+4:33 So he entered and shut the door behind the two of them and prayed to Adonai.
 4:34 Then he got up and lay on the child, and put his mouth on his mouth and his eyes on his eyes and his hands on his hands, and he stretched himself upon him. So the flesh of the child became warm.
 4:35 Then he stepped down and walked in the house to and fro, and then he got up on the bed and stretched himself on him. The child sneezed seven times, then the child opened his eyes.
 4:36 He then called Gehazi and said, “Call the Shunammite.” So he called her. When she came in to him, he said, “Pick up your son.”
@@ -110,35 +110,35 @@
 4:40 Then they served it for the men to eat. But it came to pass as they were still eating the stew, they cried out and said, “O man of God, there is death in the pot.” So they could not eat it.
 4:41 But he said, “Bring some flour,” and he threw it into the pot and said, “Serve it to the people and let them eat.” So there was nothing bad in the pot.
 4:42 Now a man came from Baal-shalishah, and brought the man of God bread of the firstfruits—20 loaves of barley bread and fresh ears of corn in his sack. Then he said, “Give them to the people that they may eat.”
-4:43 But his attendant said, “What? Will I set this before a hundred men?” But he said, “Give them to the people that they may eat, for thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-4:44 So he set it before them, and they ate and had some left over, according to the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-5:1 Now Naaman, commander of the army of the king of Aram, was a great man in his master’s sight and highly esteemed, because through him </span><span class="it"><span class="sc"><span class="content">Adonai
+4:43 But his attendant said, “What? Will I set this before a hundred men?” But he said, “Give them to the people that they may eat, for thus says Adonai, ‘They will eat and will have left over.’”
+4:44 So he set it before them, and they ate and had some left over, according to the word of Adonai.
+5:1 Now Naaman, commander of the army of the king of Aram, was a great man in his master’s sight and highly esteemed, because through him Adonai had given victory to Aram. Though the man was a mighty man of valor, he had tza'arat.
 5:2 Aram had gone out in bands, and had taken captive a young girl from the land of Israel. So she served Naaman’s wife.
-5:3 Then she said to her mistress, “If only my lord went before the prophet who is in Samaria! Then he would cure him of his </span><span class="it"><span class="content">tza'arat
+5:3 Then she said to her mistress, “If only my lord went before the prophet who is in Samaria! Then he would cure him of his tza'arat.”
 5:4 So Naaman went in and told his master, saying, “Thus and thus spoke the girl who is from the land of Israel.”
 5:5 The king of Aram said, “Go now, and I will send a letter to the king of Israel.” So he departed and took with him ten talents of silver, 6,000 pieces of gold, and ten changes of clothes.
-5:6 He brought the letter to the king of Israel saying, “When this letter comes to you, behold, I have sent my servant Naaman to you, so you may cure him of his </span><span class="it"><span class="content">tza'arat
-5:7 Now when the king of Israel read the letter, he ripped his clothes and said, “Am I God, to kill and to make alive, that this man is sending to me to cure a man of his </span><span class="it"><span class="content">tza'arat
+5:6 He brought the letter to the king of Israel saying, “When this letter comes to you, behold, I have sent my servant Naaman to you, so you may cure him of his tza'arat.”
+5:7 Now when the king of Israel read the letter, he ripped his clothes and said, “Am I God, to kill and to make alive, that this man is sending to me to cure a man of his tza'arat? But please consider, and see how he is seeking a pretext against me.”
 5:8 Now when Elisha the man of God heard that the king of Israel had rent his clothes, he sent word to the king saying, “Why have you rent your clothes? Please, let him come to me, and he will know that there is a prophet in Israel.”
 5:9 So Naaman came with his horses and his chariots, and stood at the doorway of the house of Elisha.
 5:10 So Elisha sent him a messenger, saying, “Go and wash in the Jordan seven times, and your flesh will be restored, and you will be clean.”
-5:11 But Naaman was angered and walked away, saying, “I thought he would surely come out to me, stand and call on the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+5:11 But Naaman was angered and walked away, saying, “I thought he would surely come out to me, stand and call on the Name of Adonai his God, and wave his hand over the spot and cure the tza'arat.
 5:12 Aren’t Amanah and Pharpar, the rivers of Damascus, better than all the waters of Israel? Couldn’t I wash in them and be clean?” So he turned and went away in a rage.
 5:13 But his servants approached him and spoke to him, and said, “My father, if the prophet had told you to do something difficult, would you not have done it? How much more then, when he told you only to ‘Wash and be clean’?”
 5:14 So, he went down and dipped himself seven times in the Jordan, according to the word of the man of God. Then his flesh was restored like the flesh of a little child, and he was clean.
 5:15 When he returned with his entire retinue to the man of God, and came and stood before him, he said, “Behold, now I know that there is no God in all the earth except in Israel. Now please, accept a present from your servant.”
-5:16 But Elisha said, “As </span><span class="it"><span class="sc"><span class="content">Adonai
-5:17 So Naaman said, “If not, then please, let your servant be given two mule loads of soil, for your servant will no longer offer burnt offering or sacrifice to any other god, except </span><span class="it"><span class="sc"><span class="content">Adonai
-5:18 In this matter, may </span><span class="it"><span class="sc"><span class="content">Adonai
+5:16 But Elisha said, “As Adonai before whom I stand lives, I will accept nothing.” Naaman pressed him to accept, but Elisha refused.
+5:17 So Naaman said, “If not, then please, let your servant be given two mule loads of soil, for your servant will no longer offer burnt offering or sacrifice to any other god, except Adonai.
+5:18 In this matter, may Adonai pardon your servant: when my master goes into the house of Rimmon to worship there, leaning on my hand, and I prostrate myself in the house of Rimmon—when I prostrate myself in the house of Rimmon, may Adonai pardon your servant in this matter.”
 5:19 Elisha said to him, “Go in peace.” So Naaman departed from him some distance.
-5:20 But Gehazi, the servant of Elisha the man of God, thought, “Behold, my master held back from accepting what this Naaman the Aramean brought. As </span><span class="it"><span class="sc"><span class="content">Adonai
+5:20 But Gehazi, the servant of Elisha the man of God, thought, “Behold, my master held back from accepting what this Naaman the Aramean brought. As Adonai lives, I will surely run after him and get something from him.”
 5:21 So Gehazi pursued Naaman. Now when Naaman saw someone running after him, he got down from the chariot to meet him and asked, “Is everything all right?”
 5:22 “It’s all right, he replied. “My master sent me saying: ‘Behold, two young men of the sons of the prophets have just come to me from the hill country of Ephraim. Please give them a talent of silver and two changes of clothes.’”
 5:23 Naaman said, “Please, take two talents.” He even urged him, and packed two talents of silver in two bags with two changes of clothes, and gave them to two of his servants; and they carried them ahead of him.
 5:24 Now when he arrived at the fortified hill, he took them from their hand and deposited them in the house, and let the men go, so they departed.
 5:25 When he entered and stood before his master, Elisha asked him, “Where have you been, Gehazi?” So he replied, “Your servant has gone nowhere.”
 5:26 Then Elisha said to him, “Didn’t my heart go, when the man got down from his chariot to meet you? Is it a time to accept money and accept clothes, or olive groves and vineyards, or sheep and oxen, or male and female servants?
-5:27 Therefore, the </span><span class="it"><span class="content">tza'arat
+5:27 Therefore, the tza'arat of Naaman will cling to you and to your offspring forever.” Then he went out from his presence with tza'arat as white as snow.
 6:1 Now the sons of the prophets said to Elisha, “Behold now, the place where we are living in your presence is too cramped for us.
 6:2 So please, let’s go to the Jordan and pick from there each one a beam, and make ourselves a place there to live.” “Go,” he answered.
 6:3 Then one of them said, “Will you please come with your servants?” “I will go,” he answered.
