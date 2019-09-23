@@ -229,40 +229,40 @@
 10:33 Behold, the Lord, Adonai-Tzva’ot will lop off the branches with terror! So the tall ones will be cut down and the lofty ones laid low.
 10:34 Yes, He will hack down the thickets of the forest with iron, and Lebanon with its majesty will fall.
 11:1 Then a shoot will come forth out of the stem of Jesse, and a branch will bear fruit out of His roots.
-11:2 The </span><span class="it"><span class="content">Ruach
-11:3 His delight will be in the fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+11:2 The Ruach of Adonai will rest upon Him, the Spirit of wisdom and insight, the Spirit of counsel and might, the Spirit of knowledge and of the fear of Adonai.
+11:3 His delight will be in the fear of Adonai. He will not judge by what His eyes see, nor decide by what His ears hear.
 11:4 But with righteousness He will judge the poor, and decide with fairness for the poor of the land. He will strike the land with the rod of His mouth, and with the breath of His lips He will slay the wicked.
 11:5 Also righteousness will be the belt around His loins, and faithfulness the belt around His waist.
 11:6 The wolf will dwell with the lamb, the leopard will lie down with the kid, the calf and the young lion and the yearling together, and a little child will lead them.
 11:7 The cow and the bear will graze, their young ones lie down together, and the lion will eat straw like an ox.
 11:8 A nursing child will play by a cobra’s hole, and a weaned child will put his hand into a viper’s den.
-11:9 They will not hurt or destroy in all My holy mountain, for the earth will be full of the knowledge of </span><span class="it"><span class="sc"><span class="content">Adonai
+11:9 They will not hurt or destroy in all My holy mountain, for the earth will be full of the knowledge of Adonai, as the waters cover the sea.
 11:10 It will also come about in that day that the root of Jesse will stand as a banner for the peoples. The nations will seek for Him, and His resting place will be glorious.
 11:11 It will also come about in that day that my Lord will again redeem— a second time with His hand— the remnant of His people who remain from Assyria, from Egypt, from Pathros, from Cush, Elam, Shinar, Hamath, and from the islands of the sea.
 11:12 He will lift up a banner for the nations, and assemble the dispersed of Israel, and gather the scattered of Judah from the four corners of the earth.
 11:13 Ephraim’s envy will end, those hostile to Judah will be cut off. Ephraim will not be jealous of Judah, and Judah will not harass Ephraim.
 11:14 They will swoop down on the Philistine slope to the west. Together they will plunder the children of the east— laying their hand on Edom and Moab, the children of Ammon obeying them.
-11:15 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+11:15 Then Adonai will dry up the gulf of the Egyptian sea. He will wave His hand over the River with His scorching wind, and will strike it into seven streams, and let men walk over in sandals.
 11:16 So there will be a highway for the remnant of His people who remain, from Assyria, as there was for Israel in the day they came up out of the land of Egypt.
-12:1 In that day you will say: “I will give You thanks, </span><span class="it"><span class="sc"><span class="content">Adonai
-12:2 Behold, God is my salvation! I will trust and will not be afraid. For the Lord </span><span class="it"><span class="sc"><span class="content">Adonai
+12:1 In that day you will say: “I will give You thanks, Adonai, for though You were angry with me, Your anger is turned away, and You comfort me.
+12:2 Behold, God is my salvation! I will trust and will not be afraid. For the Lord Adonai is my strength and my song. He also has become my salvation.”
 12:3 With joy you will draw water from the wells of salvation.
-12:4 In that day you will say: “Give thanks to </span><span class="it"><span class="sc"><span class="content">Adonai
-12:5 Sing to </span><span class="it"><span class="sc"><span class="content">Adonai
+12:4 In that day you will say: “Give thanks to Adonai. Proclaim His Name! Declare His works to the peoples, so they remember His exalted Name.
+12:5 Sing to Adonai, for He has done gloriously. Let this be known in all the earth.
 12:6 Cry out and shout, inhabitant of Zion! For great in your midst is the Holy One of Israel.”
 13:1 The burden of Babylon, which Isaiah the son of Amoz saw:
 13:2 Lift up a banner on a bare mountain, raise a voice to them, wave a hand, so that they may enter the gates of the nobles.
 13:3 I have commanded My consecrated ones, yes, I have called My mighty ones, My proud exulting ones, for My fury.
-13:4 A sound of tumult in the mountains like that of many people! A sound of uproar of kingdoms, of nations gathered! </span><span class="it"><span class="sc"><span class="content">Adonai
-13:5 They are coming from a far country— from the end of the heavens— </span><span class="it"><span class="sc"><span class="content">Adonai
-13:6 Wail, for the day of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:4 A sound of tumult in the mountains like that of many people! A sound of uproar of kingdoms, of nations gathered! Adonai-Tzva’ot is mustering the army for battle.
+13:5 They are coming from a far country— from the end of the heavens— Adonai and the weapons of His wrath, to destroy the whole land.
+13:6 Wail, for the day of Adonai is near! it will come as destruction from Shaddai.
 13:7 Therefore all hands will fall limp, and every man’s heart will melt.
 13:8 They will be terrified; pain and anguish will take hold of them; they will writhe as a woman in labor; they will look aghast at one another— their faces aflame!
-13:9 Behold, the day of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:9 Behold, the day of Adonai comes, cruel, full of wrath and fierce fury, to make the earth a desolation, and destroy its sinners from it.
 13:10 For the stars of heaven and their constellations will not give their light. The rising sun will be darkened, and the moon will not give its light.
 13:11 I will punish the world for evil, and the wicked for their iniquity. I will put an end to the arrogance of the proud, and abase the insolence of tyrants.
 13:12 I will make people scarcer than gold, even than the pure gold of Ophir.
-13:13 Therefore I will make heaven tremble, and the earth will shake from its place at the wrath of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:13 Therefore I will make heaven tremble, and the earth will shake from its place at the wrath of Adonai-Tzva’ot, in the day of His fierce fury.
 13:14 It will be like a hunted gazelle, or like sheep with no one gathering. Each will return to his own people, each will flee to his own country.
 13:15 Everyone found will be thrust through. Everyone caught will fall by the sword.
 13:16 Their babes will be dashed in pieces before their eyes. Their houses will be plundered, and their wives ravished.
@@ -272,38 +272,38 @@
 13:20 It will never be inhabited, nor will it be dwelt in from generation to generation, nor will an Arab pitch a tent there, nor will shepherds let flocks lie there.
 13:21 But desert creatures will lie there. Their houses will be full of owls. Ostriches will dwell there, and goat-demons will dance there.
 13:22 Hyenas will howl in their citadels and jackals in their pleasant palaces. Her time is near to come— her days will not drag on long.
-14:1 For </span><span class="it"><span class="sc"><span class="content">Adonai
-14:2 The peoples will take them and escort them to their place. The house of Israel will possess them in the land of </span><span class="it"><span class="sc"><span class="content">Adonai
-14:3 Now in the day when </span><span class="it"><span class="sc"><span class="content">Adonai
+14:1 For Adonai will have compassion on Jacob and will again choose Israel and settle them in their own land. The outsider will join himself with them and will cling to the house of Jacob.
+14:2 The peoples will take them and escort them to their place. The house of Israel will possess them in the land of Adonai as servants and handmaids. They will take their captors captive, and rule over their oppressors.
+14:3 Now in the day when Adonai will give you rest from your sorrow and your turmoil, and from the hard service you were forced to do,
 14:4 you will take up this taunt against the king of Babylon and say: “How the taskmaster has ceased! The raging oppressor, exacter of gold, has ceased!
-14:5  has broken the rod of the wicked, the scepter of the rulers,
+14:5 Adonai has broken the rod of the wicked, the scepter of the rulers,
 14:6 which struck the people in wrath with continual strokes, which ruled the nations in fury, with relentless persecution.
 14:7 The whole earth is at rest, and quiet. They break forth with a ringing cry!
 14:8 Even the cypress trees rejoice over you, along with the cedars of Lebanon: “Since you were laid low, no woodcutter comes up against us.”
-14:9  from below is excited about you, to meet you at your coming! He stirs up the dead spirits for you, even the chief ones of the earth. He makes all the kings of the nations rise up from their thrones.
+14:9 Sheol from below is excited about you, to meet you at your coming! He stirs up the dead spirits for you, even the chief ones of the earth. He makes all the kings of the nations rise up from their thrones.
 14:10 They all answer and say to you: “Even you have become as weak as us? Have you become like us?
-14:11 Your pomp is brought down to </span><span class="it"><span class="content">Sheol
+14:11 Your pomp is brought down to Sheol with the music of your harps. Maggots are spread out under you, and worms cover you.”
 14:12 How you have fallen from heaven, O brightstar, son of the dawn! How you are cut down to the earth, you who made the nations prostrate!
 14:13 You said in your heart: “I will ascend to heaven, I will exalt my throne above the stars of God. I will sit upon the mount of meeting, in the uttermost parts of the north.
 14:14 I will ascend above the high places of the clouds— I will make myself like Elyon.”
-14:15 Yet you will be brought down to </span><span class="it"><span class="content">Sheol
+14:15 Yet you will be brought down to Sheol, to the lowest parts of the Pit.
 14:16 Those who see you will stare at you, reflecting on what has become of you: “Is this the one who shook the earth, who made kingdoms tremble,
 14:17 who made the world a wilderness and destroyed its cities, who never opened the house of his prisoners?”
 14:18 All the kings of the nations, all of them, lie in glory, each in his own house.
 14:19 But you are cast out of your tomb as a discarded branch, garment of the slain, pierced with a sword, dumped into a stony pit, a corpse trodden underfoot.
 14:20 You will not join with them in burial, because you ruined your land, you slaughtered your own people. The offspring of evildoers will never be named.
 14:21 Prepare slaughter for his children for the iniquity of their fathers, so they would not rise up and possess the land, or fill the face of the earth with cities.
-14:22 “For I will rise up against them”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-14:23 “I will also make it a possession for the porcupine, with marshes of water, and I will sweep it with the broom of destruction.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-14:24  has sworn, saying: “Surely, as I thought it, so it will be. As I have purposed, so it will stand.
+14:22 “For I will rise up against them”—it is a declaration of Adonai-Tzva’ot—“and I will cut off from Babylon name and remnant, offshoot and offspring,” declares Adonai.
+14:23 “I will also make it a possession for the porcupine, with marshes of water, and I will sweep it with the broom of destruction.” It is a declaration of Adonai-Tzva’ot.
+14:24 Adonai Tzva’ot has sworn, saying: “Surely, as I thought it, so it will be. As I have purposed, so it will stand.
 14:25 I will break Assyria in My land. On My mountains I will trample him. Then his yoke will be taken off them, his burden removed from their shoulder.
 14:26 This is the purpose planned for the whole earth, and this is the hand that is stretched out over all the nations.”
-14:27 For </span><span class="it"><span class="sc"><span class="content">Adonai
+14:27 For Adonai-Tzva’ot has purposed, so who will annul it? Since His hand is stretched out, who will turn it back?
 14:28 In the year king Ahaz died came this burden:
 14:29 Do not rejoice, all you of Philistia, that the rod that struck you is broken. For from the serpent’s root comes a viper and its fruit will be a flying serpent.
 14:30 The firstborn of the poor will feed, and the needy will lie down in safety. I will kill your root with famine, and your survivors will be slain.
 14:31 Wail, O gate! Cry, O city! Melt away, all you of Philistia! For smoke is coming from the north, and there is no straggler in its ranks.
-14:32 What will they answer the messengers of the nation? For </span><span class="it"><span class="sc"><span class="content">Adonai
+14:32 What will they answer the messengers of the nation? For Adonai has founded Zion, and the afflicted of His people will find refuge in her.
 15:1 The burden of Moab. For in the night that Ar is devastated, Moab is ruined; for in the night that Kir is devastated, Moab is ruined.
 15:2 He has gone up to the shrine, to Dibon, to the high places to weep. Moab wails over Nebo and Medeba. Every head is bald, every beard shaven.
 15:3 In their streets they wear sackcloth. On their housetops and in their plazas, everyone wails, weeping profusely.
@@ -325,33 +325,33 @@
 16:10 Gladness and joy are taken away from the fruitful field. In the vineyards, no singing for joy no happy shouting, no treading wine in the presses. I have made the shouting stop.
 16:11 Therefore my heart moans for Moab like a lyre, and my inward part for Kir-heres.
 16:12 So it will be, when Moab is weary upon the high place and comes to his sanctuary to pray, it will do him no good.
-16:13 This is the word that </span><span class="it"><span class="sc"><span class="content">Adonai
-16:14 But now </span><span class="it"><span class="sc"><span class="content">Adonai
+16:13 This is the word that Adonai spoke concerning Moab in the past.
+16:14 But now Adonai has spoken, saying: “Within three years (as with the years of a hired worker), the glory of Moab will be disgraced; for all his large population, the remnant will be very small and feeble.”
 17:1 The burden of Damascus: Behold, Damascus will cease as a city and will become a ruinous heap.
 17:2 The cities of Aroer are forsaken. They will be for flocks—they will lie down and no one will frighten them.
-17:3 The fortress will also cease from Ephraim, and the kingdom from Damascus. The remnant of Aram will be like the glory of </span><span class="it"><span class="content">Bnei-Yisrael
+17:3 The fortress will also cease from Ephraim, and the kingdom from Damascus. The remnant of Aram will be like the glory of Bnei-Yisrael. It is a declaration of Adonai-Tzva’ot.
 17:4 Now in that day Jacob’s glory will fade, and the fatness of his flesh grow lean.
 17:5 It will be as when the harvester gathers the standing grain and reaps the heads with his arm, as when one gleans grain in the valley of Rephaim.
-17:6 Only gleanings will remain, as when beating an olive tree— two or three olives at the very top, four or five on a fruitful tree’s branches. It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+17:6 Only gleanings will remain, as when beating an olive tree— two or three olives at the very top, four or five on a fruitful tree’s branches. It is a declaration of Adonai God of Israel.
 17:7 In that day a man will look to his Maker and his eyes will turn to the Holy One of Israel.
 17:8 He will not look to the altars, the work of his hands, nor will he look to what his fingers have made—neither the Asherah poles nor the sun-images.
-17:9 In that day the strong cities will be like forsaken forests and treetops that were abandoned, because of </span><span class="it"><span class="content">Bnei-Yisrael
+17:9 In that day the strong cities will be like forsaken forests and treetops that were abandoned, because of Bnei-Yisrael—they will be laid waste.
 17:10 For you have forgotten the God of your salvation and you have not remembered the Rock of your strength. Therefore you plant delightful plants and set out exotic vines.
 17:11 In the day that you plant, you fence it in, and in the morning you made your seed to sprout— but the harvest will be a heap in a day of grief and incurable pain.
-17:12  ! The uproar of many peoples who roar like the roaring of the seas. The rumbling of nations, who rush in like the rumbling of mighty waters!
+17:12 Oy ! The uproar of many peoples who roar like the roaring of the seas. The rumbling of nations, who rush in like the rumbling of mighty waters!
 17:13 The nations will rush in like the rumbling of many waters, but He will rebuke them so they will flee far away, chased like chaff on the hills before the wind, like whirling dust before the storm.
 17:14 At evening time—sudden terror! Before morning, they are no more. This is the reward of those who plunder us and the lot of those who pillage us.
-18:1  ! The land of whirring wings, which is beyond the rivers of Ethiopia,
+18:1 Oy ! The land of whirring wings, which is beyond the rivers of Ethiopia,
 18:2 that sends ambassadors by sea, in papyrus vessels upon the water. Go, swift messengers, to a nation tall and smooth-skinned, to a people feared far and wide, a nation powerful and oppressive, whose land the rivers divide.
-18:3 All you inhabitants of the world, and dwellers on earth, when a banner is raised on the mountains, look! when a </span><span class="it"><span class="content">shofar
-18:4 For so </span><span class="it"><span class="sc"><span class="content">Adonai
+18:3 All you inhabitants of the world, and dwellers on earth, when a banner is raised on the mountains, look! when a shofar is blown, listen!
+18:4 For so Adonai has said to me: “I will remain quiet, and look from My dwelling place, like shimmering heat in sunshine, like a cloud of dew in harvest heat.”
 18:5 For before the harvest, as soon as blossoming is over and flower becomes ripening grape, He will cut off the shoots with pruning knives, He will cut back and remove the twigs.
 18:6 They will be left together for the mountain birds of prey and the beasts of the land. The birds of prey will summer on them, and all the beasts of the land will winter upon them.
-18:7 At that time tribute will be brought to </span><span class="it"><span class="sc"><span class="content">Adonai
-19:1 The burden of Egypt: Behold, </span><span class="it"><span class="sc"><span class="content">Adonai
+18:7 At that time tribute will be brought to Adonai-Tzva’ot from a nation tall and smooth-skinned, from a people feared far and wide, a nation powerful and oppressive, whose land the rivers divide— to the place of the Name of Adonai-Tzva’ot—Mount Zion!
+19:1 The burden of Egypt: Behold, Adonai rides upon a swift cloud and comes to Egypt. Egypt’s idols tremble before Him and Egypt’s heart melts within them.
 19:2 I will stir up Egyptian against Egyptian. Everyone will fight against his brother, and everyone against his neighbor— city against city, kingdom against kingdom.
 19:3 The spirit of Egypt will drain within it, and I will confuse its counsel. So they will resort to idols, charmers, mediums and familiar spirits.
-19:4 I will give the Egyptians into the hand of a cruel master—a fierce king will rule over them. It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+19:4 I will give the Egyptians into the hand of a cruel master—a fierce king will rule over them. It is a declaration of Adonai-Tzva’ot.
 19:5 The waters from the sea will dry up, and the river will be drained dry.
 19:6 Then the channels will stink. The streams of Egypt will dwindle and dry up. Reeds and rushes will rot.
 19:7 The bulrushes by the Nile, by the mouth of the Nile, and everything sown by the Nile will wither, blow away and be no more.
@@ -359,23 +359,23 @@
 19:9 Moreover the workers of fine flax, and the weavers of white cloth will be ashamed.
 19:10 Her pillars will be crushed, All hired workers will be grieved in soul.
 19:11 The princes of Zoan are utter fools. Pharaoh’s wisest counselors are stupid. How can you say to Pharaoh, “I am the son of the wise, a son of ancient kings”?
-19:12 Where then are your wise men? Let them tell you now! Let them know what </span><span class="it"><span class="sc"><span class="content">Adonai
+19:12 Where then are your wise men? Let them tell you now! Let them know what Adonai-Tzva’ot has purposed against Egypt.
 19:13 The princes of Zoan are fools. the princes of Noph are deceived. The cornerstone of her tribes have led Egypt astray.
-19:14  has mixed within her a spirit of dizziness. They make Egypt stagger in every work, as a drunkard staggers in his vomit.
+19:14 Adonai has mixed within her a spirit of dizziness. They make Egypt stagger in every work, as a drunkard staggers in his vomit.
 19:15 There will be no work for Egypt to do, for head or tail, palm branch or rush.
-19:16 In that day Egypt will be like women trembling with fear, because of the shaking hand of </span><span class="it"><span class="sc"><span class="content">Adonai
-19:17 The land of Judah will terrify Egypt. Anyone who mentions it will be afraid, because of what </span><span class="it"><span class="sc"><span class="content">Adonai
-19:18 In that day five cities in the land of Egypt will speak the language of Canaan, swearing allegiance to </span><span class="it"><span class="sc"><span class="content">Adonai
-19:19 In that day there will be an altar to </span><span class="it"><span class="sc"><span class="content">Adonai
-19:20 It will be as a sign and a witness to </span><span class="it"><span class="sc"><span class="content">Adonai
-19:21 So </span><span class="it"><span class="sc"><span class="content">Adonai
-19:22 So </span><span class="it"><span class="sc"><span class="content">Adonai
+19:16 In that day Egypt will be like women trembling with fear, because of the shaking hand of Adonai-Tzva’ot, which He is about to wave over it.
+19:17 The land of Judah will terrify Egypt. Anyone who mentions it will be afraid, because of what Adonai-Tzva’ot has surely purposed against it.
+19:18 In that day five cities in the land of Egypt will speak the language of Canaan, swearing allegiance to Adonai-Tzva’ot. One used to be called the City of the Sun.
+19:19 In that day there will be an altar to Adonai in the middle of the land of Egypt, and next to the border a pillar to Adonai.
+19:20 It will be as a sign and a witness to Adonai-Tzva’ot in the land of Egypt. For they will cry to Adonai because of oppressors, and He will send them a savior and defender—and he will deliver them.
+19:21 So Adonai will make Himself known to Egypt, and the Egyptians will know Adonai in that day. They will worship with sacrifice and offering. They will vow to Adonai, and fulfill it.
+19:22 So Adonai will strike Egypt—striking yet healing—so they will return to Adonai, and He will respond to them and heal them.
 19:23 In that day there will be a highway from Egypt to Assyria, and the Assyrians will come to Egypt, and the Egyptians to Assyria, and the Egyptians will worship with the Assyrians.
 19:24 In that day Israel will be the third, along with Egypt and Assyria—a blessing in the midst of the earth.
-19:25 For </span><span class="it"><span class="sc"><span class="content">Adonai
+19:25 For Adonai-Tzva’ot has blessed, saying: “Blessed is Egypt My people, and Assyria My handiwork, and Israel My inheritance.”
 20:1 In the year that the Tartan came to Ashdod, when Sargon the king of Assyria sent him and he fought against Ashdod and captured it,
-20:2 at that time </span><span class="it"><span class="sc"><span class="content">Adonai
-20:3 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+20:2 at that time Adonai spoke by Isaiah the son of Amoz saying, “Go, remove the sackcloth from your loins and your sandals from your feet.” So he did so, walking naked and barefoot.
+20:3 Then Adonai said: “Just as My servant Isaiah has walked naked and barefoot for three years, as a sign and a wonder against Egypt and Ethiopia,
 20:4 so will the king of Assyria lead away the captives of Egypt and the exiles of Ethiopia, young and old, naked and barefoot, with their buttocks uncovered, to Egypt’s shame.
 20:5 So they will be dismayed and ashamed, because they hoped in Ethiopia and boasted in Egypt.
 20:6 Then the inhabitants of the coastland will say in that day, ‘Look, such is our hope—there we fled for help to be delivered from the king of Assyria! Now, how will we escape?’”
