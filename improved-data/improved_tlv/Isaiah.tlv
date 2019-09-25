@@ -384,35 +384,35 @@
 21:3 Therefore my body is filled with pain. Pangs have taken hold of me like the pangs of a woman in labor. I am bewildered by what I hear, terrified by what I see.
 21:4 My heart is bewildered, terror overwhelms me. The twilight I longed for has been turned into trembling.
 21:5 Set the table, spread out the cloth! Eat! Drink! “Rise up, you princes, oil the shield!”
-21:6 For </span><span class="it"><span class="sc"><span class="content">Adonai
+21:6 For Adonai has said to me. “Go, post a watchman— let him declare what he sees!
 21:7 When he sees a chariot with a pair of horsemen, riders on donkeys, riders on camels, let him pay attention— very close attention!”
-21:8 Then he cried out like a lion: “Upon the watch tower, </span><span class="it"><span class="sc"><span class="content">Adonai
+21:8 Then he cried out like a lion: “Upon the watch tower, Adonai, I stand continually in the daytime, and stay at my post every night.
 21:9 Look! Here comes a chariot of men, with a pair of horsemen.” Then one answered and said, “Fallen, fallen is Babylon! All the images of her gods are broken on the ground.”
-21:10 O my people, crushed on the threshing floor, what I heard from </span><span class="it"><span class="sc"><span class="content">Adonai
+21:10 O my people, crushed on the threshing floor, what I heard from Adonai Tzva’ot, God of Israel, I have declared to you.
 21:11 The burden of Dumah: One calls to me from Seir, “Watchman, what is left of the night? Watchman, what is left of the night?”
 21:12 The watchman said, “Morning comes, yet also it is night.” If you would inquire, inquire. Come back again.”
 21:13 The burden of Arabia: In the desert brush of Arabia you will stay for the night, you caravans of Dedanites.
 21:14 To him who is thirsty bring water, inhabitants of the land of Tema, meet the fugitive with food.
 21:15 For they fled from swords, from drawn sword, from bent bow and distress of war.
-21:16 For thus </span><span class="it"><span class="sc"><span class="content">Adonai
-21:17 and the remainder of the number of the archers, the mighty men of the sons of Kedar, will be few. For </span><span class="it"><span class="sc"><span class="content">Adonai
+21:16 For thus Adonai said to me, “Within a year (as with the years of a hired worker), all the glory of Kedar will cease,
+21:17 and the remainder of the number of the archers, the mighty men of the sons of Kedar, will be few. For Adonai God of Israel has spoken.”
 22:1 The burden of the Valley of Vision: What is the matter with you now? For you have gone up to the rooftops.
 22:2 You were full of noise, a boisterous city, an exultant town? Your dead were not slain with the sword, nor dead in battle.
 22:3 All your rulers have fled together, then captured without a bow. All who were caught were taken into exile together, though they had fled far off.
 22:4 Therefore I said, “Look away from me! Let me weep bitterly— don’t try to comfort me about the ruin of the daughter of my people.”
-22:5 For my Lord </span><span class="it"><span class="sc"><span class="content">Adonai
+22:5 For my Lord Adonai-Tzva’ot has a day of panic, trampling and confusion— in the Valley of Vision— of tearing down a wall, a catastrophe on the mountain.
 22:6 Elam took up the quiver, with chariots of men and horsemen, and Kir uncovered the shield.
 22:7 So it will come to pass that your choicest valleys will be full of chariots and horsemen posted at the gate.
 22:8 So He will expose Judah’s defense, and in that day you will look for the armor in the Forest House.
 22:9 Then you will see the breaches in the walls of the city of David—for they will be many—though you collect the water of the lower pool.
 22:10 Though you counted the houses of Jerusalem, you broke down the houses to fortify the wall.
 22:11 You even made a reservoir between the two walls for the water of the old pool—but you did not look to the Maker, or consider the One who planned it long before.
-22:12 Now in that day, </span><span class="it"><span class="sc"><span class="content">Adonai
+22:12 Now in that day, Adonai Elohei-Tzva’ot will call for weeping and wailing, for baldness and putting on sackcloth.
 22:13 But instead, there is joy and gladness, slaughtering cattle and killing sheep, meat and drinking wine! “Let’s eat and drink, for tomorrow we will die!”
-22:14 But </span><span class="it"><span class="sc"><span class="content">Adonai
-22:15 Thus says my Lord </span><span class="it"><span class="sc"><span class="content">Adonai
+22:14 But Adonai-Tzva’ot revealed in my ears: “Surely this sin will not be atoned for until you die,” says my Lord Adonai-Tzva’ot.
+22:15 Thus says my Lord Adonai-Tzva’ot: “Go, say to this steward, to Shebna, who is over the house:
 22:16 ‘What are you doing here, and who are you to be here, that you cut out a grave for yourself, carving out a tomb on the height, chiseling a crypt for yourself in the rock?
-22:17 Behold, strong man, </span><span class="it"><span class="sc"><span class="content">Adonai
+22:17 Behold, strong man, Adonai is about to hurl you headlong, and seize you firmly.
 22:18 He will roll you up tightly and toss you like a ball into a large country. There you will die, and your glorious chariots will be the shame of your Master’s house.
 22:19 I will remove you from your post, and pull you down from your station.
 22:20 “In that day I will summon my servant Eliakim, son of Hilkiah.
@@ -420,7 +420,7 @@
 22:22 I will set the key of the house of David upon his shoulder—what he opens, no one can shut; what he shuts, and no one can open.
 22:23 I will fasten him as a peg in a firm place, and he will be a throne of honor to his father’s house.
 22:24 They will hang all the glory of his father’s house on him—offspring and posterity, all the small vessels, from bowls to all the jars.
-22:25 “In that day,” says </span><span class="it"><span class="sc"><span class="content">Adonai
+22:25 “In that day,” says Adonai-Tzva’ot, “the peg that was fastened in a firm place will give way, break away and fall, and the load that was on it will be cut off.” For Adonai has spoken.
 23:1 The burden of Tyre. Wail, ships of Tarshish! For Tyre is destroyed. There is no house and no harbor. From the land of Cyprus, it was revealed to them.
 23:2 Be still, inhabitants of the coastland, you merchants of Sidon, your messengers crossing the sea.
 23:3 On many waters the grain of Shihor, the harvest of the Nile was her revenue and a marketplace of nations.
@@ -429,21 +429,21 @@
 23:6 Cross over to Tarshish. Wail, you inhabitants of the island!
 23:7 Is this your jubilant city? Whose antiquity is from long ago, whose feet have taken her to settle in far off lands?
 23:8 Who planned this against Tyre, the crowning city, whose merchants were princes, whose traders were the honored of earth?
-23:9  has planned it, to defile the pride of all glory, to shame all the honored of earth.
+23:9 Adonai-Tzva’ot has planned it, to defile the pride of all glory, to shame all the honored of earth.
 23:10 Overflow through your land like the Nile, O daughter of Tarshish! There is no restraint any more.
-23:11 His hand has stretched out over the sea, He has shaken the kingdoms. </span><span class="it"><span class="sc"><span class="content">Adonai
+23:11 His hand has stretched out over the sea, He has shaken the kingdoms. Adonai has given a commandment concerning Canaan, to destroy its strongholds.
 23:12 He said, “You will exult no more.” O crushed virgin daughter of Sidon. Arise, cross over to Cyprus— even there you will have no rest.
 23:13 Look, the land of the Chaldeans— this is the people who no longer exist. Assyria set it up for desert animals. They set up their siege towers; they stripped its palaces; they made it a ruin.
 23:14 Wail, you ships of Tarshish! For your stronghold is destroyed.
 23:15 Then it will come about in that day that Tyre will be forgotten for 70 years, like the days of one king. At the end of 70 years it will happen to Tyre just as in the song of the prostitute:
 23:16 “Take a harp, stroll about the city, forgotten harlot! Skillfully play many songs, so you may be remembered.”
-23:17 Then it will come about after the end of 70 years that </span><span class="it"><span class="sc"><span class="content">Adonai
-23:18  Yet her profit and her wages will be set apart to </span><span class="it"><span class="sc"><span class="content">Adonai
-24:1 Behold, </span><span class="it"><span class="sc"><span class="content">Adonai
-24:2 So it shall be: as with the people, so with the </span><span class="it"><span class="content">kohen
-24:3 The land will be utterly emptied, and totally plundered. For </span><span class="it"><span class="sc"><span class="content">Adonai
+23:17 Then it will come about after the end of 70 years that Adonai will take note of Tyre. She will return to her trade and will prostitute herself with all the kingdoms of the world on the face of the earth.
+23:18  Yet her profit and her wages will be set apart to Adonai. They will not be stored up or hoarded. For her profit will be for those who dwell in the presence of Adonai, as ample food and as fine clothing.
+24:1 Behold, Adonai makes the land empty and makes it waste, twists its face, and scatters its inhabitants.
+24:2 So it shall be: as with the people, so with the kohen, as with a servant, so with his master, as with a maid, so with her mistress, as with a buyer, so with the seller, as with a lender, so with the borrower, as with a creditor, so with the debtor.
+24:3 The land will be utterly emptied, and totally plundered. For Adonai has spoken this word.
 24:4 The land faints and fades away, The world wilts and fades away, The exalted people of the earth wilt.
-24:5 The land is polluted by its inhabitants, for they have transgressed </span><span class="it"><span class="content">Torah
+24:5 The land is polluted by its inhabitants, for they have transgressed Torah, violated statutes, and broken the everlasting covenant.
 24:6 Therefore a curse will devour the land. Those dwelling there are found guilty. Therefore the inhabitants of the land will be burned up, so the people remaining are few.
 24:7 The new wine fails, the vine wilts, all the merry-hearted sigh.
 24:8 The glee of tambourines stops, the noise of revelers ends, the joy of the harp ceases.
@@ -452,52 +452,52 @@
 24:11 In the streets is an outcry for wine; all joy becomes dark as evening; the mirth of the land is banished.
 24:12 The city is left in ruins; the gate is battered down.
 24:13 So will it be in the earth and among the nations, as when shaking an olive tree, or as when gleanings are left after the grape harvest.
-24:14 They will raise their voices, They will sing for joy, of the majesty of </span><span class="it"><span class="sc"><span class="content">Adonai
-24:15 ‘Therefore glorify </span><span class="it"><span class="sc"><span class="content">Adonai
-24:16 From the ends of the earth we have heard songs: “Glory to the righteous!” But I say, “I waste away, I waste away! </span><span class="it"><span class="content">Oy
+24:14 They will raise their voices, They will sing for joy, of the majesty of Adonai they shout from the sea.
+24:15 ‘Therefore glorify Adonai in the east, the Name of Adonai, the God of Israel, in the isles of the sea.
+24:16 From the ends of the earth we have heard songs: “Glory to the righteous!” But I say, “I waste away, I waste away! Oy to me! Traitors betray! With treachery traitors betray!”
 24:17 Panic, pit and trap are upon you, O inhabitant of the earth.
 24:18 And it shall come to pass: whoever flees from the sound of panic will fall in the pit, and whoever climbs up out of the pit will be caught in the trap. For the windows of heaven are opened and the foundations of the earth shake.
 24:19 The earth is broken apart, the earth is split open, the earth is shaken utterly.
 24:20 The earth reels to and fro like a drunk, and sways like a hut. its transgression is so heavy upon it that it will fall and never rise again.
-24:21 It will come about in that day, </span><span class="it"><span class="sc"><span class="content">Adonai
+24:21 It will come about in that day, Adonai will punish the host of heaven on high, and the kings of the earth on the earth.
 24:22 They will be gathered together, like prisoners in the Pit, and will be shut up in the prison, and after many days be punished.
-24:23 Then the moon will be abashed and the sun ashamed, for </span><span class="it"><span class="sc"><span class="content">Adonai
-25:1 , You are my God, I will exalt You, I will praise Your Name, for You have done wonderful things, plans of old with steadfast faithfulness.
+24:23 Then the moon will be abashed and the sun ashamed, for Adonai-Tzva’ot will reign on Mount Zion and in Jerusalem, and before His elders, gloriously.
+25:1 Adonai, You are my God, I will exalt You, I will praise Your Name, for You have done wonderful things, plans of old with steadfast faithfulness.
 25:2 For You have made a city into a heap, a fortified city into a ruin, a foreigner’s palace a city no more— never to be rebuilt.
 25:3 Therefore a strong people will honor You. Cities of ruthless nations will fear You.
 25:4 For You have been a stronghold for the poor, a stronghold for the needy in distress, a refuge from the rainstorm, a shade from the heat. For the breath of the ruthless is like a storm against the wall.
 25:5 Like heat in a dry place, You subdue the roar of foreigners. Like heat in the shade of a cloud, the song of tyrants is brought low.
-25:6 On this mountain, </span><span class="it"><span class="sc"><span class="content">Adonai
+25:6 On this mountain, Adonai-Tzva’ot will prepare a lavish banquet for all peoples— a banquet of aged wine— of rich food, of choice marrow, of aged wine well refined.
 25:7 On this mountain He will swallow up the shroud that enfolds all peoples, the veil spread over all nations.
-25:8 He will swallow up death forever. my Lord </span><span class="it"><span class="sc"><span class="content">Adonai
-25:9 It will be said in that day: “Behold, this is our God, We waited for Him—He will save us. This is </span><span class="it"><span class="sc"><span class="content">Adonai
-25:10 For the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
+25:8 He will swallow up death forever. my Lord Adonai will wipe away tears from every face. He will remove His people’s reproach from all the earth. For Adonai has spoken.
+25:9 It will be said in that day: “Behold, this is our God, We waited for Him—He will save us. This is Adonai—we waited for Him. We will rejoice and be glad in His salvation.”
+25:10 For the hand of Adonai will rest on this mountain. Moab will be trampled under Him, as straw is trampled in a manure pile.
 25:11 When he spreads his hands in it as a swimmer spreads his hands to swim, his pride will be brought down low together with the trickery of his hands.
 25:12 He will level your high-fortified walls, lay them low, and cast them down to the ground, down to dust.
 26:1 In that day, this song will be sung in the land of Judah: “We have a strong city. He appoints salvation as its walls and ramparts.
 26:2 Open the gates! Let the righteous nation enter— one that keeps faith.
 26:3 You keep in perfect peace one whose mind is stayed on You, because he trusts in You.
-26:4 Trust in </span><span class="it"><span class="sc"><span class="content">Adonai
+26:4 Trust in Adonai forever, for the Lord Adonai is a Rock of ages.
 26:5 For He humbles those dwelling on high, leveling the lofty city, leveling it to the ground, bringing it down to the dust.
 26:6 Feet will trample it down, feet of the afflicted, the footsteps of the poor.
 26:7 The way of the righteous is straight. Upright One, You make smooth the path of the righteous.
-26:8 Yes, in the way of Your judgments, </span><span class="it"><span class="sc"><span class="content">Adonai
+26:8 Yes, in the way of Your judgments, Adonai, we have waited for You. Your Name and Your remembrance is the desire of our soul.
 26:9 My soul longs for You at night, yes, my spirit within me seeks You. For when Your judgments are in the earth, the inhabitants of the world learn righteousness.
-26:10 Though grace is shown to the wicked, he does not learn righteousness. Even in a land of uprightness he will act wrongly, not perceiving the majesty of </span><span class="it"><span class="sc"><span class="content">Adonai
-26:11 , Your hand is lifted up, yet they do not see it; They will see Your zeal for the people and be put to shame. Yes, fire will devour Your enemies.
-26:12  for us, for all our works You have done for us.
-26:13 , other lords beside You have had dominion over us, but we remember Your Name alone.
+26:10 Though grace is shown to the wicked, he does not learn righteousness. Even in a land of uprightness he will act wrongly, not perceiving the majesty of Adonai.
+26:11 Adonai, Your hand is lifted up, yet they do not see it; They will see Your zeal for the people and be put to shame. Yes, fire will devour Your enemies.
+26:12 Adonai, You will establish shalom for us, for all our works You have done for us.
+26:13 Adonai Eloheinu, other lords beside You have had dominion over us, but we remember Your Name alone.
 26:14 The dead do not live— dead souls do not rise. Thus You punished and destroyed them and wiped out all memory of them.
-26:15 You have increased the nation, </span><span class="it"><span class="sc"><span class="content">Adonai
-26:16 , they sought You in distress, they poured out a whispered prayer when Your discipline was upon them.
-26:17 As a pregnant woman about to give birth writhes and cries out in her pain, so we were before You, </span><span class="it"><span class="sc"><span class="content">Adonai
+26:15 You have increased the nation, Adonai, You have increased the nation. You are glorified as You have expanded all the borders of the land.
+26:16 Adonai, they sought You in distress, they poured out a whispered prayer when Your discipline was upon them.
+26:17 As a pregnant woman about to give birth writhes and cries out in her pain, so we were before You, Adonai.
 26:18 We have been with child, we have been in pain, yet we gave birth to wind. We are accomplishing no deliverance for the earth, nor are inhabitants of the world coming to life.
 26:19 Yet it will be: “Your dead will live! My corpses will rise! Awake and shout for joy, you who dwell in the dust! Your dew is like the dew of the dawn. The land of dead souls will come to life!
 26:20 Go, my people, enter your rooms, and shut your doors behind you. Hide for a little while, until the wrath is past.
-26:21 For behold, </span><span class="it"><span class="sc"><span class="content">Adonai
-27:1 In that day </span><span class="it"><span class="sc"><span class="content">Adonai
+26:21 For behold, Adonai is coming out from His place to punish inhabitants of the earth for iniquity. The earth will disclose her bloodshed, no longer covering up her slain.
+27:1 In that day Adonai will punish Leviathan the fleeing serpent with His fierce, great, strong sword, Leviathan the twisted serpent! He will slay the dragon in the sea.
 27:2 “In that day sing to her, ‘A vineyard of delight!’
-27:3 I, </span><span class="it"><span class="sc"><span class="content">Adonai
+27:3 I, Adonai, watch over it, I water it every moment. I guard it day and night, so that no one may harm it.
 27:4 It is not that I have wrath. Who would give me thorns and thistles? Into battle I would march against them! I would burn them up altogether!
 27:5 Rather let them rely on My strength. Let them make peace with Me— make peace with Me.”
 27:6 In days to come Jacob will take root, Israel will blossom and bud and fill the face of the world with fruit.
@@ -506,62 +506,62 @@
 27:9 So by this will Jacob’s sin be atoned and this the full price to remove his sin: When he makes all the altar stones like shattered chalk stones, so that the Asherah poles and incense rise no more.
 27:10 The fortified city is a lonely habitation, forlorn and forsaken like the desert. There the calf will graze, there lie down and consume its branches.
 27:11 When the boughs are withered, they will be broken off. Women come and set them on fire, for it is a people of no understanding. Therefore their Maker will show them no mercy—He who formed them will give them no grace.
-27:12 It will come about in that day, </span><span class="it"><span class="sc"><span class="content">Adonai
-27:13 It will also come about in that day, a great </span><span class="it"><span class="content">shofar
-28:1  , the proud crown of Ephraim’s drunks! Its glorious beauty is a fading flower, which is at the head of the fertile valleys of those overcome with wine!
-28:2 Behold, </span><span class="it"><span class="sc"><span class="content">Adonai
+27:12 It will come about in that day, Adonai will thresh from the channel of the River to the Wadi of Egypt, and you will be gathered one by one, Bnei-Yisrael.
+27:13 It will also come about in that day, a great shofar will be blown. Those perishing in the land of Assyria and the exiles in the land of Egypt will come and worship Adonai on the holy mountain in Jerusalem.
+28:1 Oy , the proud crown of Ephraim’s drunks! Its glorious beauty is a fading flower, which is at the head of the fertile valleys of those overcome with wine!
+28:2 Behold, Adonai is strong and mighty, like a hailstorm, a destructive tempest, like a downpour of overflowing water, He hurls it down to earth with His hand.
 28:3 The proud crown of Ephraim’s drunks will be trampled underfoot.
 28:4 The glorious beauty is a fading flower which is at the head of the fertile valley, like a first-ripe fig before summer— whoever sees it, swallows it up while it is still in his palm.
-28:5 In that day </span><span class="it"><span class="sc"><span class="content">Adonai
+28:5 In that day Adonai-Tzva’ot will be a crown of glory, a diadem of beauty to the remnant of His people,
 28:6 a spirit of judgment for him who sits on the judgment seat, and strength for those turning back the battle at the gate.
-28:7 But these also reel from wine and stagger from strong drink —the </span><span class="it"><span class="content">kohen
+28:7 But these also reel from wine and stagger from strong drink —the kohen and the prophet reel from strong drink— are confused because of wine, they stagger because of strong drink, they are muddled in vision, they stumble in judgment.
 28:8 Since all the tables are full of the filth of vomit, no place is left.
 28:9 To whom will He teach knowledge? To whom will He explain the message? Those just weaned from milk? Those just taken from the breast?
 28:10 For it must be ‘precept upon precept, precept upon precept, line upon line, line upon line, here a little, there a little.’
 28:11 For through stammering lips and a foreign tongue He will speak to this people,
 28:12 To whom He said, “Here is rest, give rest to the weary, here is repose”— but they would not listen.
-28:13 So the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-28:14 Therefore hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-28:15 “Because you have said, ‘We cut a covenant with death, we made a pact with </span><span class="it"><span class="content">Sheol
-28:16 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+28:13 So the word of Adonai is to them ‘precept on precept, precept on precept, line upon line, line upon line, here a little, there a little.’ So they walk, and fall backward, and are broken, trapped, and captured.
+28:14 Therefore hear the word of Adonai, you scoffers, who rule this people who are in Jerusalem:
+28:15 “Because you have said, ‘We cut a covenant with death, we made a pact with Sheol, so when the overflowing scourge passes through, it won’t come for us, for we have made lies our refuge, and hid ourselves in falsehood’—
+28:16 Therefore thus says Adonai Elohim: ‘Behold, I am laying in Zion a stone, a tested stone, a costly cornerstone, a firm foundation— whoever trusts will not flee in haste.
 28:17 But I will make justice the measuring line and righteousness the plumb line. Hail will sweep away the refuge of lies, and water will overflow the hiding place.
-28:18 Your covenant with death is annulled, and your pact with </span><span class="it"><span class="content">Sheol
+28:18 Your covenant with death is annulled, and your pact with Sheol will not stand. An overflowing scourge will pass through and you will be its trampling place.
 28:19  As often as it passes through, it will seize you—morning by morning, by day and by night passing through. It will be sheer terror to understand the message.’”
 28:20 For too short is the bed to stretch on, too narrow the blanket to wrap up in.
-28:21 For </span><span class="it"><span class="sc"><span class="content">Adonai
-28:22 So now, stop your scoffing, lest your shackles be strengthened! For I have heard from </span><span class="it"><span class="sc"><span class="content">Adonai
+28:21 For Adonai will rise up as at Mount Perazim, He will quake with awe as at the valley of Gibeon, to do His deed, His strange deed, and to work His work, His extraordinary work.
+28:22 So now, stop your scoffing, lest your shackles be strengthened! For I have heard from Adonai Elohei-Tzva’ot of destruction determined upon the whole land.
 28:23 Give ear and hear my voice! Pay attention and hear my words.
 28:24 Does a plowman plow all day to sow the seed? Does he continually break open and harrow his ground?
 28:25 No! When he has leveled its surface, he scatters dill and sows cumin, plants wheat in rows, places barley, and rye on its border.
 28:26 For his God teaches him judgment, instructing him.
 28:27 For dill is not threshed with a sledge, nor is a cart wheel rolled over cumin. Rather, dill is beaten out with a staff, and cumin with a rod.
 28:28 Bread grain is crushed, but not endlessly. Rumbling cart wheels and horses over it would only crush it to powder.
-28:29 This also comes from </span><span class="it"><span class="sc"><span class="content">Adonai
-29:1  , Ariel, Ariel! City where David camped. Year to year again—festivals in a cycle.
+28:29 This also comes from Adonai-Tzva’ot: Wonderful is His counsel, great is His wisdom.
+29:1 Oy , Ariel, Ariel! City where David camped. Year to year again—festivals in a cycle.
 29:2 But I will distress Ariel. There will be lamenting and moaning— then will she be like Ariel to Me?
 29:3 I will encamp against you all around, I will set up siege-works against you and will raise up ramps against you.
 29:4 You will be brought low, you will speak from the ground. From the dust where you are prostrate your speech will come. Your voice will be like a ghost out of the ground, and your speech will whisper out of the dust.
 29:5 Yet the multitude of your foes will become like fine dust, and the multitude of the terrifying like chaff that passes away. It will happen in an instant, suddenly.
-29:6 You will be visited by </span><span class="it"><span class="sc"><span class="content">Adonai
+29:6 You will be visited by Adonai-Tzva’ot with thunder, earthquake, huge noise, whirlwind and storm-wind, and the flame of a consuming fire.
 29:7 It will be like a dream, a night vision: the multitude of all the nations warring against Ariel, yes, all warring against her, the ramparts around her and her besiegers.
 29:8 It will be like a hungry man dreaming and behold, he is eating, but awakes with his hunger unsatisfied, or like a thirsty man dreaming and behold, he is drinking, but awakes faint, his soul thirsting. So it will be with the multitude of all the nations warring against Mount Zion.
 29:9 Wait, and be astounded! Blind yourselves, and be blind! Drunk, but not with wine, Stagger, but not with strong drink.
-29:10 For </span><span class="it"><span class="sc"><span class="content">Adonai
+29:10 For Adonai has poured out on you a spirit of deep sleep, and has shut your eyes—the prophets, and covered your heads—the seers.
 29:11 So this entire vision is for you like the words of a sealed scroll, which they give to one who knows books, saying, “Read this, please,” but he says, “I can’t, because it’s sealed.”
 29:12 Then the scroll is given to one who does not know books, saying, “Read this, please,” but he says, “I don’t know books.”
-29:13 So </span><span class="it"><span class="sc"><span class="content">Adonai
+29:13 So Adonai says, “Since these people draw near with their mouths and honor Me with their lips, yet their hearts are far from Me, and their fear of Me is a mitzvah taught by men.
 29:14 Therefore, behold, once more I will do a marvelous work among this people— a marvel and a wonder— so the wisdom of their wise will perish, and the discernment of their discerning will be concealed.”
-29:15 ! Their works are in the dark. They say, “Who sees us? Who knows us?”
+29:15 Oy , those who go to great depths to hide their plans from Adonai! Their works are in the dark. They say, “Who sees us? Who knows us?”
 29:16 Your perversity! Should the potter be regarded the same as the clay? Should the thing made say to its maker, “You did not make me”? Or the thing formed say of its former, “You have no understanding?”
 29:17 Will it not be just a very little while before Lebanon turns into a garden, and a garden will seem like a forest?
 29:18 In that day the deaf will hear words of a book, and out of gloom and darkness the eyes of the blind will see.
-29:19 The meek will add to their joy in </span><span class="it"><span class="sc"><span class="content">Adonai
+29:19 The meek will add to their joy in Adonai, and the needy of humanity will rejoice in the Holy One of Israel.
 29:20 For the ruthless will come to an end and the scorner will be finished, and all watching to do evil cut off.
 29:21 Those who make a man out to be guilty with a word, and trap him who reproves at the gate, and deny justice with meaninglessness.
-29:22 Therefore, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+29:22 Therefore, thus says Adonai, Redeemer of Abraham, concerning the house of Jacob: “Jacob will no longer be ashamed, no longer will his face grow pale;
 29:23 for when he sees his children, the work of My hands in his midst, they will sanctify My Name; they will sanctify the Holy One of Jacob, and stand in awe of the God of Israel.
 29:24 Those who go astray in spirit will come to understanding, and those who murmur will learn instruction.”
-30:1 “</span><span class="it"><span class="content">Oy
+30:1 “Oy , the rebellious children” —it is a declaration of Adonai— “Who carry out a plan, but not Mine, and make an alliance, but not of My Ruach, so they may add sin to sin,
 30:2 who go down to Egypt, but did not consult Me, to take refuge in Pharaoh’s stronghold, to seek shelter in Egypt’s shadow.
 30:3 Therefore Pharaoh’s stronghold will become your shame, and the shelter in Egypt’s shadow will become your disgrace.
 30:4 For though their princes are at Zoan and their ambassadors reach Hanes,
@@ -569,31 +569,31 @@
 30:6 The burden concerning the beasts of the Negev: Through a land of trouble and anguish, in which are lioness and lion, viper and flying serpent, they are carrying their riches on the backs of young donkeys, their treasures on camel humps, to a people who cannot profit them.
 30:7 Egypt’s help is futile and pointless. Therefore I have called her “Rahab who just sits.”
 30:8 Now go, write it on a tablet for them and inscribe it in a scroll, so that it may be as a witness for the last day, forever.
-30:9 For this is a rebellious people, lying children, children unwilling to obey the </span><span class="it"><span class="content">Torah
+30:9 For this is a rebellious people, lying children, children unwilling to obey the Torah of Adonai.
 30:10 They say to the seers, “Do not see,” and to the prophets, “Do not prophesy to us what is right. Speak to us smooth words. Prophesy illusions.
 30:11 Get out of the way! Turn away from the path! Let’s hear no more about the Holy One of Israel.”
 30:12 Therefore thus says the Holy One of Israel: “Because you despise this word, and trust in oppression and rely on perversity,
 30:13 therefore this sin will be to you like a crack bulging in a high wall, about to fall— its collapse comes suddenly, in an instant!
 30:14 Its collapse is like smashing a clay jar, so ruthlessly shattered that a shard will not be found among the pieces to take fire from the hearth or scoop water from the cistern.”
-30:15 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+30:15 For thus says Adonai Elohim, the Holy One of Israel: “By repentance and rest you are saved, in quietness and trust is your strength— but you were not willing.”
 30:16 But you said, “No, we will flee on horses!” Therefore you will flee. And, “We will ride on swift horses!” Therefore your pursuers will be swift.
 30:17 A thousand will flee at the threat of one, at the threat of five you will flee, until you are left like a flag on the top of a mountain, and like a banner on a hill.
-30:18 Therefore </span><span class="it"><span class="sc"><span class="content">Adonai
+30:18 Therefore Adonai is longing to be gracious to you. Thus He will be exalted, so He may have mercy on you. For Adonai is a God of justice. Blessed are all who wait for Him.
 30:19 For the people of Zion who are dwelling in Jerusalem will weep no more. He will surely be gracious to you at the sound of your cry. When He hears you, He will answer.
-30:20 Though </span><span class="it"><span class="sc"><span class="content">Adonai
+30:20 Though Adonai gives you the bread of adversity and the water of oppression, your teachers will no longer be hidden, but your eyes will see your teachers.
 30:21 Your ears will hear a word behind you saying: “This is the way, walk in it. When you turn to the right, or when you turn to the left.”
 30:22 You will defile your graven images overlaid with silver, and your metal images covered with gold. You will throw them away like a menstrual cloth. You will say, “Be gone!”
 30:23 Then He will give you rain for your seed, which you will sow in the ground, and bread, the produce of the ground, will be rich and plentiful. In that day your cattle will feed in wide-open pasture.
 30:24 The oxen and the young donkeys that till the ground will eat seasoned fodder, which has been winnowed with shovel and pitchfork.
 30:25 There will be, on every high mountain and on every lofty hill, streams running with water— on a day of the great slaughter, when the towers fall.
-30:26 Moreover the light of the moon will be as the light of the sun, and the light of the sun will be seven times brighter— like the light of seven days— in the day </span><span class="it"><span class="sc"><span class="content">Adonai
-30:27 Look, </span><span class="it"><span class="sc"><span class="content">Adonai
-30:28 His </span><span class="it"><span class="content">Ruach
-30:29 You will have songs as in the night when you keep a holy festival, and gladness of heart like one walking with the flute to go to the mountain of </span><span class="it"><span class="sc"><span class="content">Adonai
-30:30  will make His glorious voice heard, and reveal His arm descending with fierce fury in a consuming fire, in cloudburst, rainstorm and hailstones.
-30:31 For at the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-30:32 Every stroke of His punishing rod that </span><span class="it"><span class="sc"><span class="content">Adonai
-30:33 For Topheth has long been ready, prepared for the king, its fire pit made deep and wide, a pyre of fire with plenty of wood. The breath of </span><span class="it"><span class="sc"><span class="content">Adonai
+30:26 Moreover the light of the moon will be as the light of the sun, and the light of the sun will be seven times brighter— like the light of seven days— in the day Adonai binds up the brokenness of His people, and heals the wounds He inflicted.
+30:27 Look, Adonai’s Name comes from afar, burning with His anger, in thick rising smoke, His lips full of indignation, His tongue like a consuming fire,
+30:28 His Ruach like an overflowing torrent rising up to the neck, to sift the nations with the sieve of the worthless, to put in the jaws of the peoples a bridle that leads away.
+30:29 You will have songs as in the night when you keep a holy festival, and gladness of heart like one walking with the flute to go to the mountain of Adonai, to the Rock of Israel.
+30:30 Adonai will make His glorious voice heard, and reveal His arm descending with fierce fury in a consuming fire, in cloudburst, rainstorm and hailstones.
+30:31 For at the voice of Adonai, Assyria will be terrified— when He strikes with the rod.
+30:32 Every stroke of His punishing rod that Adonai brings down on him —with tambourines and harps, and battles brandishing His arm— He will fight against them.
+30:33 For Topheth has long been ready, prepared for the king, its fire pit made deep and wide, a pyre of fire with plenty of wood. The breath of Adonai, like a torrent of brimstone, sets it aflame.
 31:1 !
 31:2 Yet He is also wise. He brings disaster, and does not take back His words. He rises against the house of evildoers, against help for workers of iniquity.
 31:3 Now Egyptians are men and not God, and their horses are flesh, not spirit. When </span><span class="it"><span class="sc"><span class="content">Adonai
