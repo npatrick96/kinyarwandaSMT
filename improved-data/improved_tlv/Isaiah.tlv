@@ -594,21 +594,21 @@
 30:31 For at the voice of Adonai, Assyria will be terrified— when He strikes with the rod.
 30:32 Every stroke of His punishing rod that Adonai brings down on him —with tambourines and harps, and battles brandishing His arm— He will fight against them.
 30:33 For Topheth has long been ready, prepared for the king, its fire pit made deep and wide, a pyre of fire with plenty of wood. The breath of Adonai, like a torrent of brimstone, sets it aflame.
-31:1 !
+31:1 Oy , those going down to Egypt for help. They are relying on horses, trusting in chariots since they are many, and in horsemen since they are very mighty, but do not look to the Holy One of Israel nor seek Adonai!
 31:2 Yet He is also wise. He brings disaster, and does not take back His words. He rises against the house of evildoers, against help for workers of iniquity.
-31:3 Now Egyptians are men and not God, and their horses are flesh, not spirit. When </span><span class="it"><span class="sc"><span class="content">Adonai
-31:4 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-31:5 Like hovering birds, so </span><span class="it"><span class="sc"><span class="content">Adonai
-31:6 Return to the One from whom rebellion is so deep, </span><span class="it"><span class="content">Bnei-Yisrael
+31:3 Now Egyptians are men and not God, and their horses are flesh, not spirit. When Adonai stretches out His hand, both he who helps will stumble and he who is helped will fall, and both will perish together.
+31:4 For thus says Adonai to me: “As a lion or a young lion growls over its prey, though a company of shepherds is called out against him —their voice does not disturb him, nor does their noise upset him— so Adonai-Tzva’ot will come down to fight on Mount Zion, on its hill.
+31:5 Like hovering birds, so Adonai-Tzva’ot will protect Jerusalem. By protecting, He will deliver. By passing over, He will save.”
+31:6 Return to the One from whom rebellion is so deep, Bnei-Yisrael.
 31:7 For in that day everyone will cast away his idols of silver and his idols of gold, which you made for yourselves with your hands of sin.
 31:8 “Then Assyria will fall, not by a sword of man, so a sword not of man will devour him and he will flee from the sword. His young men will be put to forced labor.
-31:9  His rock will pass away because of fear. His princes will be afraid of the banner” —it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+31:9  His rock will pass away because of fear. His princes will be afraid of the banner” —it is a declaration of Adonai— His fire is in Zion, and His furnace is in Jerusalem.
 32:1 Behold, a king will reign in righteousness and princes will rule in justice.
 32:2 Each will be like a refuge from the wind and a shelter from the storm, like streams of water in a dry place, like the shade of a massive rock in a weary land.
 32:3 Then the eyes of those who see will not be closed, and the ears of those who hear will pay attention.
 32:4 The heart of the hasty will understand knowledge, and the tongue of stammerers will speak fluently, clearly.
 32:5 No longer will a fool be called noble, or a scoundrel said to be a gentleman.
-32:6 For the fool speaks foolishness and his heart works wickedness, to practice ungodliness, and speak error about </span><span class="it"><span class="sc"><span class="content">Adonai
+32:6 For the fool speaks foolishness and his heart works wickedness, to practice ungodliness, and speak error about Adonai, to deprive the hungry of food and withhold drink from the thirsty.
 32:7 The scoundrel’s methods are evil— he makes up wicked schemes to destroy the poor with lies, even when the plea of the needy is just.
 32:8 But the noble devises noble plans, and for noble causes he stands.
 32:9 Rise up, you women at ease, And hear my voice. You complacent daughters, give ear to my words.
@@ -617,22 +617,22 @@
 32:12 Beat your breasts lamenting for pleasant fields, for fruitful vine,
 32:13 for the land of my people, where thorns and briars come up, for all the joyful houses of the jubilant city.
 32:14 For the palace will be abandoned; the bustling city will be deserted; the citadel and watchtower will become a wasteland forever, a delight of wild donkeys, a pasture for flocks,
-32:15 until the </span><span class="it"><span class="content">Ruach
+32:15 until the Ruach is poured out on us from on high, and the desert becomes a garden, and a garden seems like a forest.
 32:16 Then justice will dwell in the wilderness, and righteousness abide in the garden.
-32:17 The result of righteousness will be </span><span class="it"><span class="content">shalom
+32:17 The result of righteousness will be shalom and the effect of righteousness will be quietness and confidence forever.
 32:18 My people will live in a peaceful place, in secure dwellings, quiet resting places.
 32:19 Then hail will flatten the forest; and the city will be utterly laid low.
 32:20 Blessed are you, sowing by all waters, letting the feet of the ox and the donkey range free.
-33:1  , you destroyer, never destroyed, you traitor, never betrayed! When you have stopped destroying, you will be destroyed; and when you finish betraying, they will betray you.
-33:2 , be gracious to us! We long for You. Be our strength every morning, our salvation in time of trouble.
+33:1 Oy , you destroyer, never destroyed, you traitor, never betrayed! When you have stopped destroying, you will be destroyed; and when you finish betraying, they will betray you.
+33:2 Adonai, be gracious to us! We long for You. Be our strength every morning, our salvation in time of trouble.
 33:3 From the noise of tumult people will flee; When You lift Yourself up, the nations will be scattered.
 33:4 Your spoil is gathered as the caterpillar gathers; like a swarm of locusts, they are rushing over it.
-33:5  is exalted, for He dwells on high! He has filled Zion with justice and righteousness.
-33:6 It will be your time of faithfulness, a wealth of salvation, wisdom and knowledge— the fear of </span><span class="it"><span class="sc"><span class="content">Adonai
+33:5 Adonai is exalted, for He dwells on high! He has filled Zion with justice and righteousness.
+33:6 It will be your time of faithfulness, a wealth of salvation, wisdom and knowledge— the fear of Adonai is His treasure.
 33:7 Behold, heroes cry outside. Ambassadors of peace weep bitterly.
 33:8 Highways are desolate; travel has ceased; covenant is broken; cities are despised; there is no regard for humanity.
 33:9 The land mourns and languishes; Lebanon is shamed and withers; Sharon is like a wilderness; Bashan and Carmel are shaken bare.
-33:10 “Now I will arise,” says </span><span class="it"><span class="sc"><span class="content">Adonai
+33:10 “Now I will arise,” says Adonai. “Now I will be exalted. Now I will lift Myself up.
 33:11 You conceive chaff, you will give birth to stubble. My breath is a fire that will consume you.
 33:12 Then peoples will be burned as lime, like thorns cut down, burned in the fire.
 33:13 Hear, you who are afar off, what I have done, and you who are near, acknowledge My might.”
@@ -643,18 +643,18 @@
 33:18 Your heart will meditate on terror: “Where is the counter?” “Where is the weigher?” “Where is the counter of towers?”
 33:19 You will no longer see the fierce people, the people of speech too obscure to comprehend, with a stammering tongue no one understands.
 33:20 Look upon Zion, city of our Festivals. Your eyes will see Jerusalem as a quiet home, a tent that will never be folded, Its stakes never pulled up, its cords never broken.
-33:21 For there the majestic One, </span><span class="it"><span class="sc"><span class="content">Adonai
-33:22 For </span><span class="it"><span class="sc"><span class="content">Adonai
+33:21 For there the majestic One, Adonai, will be for us— a place of rivers and wide canals, on which no boat with oars will go, nor any mighty ship will travel by.
+33:22 For Adonai is our Judge, Adonai is our Lawgiver, Adonai is our King— He will save us!
 33:23 Your cords hang slack, not holding the mast in place firmly, nor spreading out the sail. Then abundant spoil will be divided— even the lame will carry off plunder.
 33:24 No inhabitant will say, “I am sick.” The people dwelling there will be forgiven their iniquity.
 34:1 Draw near, O nations, to hear, and listen, O peoples! Let the earth hear, and all it contains, the world, and all its offspring!
-34:2 For </span><span class="it"><span class="sc"><span class="content">Adonai
+34:2 For Adonai is enraged at all the nations, and furious at all their armies. He will utterly destroy them. He will give them over to slaughter.
 34:3 So their slain will be thrown out, and the stench of their corpses will rise, and the hills will be drenched with their blood.
 34:4 Then all the host of heaven will dissolve, and the skies will be rolled up like a scroll— so all their array will wither away, like a leaf drooping from a vine, like a fig shriveling from a fig tree.
 34:5 For My sword has drunk its fill in the heavens. See, it will come down upon Edom, upon the people I have devoted to judgment.
-34:6 The sword of </span><span class="it"><span class="sc"><span class="content">Adonai
+34:6 The sword of Adonai is filled with blood, gorged with fat— the blood of lambs and goats, the fat of kidneys of rams. For Adonai has a sacrifice in Bozrah, a great slaughter in the land of Edom.
 34:7 Wild oxen will go down with them, bull calves with mighty steers. So their land will be soaked with blood and their dust greasy with fat.
-34:8 For </span><span class="it"><span class="sc"><span class="content">Adonai
+34:8 For Adonai has a day of vengeance, a year of recompense for the hostility against Zion.
 34:9 Its streams will be turned into pitch, its dust into brimstone, and its land will become burning tar.
 34:10 It will not be quenched night or day. Its smoke will go up forever. From generation to generation it will lay waste—forever and ever none will pass through it.
 34:11 But pelican and porcupine will have it, owl and raven will dwell in it. He will stretch a line of chaos over it and stones of desolation.
@@ -662,10 +662,10 @@
 34:13 Thorns will come up in its palaces, nettles and thistles in its fortresses. It will be a haunt of jackals, an abode for ostriches.
 34:14 Wildcats will meet with wolves, the goat-demon will cry to its kind— yes, the night monster will settle there and find itself a resting place.
 34:15 A tree snake will nest and lay eggs there, hatch and gather them under its shadow. Surely, hawks are gathered there, each one with her mate.
-34:16 Seek from the scroll of </span><span class="it"><span class="sc"><span class="content">Adonai
+34:16 Seek from the scroll of Adonai, and read! Not one of them will be missing; none will lack its mate. For His mouth commanded it, and His Ruach gathered them.
 34:17 He cast the lot for them, and His hand divided it out to them with the line. They will possess it forever, and dwell in it from generation to generation.
 35:1 The wilderness and dry land will be glad. The desert will rejoice and blossom like a lily.
-35:2 It will blossom profusely, will rejoice with joy and singing, will be given the glory of Lebanon, the splendor of Carmel and Sharon. They will see the glory of </span><span class="it"><span class="sc"><span class="content">Adonai
+35:2 It will blossom profusely, will rejoice with joy and singing, will be given the glory of Lebanon, the splendor of Carmel and Sharon. They will see the glory of Adonai, the splendor of our God.
 35:3 Strengthen the limp hands, make firm the wobbly knees.
 35:4 Say to those with anxious heart, “Be strong, have no fear!” Behold, your God! Vengeance is coming! God’s recompense—it is coming! Then He will save you.
 35:5 Then the eyes of the blind will be opened and the ears of the deaf unstopped.
@@ -673,35 +673,35 @@
 35:7 The parched land will become a pool, the thirsty ground springs of water. In the haunt of jackals, where they rest, grass will become reeds and rushes.
 35:8 A highway will be there—a roadway. It will be called the Way of Holiness. The unclean will not travel on it. It is for the one who walks the way. Fools will not go astray.
 35:9 No lion will be there. No ravenous beast will go up on it. They will not be found there. But the redeemed will walk there.
-35:10 The ransomed of </span><span class="it"><span class="sc"><span class="content">Adonai
+35:10 The ransomed of Adonai will return and come to Zion with singing, with everlasting joy upon their heads. They will obtain gladness and joy, and sorrow and sighing will flee away.
 36:1 Now it came to pass in the fourteenth year of King Hezekiah that King Sennacherib of Assyria came up against all the fortified cities of Judah and captured them.
 36:2 The king of Assyria sent the Rab-shakeh from Lachish to Jerusalem to King Hezekiah with a massive army. The Rab-shakeh stood by the aqueduct of the upper pool in the highway of the washer’s field.
 36:3 Then Eliakim son of Hilkiah, who was in charge of the palace, Shebna the scribe, and Joah son of Asaph the recorder came out to him.
 36:4 So the Rab-shakeh said to them, “Say now to Hezekiah, thus says the great king, the king of Assyria: ‘What is this confidence you’ve relied on?
 36:5 I say your strategy and strength for war are only words of a lip. Who do you rely on now, so that you have rebelled against me?
 36:6 Behold, you rely on this splintered reed as a staff—Egypt! If a man leans on it, it will go into the palm of his hand and pierce it—thus Pharaoh king of Egypt is to all who trust in him.
-36:7 “‘But if you say to me: ‘We trust in </span><span class="it"><span class="sc"><span class="content">Adonai
+36:7 “‘But if you say to me: ‘We trust in Adonai our God’—is it not He whose high places and altars Hezekiah has removed, and then said to Judah and to Jerusalem, ‘You must worship before this altar’?
 36:8 “So now, make a bargain with my master, the king of Assyria. I’ll give you 2,ooo horses—if you could put riders of your own on them.
 36:9 So, how can you repulse a single lieutenant—the least of my master’s servants? Yes, you’re relying on Egypt for chariots and for horsemen.
-36:10 “Moreover, have I now come up against this land to destroy it without </span><span class="it"><span class="sc"><span class="content">Adonai
+36:10 “Moreover, have I now come up against this land to destroy it without Adonai’s approval? Adonai said to me: ‘Go up against this land, and destroy it.’”
 36:11 Then Eliakim and Shebna and Joah said to the Rab-shakeh: “Please speak to your servants in Aramaic, for we understand it. Don’t speak to us in the language of the Jews when the people on the wall are listening.”
 36:12 But the Rab-shakeh said: “Has my master sent me only to your master and to you to speak these words? Hasn’t he sent me to the men who sit on the wall—who will eat their own waste and drink their own urine with you?”
 36:13 Then the Rab-shakeh stood and cried with a loud voice in the language of the Jews and said: “Hear the words of the great king, the king of Assyria.
 36:14 Thus says the king: ‘Don’t let Hezekiah deceive you, for he will not be able to deliver you!
-36:15 Nor let Hezekiah persuade you to trust in </span><span class="it"><span class="sc"><span class="content">Adonai
+36:15 Nor let Hezekiah persuade you to trust in Adonai by saying, “Adonai will surely deliver us—this city will not be given into the hand of the king of Assyria.”’
 36:16 “Don’t listen to Hezekiah! For thus says the king of Assyria: ‘Make peace with me and come out to me. Then everyone will eat from his own vine and fig tree, and everyone will drink water from his own cistern,
 36:17 until I come and take you away to a land like your own land—a land of grain and wine, a land of bread and vineyards.’
-36:18 “Beware that Hezekiah does not mislead you by saying, ‘</span><span class="it"><span class="sc"><span class="content">Adonai
+36:18 “Beware that Hezekiah does not mislead you by saying, ‘Adonai will deliver us.’ Has any one of the gods of the nations delivered his land from the hand of the king of Assyria?
 36:19 Where are the gods of Hamath and Arpad? Where are the gods of Sepharvaim? Indeed, when did they deliver Samaria from my hand?
-36:20 Who among all the gods of these lands have delivered their country out of my hand? So will </span><span class="it"><span class="sc"><span class="content">Adonai
+36:20 Who among all the gods of these lands have delivered their country out of my hand? So will Adonai deliver Jerusalem from my hand?”
 36:21 But they were silent, and did not answer him a word, for the king’s commandment was, “Do not answer him.”
 36:22 Then Eliakim son of Hilkiah, who was in charge of the palace, and Shebna the scribe, and Joah son of Asaph the recorder came to Hezekiah with their clothes torn, and told him the words of the Rab-shakeh.
-37:1 When King Hezekiah heard it, he tore his clothes, covered himself with sackcloth, and went into the House of </span><span class="it"><span class="sc"><span class="content">Adonai
-37:2 Then he sent Eliakim, who was in charge of the palace, Shebna the scribe and the senior </span><span class="it"><span class="content">kohanim
+37:1 When King Hezekiah heard it, he tore his clothes, covered himself with sackcloth, and went into the House of Adonai.
+37:2 Then he sent Eliakim, who was in charge of the palace, Shebna the scribe and the senior kohanim, covered with sackcloth, to Isaiah the prophet, son of Amoz.
 37:3 Then they said to him: “Thus says Hezekiah: This day is a day of distress, rebuke and contempt. For children have come to the point of birth, and there is no strength for giving birth.
-37:4 Perhaps </span><span class="it"><span class="sc"><span class="content">Adonai
+37:4 Perhaps Adonai your God, will hear the words of the Rab-shakeh, whom his master the king of Assyria has sent to mock the living God, and will rebuke the words which Adonai your God has heard. So offer prayer for the remnant that is left.”
 37:5 When the officials of King Hezekiah came to Isaiah,
-37:6 Isaiah said to them: “Thus you will say to your master, ‘Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+37:6 Isaiah said to them: “Thus you will say to your master, ‘Thus says Adonai: Do not be afraid of the words you have heard, with which the boys of the king of Assyria have blasphemed Me.
 37:7 Behold, I am putting a spirit in him so that he will hear a rumor, and will return to his own country; then I will cause him to fall by the sword in his own land.’”
 37:8 Then the Rab-shakeh returned, and found the king of Assyria fighting against Libnah, for he had heard he had withdrawn from Lachish.
 37:9 Now he had heard them say concerning Tirhakah king of Ethiopia, saying: “He has come out to fight against you.” When he heard it, he sent messengers to Hezekiah saying:
@@ -709,15 +709,15 @@
 37:11 Behold, you have heard what the kings of Assyria have done to all lands—utterly destroying them—so will you be delivered?
 37:12 Have the gods of the nations delivered those my fathers destroyed—Gozan, Haran, Rezeph, or the children of Eden who were in Telassar?
 37:13 Where is the king of Hamath, or the king of Arpad, or the king of the city of Sepharvaim, of Hena, or Ivvah?’”
-37:14 Then Hezekiah received the letter from the hand of the messengers and read it. Then Hezekiah went up to the House of </span><span class="it"><span class="sc"><span class="content">Adonai
-37:15 Hezekiah prayed to </span><span class="it"><span class="sc"><span class="content">Adonai
-37:16 “</span><span class="it"><span class="sc"><span class="content">Adonai
-37:17 Incline Your ear, </span><span class="it"><span class="sc"><span class="content">Adonai
-37:18 It is true, </span><span class="it"><span class="sc"><span class="content">Adonai
+37:14 Then Hezekiah received the letter from the hand of the messengers and read it. Then Hezekiah went up to the House of Adonai and spread it before Adonai.
+37:15 Hezekiah prayed to Adonai saying:
+37:16 “Adonai-Tzva’ot, God of Israel, who is enthroned upon the cheruvim, You alone are God of all the kingdoms of the earth. You have made heaven and earth.
+37:17 Incline Your ear, Adonai, and hear! Open Your eyes, Adonai, and see! Listen to all the words of Sennacherib, who was sent to mock the living God.
+37:18 It is true, Adonai, the kings of Assyria have devastated all the countries and their lands,
 37:19 and have cast their gods into the fire—for they were not gods, but the work of human hands, wood and stone. So they have destroyed them.
-37:20 Now, </span><span class="it"><span class="sc"><span class="content">Adonai
-37:21 Then Isaiah son of Amoz sent word to Hezekiah saying, “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-37:22 this is the word that </span><span class="it"><span class="sc"><span class="content">Adonai
+37:20 Now, Adonai our God, save us from his hand, so that all the kingdoms of the earth may know that You alone are Adonai!”
+37:21 Then Isaiah son of Amoz sent word to Hezekiah saying, “Thus says Adonai, the God of Israel: ‘Because you prayed to Me about King Sennacherib of Assyria,
+37:22 this is the word that Adonai has spoken about him: “The virgin Daughter of Zion will despise you and mock you. The daughter of Jerusalem will shake her head at you.
 37:23 Whom did you taunt and blaspheme? Against whom did you raise your voice and haughtily lift up your eyes? Against the Holy One of Israel!
 37:24 Through your servants, you have blasphemed my Lord and said: ‘With my many chariots I have climbed to the heights of the mountains, to the remotest parts of Lebanon! I cut down its tall cedars and choice cypress trees. I have gone to its farthest peak, its thickest forest.
 37:25 I dug and drank water, and with the sole of my feet, I dried up all the streams of Egypt.’
@@ -727,56 +727,56 @@
 37:29 Because your raging against Me and your arrogance reached My ears, I will put My hook in your nose, and My bridle in your lips, and I will turn you back by the way that you came.”
 37:30 So this shall be the sign to you: This year you will eat what grows by itself, in the second year what springs from that. But in the third year, you will sow, reap, plant vineyards, and eat their fruit.
 37:31 The surviving remnant of the house of Judah will take root downward and bear fruit upward.
-37:32 For from Jerusalem a remnant will go out, and survivors from Mount Zion. The zeal of </span><span class="it"><span class="sc"><span class="content">Adonai
-37:33 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-37:34 By the way that he came, by the same he will return, and he will not come into this city” —it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+37:32 For from Jerusalem a remnant will go out, and survivors from Mount Zion. The zeal of Adonai-Tzva’ot shall perform this.”
+37:33 Therefore thus says Adonai concerning the king of Assyria: “He will not come to the city, or shoot an arrow there, or come before it with a shield, or throw up a siege-ramp against it.
+37:34 By the way that he came, by the same he will return, and he will not come into this city” —it is a declaration of Adonai.
 37:35 “For I will defend this city to save it, for My own sake, and for My servant David’s sake.”
-37:36 Then the angel of </span><span class="it"><span class="sc"><span class="content">Adonai
+37:36 Then the angel of Adonai went out and struck down 185,000 men in the Assyrian camp. When the men arose early in the morning, behold, they were all dead corpses.
 37:37 So King Sennacherib of Assyria withdrew, and returned home, and stayed in Nineveh.
 37:38 It also came to pass, as he was worshipping in the house of his god Nisroch, that his sons Adrammelech and Sarezer struck him down with the sword, and escaped into the land of Ararat. Then his son Esarhaddon became king in his place.
-38:1 In those days Hezekiah became mortally ill. So Isaiah the prophet son of Amoz came to him and said to him, “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-38:2 Then Hezekiah turned his face to the wall, and prayed to </span><span class="it"><span class="sc"><span class="content">Adonai
-38:3 He said: “Please, </span><span class="it"><span class="sc"><span class="content">Adonai
-38:4 Then it came to pass, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-38:5 “Go, and say to Hezekiah, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+38:1 In those days Hezekiah became mortally ill. So Isaiah the prophet son of Amoz came to him and said to him, “Thus says Adonai: Put your house in order. For you are dying, and will not live.”
+38:2 Then Hezekiah turned his face to the wall, and prayed to Adonai.
+38:3 He said: “Please, Adonai, remember how I have walked before You in truth and with a whole heart, and have done what is good in Your eyes.” And Hezekiah wept bitterly.
+38:4 Then it came to pass, the word of Adonai came to Isaiah saying:
+38:5 “Go, and say to Hezekiah, thus says Adonai, the God of your father David: ‘I have heard your prayer and I have seen your tears. Behold, I will add 15 years to your life.
 38:6 I will deliver you and this city from the hand of the king of Assyria; I will defend this city.’
-38:7 “Now this will be the sign to you from </span><span class="it"><span class="sc"><span class="content">Adonai
+38:7 “Now this will be the sign to you from Adonai, that Adonai will do this word He has spoken:
 38:8 Behold, I will cause the shadow on the stairs, which went down with the sun on the sundial of Ahaz, to turn back ten steps.” So the sun’s shadow went back ten steps on the sundial on which it had gone down.
 38:9 A writing of King Hezekiah of Judah, after his illness, when he recovered from his illness:
-38:10 I said: “In the prime of my life, I am to enter the gates of </span><span class="it"><span class="content">Sheol
-38:11 I said: “I will not see </span><span class="it"><span class="sc"><span class="content">Adonai
+38:10 I said: “In the prime of my life, I am to enter the gates of Sheol. I am deprived of the rest of my years.”
+38:11 I said: “I will not see Adonai, Adonai, in the land of the living. I will look on humanity no longer among the inhabitants of the world.
 38:12 Like a shepherd’s tent, my dwelling is pulled up and carried away from me. Like a weaver I rolled up my life. He cuts me off from the loom. From day until night You make my end.
 38:13 I stilled my soul till morning. Like a lion, He will break all my bones. From day till night You make my end.
-38:14 Like a swallow or a crane, I whisper, I moan like a dove. My eyes are weary, looking upward. </span><span class="it"><span class="sc"><span class="content">Adonai
+38:14 Like a swallow or a crane, I whisper, I moan like a dove. My eyes are weary, looking upward. Adonai, I am oppressed, be my security!
 38:15 What should I say? For He has spoken to me— He Himself has done it! I will wander about all my years because of the bitterness of my soul.
-38:16 , by such things men live, and my spirit has life in them too. Restore me to health, and let me live!
-38:17 Behold, it was for my own </span><span class="it"><span class="content">shalom
-38:18 For </span><span class="it"><span class="content">Sheol
+38:16 Adonai, by such things men live, and my spirit has life in them too. Restore me to health, and let me live!
+38:17 Behold, it was for my own shalom that I had great bitterness. You have loved my soul out of the Pit of destruction! For You have flung all my sins behind Your back.
+38:18 For Sheol cannot thank You, death cannot praise You. Those who go down to the Pit cannot hope for Your faithfulness.
 38:19 The living, the living—they praise You— as I do today. A father makes Your faithfulness known to his children.
-38:20 .”
+38:20 Adonai will save me. So we will play my songs on stringed instruments all the days of our life in the House of Adonai.”
 38:21 Now Isaiah had said, “Let them take a cake of figs, and apply it to the boil, and he will live.”
-38:22 Hezekiah had said, “What is the sign that I will go up to the House of </span><span class="it"><span class="sc"><span class="content">Adonai
+38:22 Hezekiah had said, “What is the sign that I will go up to the House of Adonai?”
 39:1 At that time Merodach-baladan, son of King Baladan of Babylon, sent letters and a present to Hezekiah, for he had heard that he had been sick and had recovered.
 39:2 Now Hezekiah was pleased with them, so he showed them his treasure house—the silver and the gold, the spices and the precious oil—and his whole armory, and everything that was found in his treasuries. There was nothing in his house or in all his dominion that Hezekiah did not show them.
 39:3 Then Isaiah the prophet came to King Hezekiah and asked him, “What did these men say, and from where did they come to you?” Hezekiah replied, “They have come to me from a far country, from Babylon.”
 39:4 Then he asked, “What have they seen in your house?” Hezekiah said, “They have seen everything in my house. There is nothing among my treasuries that I didn’t show them.”
-39:5 Then Isaiah said to Hezekiah: “Hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-39:6 ‘Behold, days are coming when everything in your house, which your fathers have stored up to this day, will be carried to Babylon—nothing will be left,’ says </span><span class="it"><span class="sc"><span class="content">Adonai
+39:5 Then Isaiah said to Hezekiah: “Hear the word of Adonai-Tzva’ot,
+39:6 ‘Behold, days are coming when everything in your house, which your fathers have stored up to this day, will be carried to Babylon—nothing will be left,’ says Adonai.
 39:7 ‘Moreover, some of your descendants—who will issue from you, whom you will father—will be taken away and will become eunuchs in the palace of the king of Babylon.’”
-39:8 Then Hezekiah said to Isaiah, “The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+39:8 Then Hezekiah said to Isaiah, “The word of Adonai which you have spoken is good.” For he thought, “For there will be shalom and security in my days.”
 40:1 “Comfort, comfort My people,” says your God.
-40:2 Speak kindly to the heart of Jerusalem and proclaim to her that her warfare has ended, that her iniquity has been removed. For she has received from </span><span class="it"><span class="sc"><span class="content">Adonai
-40:3 A voice cries out in the wilderness, “Prepare the way of </span><span class="it"><span class="sc"><span class="content">Adonai
+40:2 Speak kindly to the heart of Jerusalem and proclaim to her that her warfare has ended, that her iniquity has been removed. For she has received from Adonai’s hand double for all her sins.
+40:3 A voice cries out in the wilderness, “Prepare the way of Adonai, Make straight in the desert a highway for our God.
 40:4 Every valley will be lifted up, every mountain and hill made low, the rough ground will be a plain and the rugged terrain smooth.
-40:5 The glory of </span><span class="it"><span class="sc"><span class="content">Adonai
+40:5 The glory of Adonai will be revealed, and all flesh will see it together.” For the mouth of Adonai has spoken.
 40:6 A voice is saying, “Cry out!” So I said, “What shall I cry out?” “All flesh is grass, and all its loveliness is like the flower of the field.
-40:7 The grass withers, the flower fades. For the breath of </span><span class="it"><span class="sc"><span class="content">Adonai
+40:7 The grass withers, the flower fades. For the breath of Adonai blows on it. Surely the people are grass.
 40:8 The grass withers, the flower fades. But the word of our God stands forever.”
 40:9 Get yourself up on a high mountain, you who bring good news to Zion! Lift up your voice with strength, you who bring good news to Jerusalem! Lift it up! Do not fear! Say to the cities of Judah: “Behold your God!”
-40:10 Look, </span><span class="it"><span class="sc"><span class="content">Adonai
+40:10 Look, Adonai Elohim comes with might, with His arm ruling for Him. Behold, His reward is with Him, and His recompense before Him.
 40:11 Like a shepherd, He tends His flock. He gathers the lambs in His arms carries them in his bosom, and gently guides nursing ewes.
 40:12 Who has measured the waters in the palm of His hand, or measured out heaven with a span, or calculated the dust of the earth in a measure, or weighed the mountains in scales, or the hills in a balance?
-40:13 Who can fathom the </span><span class="it"><span class="content">Ruach
+40:13 Who can fathom the Ruach Adonai? Or instruct Him as His counselor?
 40:14 With whom did He consult, and who instructed Him? Who taught Him in the path of justice or taught Him knowledge? Who informed Him about the way of understanding?
 40:15 Behold, the nations are like a drop from a bucket, and count as a speck of dust on the scales. Behold, the islands weigh as fine dust.
 40:16 Lebanon is not enough to burn, or its animals enough for a burnt offering.
@@ -790,15 +790,15 @@
 40:24 Scarcely are they planted, scarcely are they sown, scarcely their stem takes root in the earth, when He blows on them and they wither, and a storm carries them off as stubble.
 40:25 “To whom then will you liken Me? Or who is My equal?” says the Holy One.
 40:26 Lift up your eyes on high, and see! Who created these? The One who brings out their host by number, the One who calls them all by name. Because of His great strength and vast power, not one is missing.
-40:27 Why do you say, O Jacob, and assert, O Israel, “My way is hidden from </span><span class="it"><span class="sc"><span class="content">Adonai
-40:28 Have you not known? Have you not heard? </span><span class="it"><span class="sc"><span class="content">Adonai
+40:27 Why do you say, O Jacob, and assert, O Israel, “My way is hidden from Adonai, and the justice due me escapes the notice of my God”?
+40:28 Have you not known? Have you not heard? Adonai is the eternal God, the Creator of the ends of the earth. He does not grow tired or weary. His understanding is unsearchable.
 40:29 He gives strength to the weary, and to one without vigor He adds might.
 40:30 Even youths grow tired and weary, and young men stumble and fall,
-40:31 but they who wait for </span><span class="it"><span class="sc"><span class="content">Adonai
+40:31 but they who wait for Adonai will renew their strength. They will soar up with wings as eagles. They will run, and not grow weary. They will walk, and not be faint.
 41:1 “Be silent before Me, O islands! Let peoples renew their strength. Let them draw near, then let them speak. Let us come together for judgment.
 41:2 Who has stirred up one from the east? He calls justice to His feet. He gives nations over to him and subdues kings. He makes them like dust with his sword, as driven stubble with his bow.
 41:3 He pursues them, passing on safely, by a path his feet had not traveled.
-41:4 Who has performed and done it? Calling forth the generations from the beginning, I, </span><span class="it"><span class="sc"><span class="content">Adonai
+41:4 Who has performed and done it? Calling forth the generations from the beginning, I, Adonai, am the first and the last, I am He!”
 41:5 The coastlands have seen and fear. The ends of the earth tremble. They draw near and come.
 41:6 Each one helps his neighbor and says to his brother, “Be strong!”
 41:7 The craftsman encourages the smith, who smooths with the hammer, who strikes with the anvil, saying of the soldering, “It’s good!” as he fastens it with nails so that it will not totter.
@@ -807,15 +807,15 @@
 41:10 Fear not, for I am with you, be not dismayed, for I am your God. I will strengthen you. Surely I will help you. I will uphold you with My righteous right hand.
 41:11 Behold, all who were angry at you will be ashamed and disgraced. Those who quarrel with you will be as nothing and perish.
 41:12 Though you will look for those who contended with you, you will not find them. Those who warred against you will be as nothing at all.
-41:13 For I am </span><span class="it"><span class="sc"><span class="content">Adonai
-41:14 Fear not, you worm Jacob, you men of Israel! I will help you.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+41:13 For I am Adonai your God who upholds your right hand, who says to you, “Fear not, I will help you.”
+41:14 Fear not, you worm Jacob, you men of Israel! I will help you.” It is a declaration of Adonai, your Redeemer, the Holy One of Israel.
 41:15 “Look, I will make you a threshing sledge, new, with sharp, double-edged spikes. You will thresh the mountains and grind them up, and will make the hills like chaff.
-41:16 You will winnow them, and a wind will carry them away, a storm-wind will scatter them. But you will rejoice in </span><span class="it"><span class="sc"><span class="content">Adonai
-41:17 “The poor and needy ask for water, but there is none, Their tongues are parched with thirst. I, </span><span class="it"><span class="sc"><span class="content">Adonai
+41:16 You will winnow them, and a wind will carry them away, a storm-wind will scatter them. But you will rejoice in Adonai. You will glory in the Holy One of Israel.
+41:17 “The poor and needy ask for water, but there is none, Their tongues are parched with thirst. I, Adonai, will answer them, I, the God of Israel, will not forsake them.
 41:18 I will open rivers on the bare hills and springs in the midst of the valleys. I will make the wilderness a pool of water and the dry land into fountains of water.
 41:19 I will plant in the wilderness the cedar and the acacia tree, the myrtle and the olive tree. I will set in the desert the cypress tree and the pine together with the box tree—
-41:20 so they may see and know, consider and understand together, that the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
-41:21 “Present your case,” says </span><span class="it"><span class="sc"><span class="content">Adonai
+41:20 so they may see and know, consider and understand together, that the hand of Adonai has done this, the Holy One of Israel has created it.”
+41:21 “Present your case,” says Adonai. “Bring forth your reasons,” says the King of Jacob.
 41:22 Let them bring forth and tell us what will happen. The former things, what were they? Tell us, that we may consider them and know their outcome. Or announce to us things to come.
 41:23 Declare the things coming afterward, so we may know that you are gods! Indeed, do good or do evil, so we may all see and be awestruck.
 41:24 Behold, you are nothing, and your work is null. Whoever chooses you is loathsome.
@@ -824,47 +824,47 @@
 41:27 First it was to Zion: “Behold, here they are!” And to Jerusalem: “I will give a herald of good news.”
 41:28 But when I look, there is no one. There is no counselor among them. When I ask them, they have no response.
 41:29 Indeed, they are all a delusion. Their works are null. Their molten images are wind and waste.
-42:1 Behold My servant, whom I uphold. My Chosen One, in whom My soul delights. I have put My </span><span class="it"><span class="content">Ruach
+42:1 Behold My servant, whom I uphold. My Chosen One, in whom My soul delights. I have put My Ruach on Him, He will bring justice to the nations.
 42:2 He will not cry out or raise His voice, or make His voice heard in the street.
 42:3 A bruised reed He will not break. A smoldering wick He will not snuff out. He will faithfully bring forth justice.
-42:4 He will not be disheartened or crushed until He establishes justice on earth. The islands will wait for His </span><span class="it"><span class="content">Torah
-42:5 Thus says God, </span><span class="it"><span class="sc"><span class="content">Adonai
-42:6 “I, </span><span class="it"><span class="sc"><span class="content">Adonai
+42:4 He will not be disheartened or crushed until He establishes justice on earth. The islands will wait for His Torah.
+42:5 Thus says God, Adonai, who created the heavens and stretched them out, who spread out the earth and what comes from it, who gives breath to the people on it, and Ruach to those who walk in it—
+42:6 “I, Adonai, called You in righteousness, I will take hold of Your hand, I will keep You and give You as a covenant to the people, as a light to the nations,
 42:7 by opening blind eyes, bringing prisoners out of the dungeon, and those sitting in darkness out of the prison house.
-42:8 “I am </span><span class="it"><span class="sc"><span class="content">Adonai
+42:8 “I am Adonai—that is My Name! My glory I will not give to another, Or My praise to graven images.
 42:9 Behold, the former things have come to pass, Now I declare new things. Before they spring forth I announce them to you.”
-42:10 Sing to </span><span class="it"><span class="sc"><span class="content">Adonai
+42:10 Sing to Adonai a new song, His praise from the end of the earth, you who go down to the sea with all its fullness, islands and their inhabitants.
 42:11 Let the desert and its cities exult— the villages that Kedar inhabits. Let the dwellers of Sela sing for joy. Let them shout for joy from the top of the mountains.
-42:12 Let them give glory to </span><span class="it"><span class="sc"><span class="content">Adonai
-42:13  goes out as a mighty one. He stirs up His zeal like a man of war. He will shout, yes, raise a war cry! He will prevail over His enemies.
+42:12 Let them give glory to Adonai and declare His praise in the islands.
+42:13 Adonai goes out as a mighty one. He stirs up His zeal like a man of war. He will shout, yes, raise a war cry! He will prevail over His enemies.
 42:14 “I have held My peace a long time, I have been still and restrained Myself. Now like a woman in labor I groan, gasping and panting at once.
 42:15 I will lay waste mountains and hills, and dry up all their vegetation. I will turn the rivers into islands, and dry up the pools.
 42:16 I will bring the blind by a way they do not know. in paths they have not known, I will guide them. I will turn darkness before them to light and the rough places smooth. These are the things I will do, and I will not forsake them.
 42:17 They will be turned back, utterly put to shame— those trusting in idols, who say to molten images, ‘You are our gods.’
 42:18 Hear, you deaf! Look, you blind, so you may see.
-42:19 Who is blind, but My Servant? Or deaf as My Messenger that I send? Who is so blind as the one in covenant with Me, blind as </span><span class="it"><span class="sc"><span class="content">Adonai
+42:19 Who is blind, but My Servant? Or deaf as My Messenger that I send? Who is so blind as the one in covenant with Me, blind as Adonai’s Servant?
 42:20 You have seen many things, but you do not pay attention. Though ears are open, no one hears.”
-42:21  great and glorious.
+42:21 Adonai was pleased, for the sake of His righteousness, to make Torah great and glorious.
 42:22 But this is a people robbed and looted. all of them trapped in holes, hidden away in prisons. They have become a prey with no one to deliver them, and plunder, with none to say, “Give them back!”
 42:23 Who among you will give ear to this? Who will listen and heed hereafter?
-42:24 Who gave Jacob to the looter, Israel to the plunderers? Was it not </span><span class="it"><span class="sc"><span class="content">Adonai
+42:24 Who gave Jacob to the looter, Israel to the plunderers? Was it not Adonai? Have we not sinned against Him? In His ways they were unwilling to walk and His Torah they did not obey.
 42:25 So He poured out on him the fury of His anger, and the fierceness of battle. it blazed all around him, yet he did not understand it. it burned him, yet he did not take it to heart.
-43:1 But now, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+43:1 But now, thus says Adonai— the One who created you, O Jacob, the One who formed you, O Israel: “Fear not, for I have redeemed you, I have called you by name, you are Mine.
 43:2 When you pass through the waters, I will be with you, or through the rivers, they will not overflow you. When you walk through the fire, you will not be burned, nor will the flame burn you.
-43:3 For I am </span><span class="it"><span class="sc"><span class="content">Adonai
+43:3 For I am Adonai your God, the Holy One of Israel, your Savior. I have given Egypt as your ransom, Ethiopia and Seba in your place.
 43:4 Since you are precious in My eyes, honored, because I love you, I will give a man in exchange for you, and other peoples for your life.
 43:5 Do not fear, for I am with you. I will bring your offspring from the east and gather you from the west.
 43:6 I will say to the north, ‘Give them up!’ and to the south, ‘Do not hold them back.’ Bring My sons from far and My daughters from the ends of the earth.
 43:7 Everyone who is called by My Name, whom I created for My glory. I formed him—yes, I made him!”
 43:8 Bring out the people who are blind, yet have eyes, who are deaf, yet have ears.
 43:9 All the nations are gathered together, and the peoples are assembled. Who among them can declare this, and proclaim to us former things? Let them present their witnesses so they may be justified, or let them hear and say, “It’s true.”
-43:10 “You are My witnesses” —it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-43:11 “I, I am </span><span class="it"><span class="sc"><span class="content">Adonai
-43:12 I alone declared, saved and proclaimed, and not some foreign god among you. So you are My witnesses” —it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+43:10 “You are My witnesses” —it is a declaration of Adonai— “and My Servant whom I have chosen, so that you may know and believe Me, and understand that I am He. Before Me no God was formed, and there will none after Me.
+43:11 “I, I am Adonai— and there is no savior beside Me.
+43:12 I alone declared, saved and proclaimed, and not some foreign god among you. So you are My witnesses” —it is a declaration of Adonai— “and I am God.
 43:13 From eternity, I am He. None can deliver from My hand. I act, and who can reverse it?”
-43:14 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-43:15 I am </span><span class="it"><span class="sc"><span class="content">Adonai
-43:16 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+43:14 Thus says Adonai, your Redeemer, the Holy One of Israel: “For your sake I will send to Babylon and bring down the fleeing Chaldeans, all of them, in the ships in which they exult.
+43:15 I am Adonai, your Holy One, the Creator of Israel, your King.”
+43:16 Thus says Adonai, who makes a way in the sea and a path in the mighty waters.
 43:17 who drew out chariots and horses, the army and the warrior (they will lie down together, and not rise again; they are extinguished— quenched like a wick):
 43:18 “Do not remember former things, nor consider things of the past.
 43:19 Here I am, doing a new thing; Now it is springing up— do you not know about it? I will surely make a way in the desert, rivers in the wasteland.
@@ -878,11 +878,11 @@
 43:27 Your first father sinned, and your mediators rebelled against Me.
 43:28 So I profaned the Sanctuary officials, and gave Jacob over to destruction, and Israel to scorn.
 44:1 “But now listen, Jacob My servant, Israel, whom I have chosen.”
-44:2 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+44:2 Thus says Adonai who made you, and formed you from the womb, who will help you: “Do not fear, Jacob My servant, Jeshurun, whom I have chosen.
 44:3 For I will pour water on the thirsty land and streams on the dry ground. I will pour My Spirit on your offspring, and My blessing on your descendants.
 44:4 They will spring up among the grass like willows by flowing streams.
-44:5 This one will say, ‘I am </span><span class="it"><span class="sc"><span class="content">Adonai
-44:6 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+44:5 This one will say, ‘I am Adonai’s.’ That one will be called by the name Jacob. Another will write on his hand, ‘Adonai’s’ and will take the name Israel.”
+44:6 Thus says Adonai, Israel’s King and his Redeemer, Adonai-Tzva’ot: “I am the first, and the last, and there is no God beside Me.
 44:7 Who is like Me? Let him proclaim and announce it! Let him arrange it in order for Me— as I established the ancient nation. Let them declare to them what is coming and future events.
 44:8 Do not dread or be afraid. Have I not told you and declared it long ago? So you are My witnesses! Is there any God beside Me? Is there any other Rock? I know of none.
 44:9 Those who fashion idols are empty. Their precious things do not profit. Their witnesses do not see or know, so they will be put to shame.
@@ -899,37 +899,37 @@
 44:20 He is feeding on ashes. A deceived heart has led him astray, so he cannot deliver his soul, nor say, “Isn’t what is in my right hand a fraud?”
 44:21 Remember these things, Jacob, and Israel, for you are My servant. I formed you, you are My servant. Israel, you will not be forgotten by Me!
 44:22 I have blotted out your transgressions like a thick cloud and your sins like a mist. Return to Me, for I have redeemed you.”
-44:23 Sing, O heavens, for </span><span class="it"><span class="sc"><span class="content">Adonai
-44:24 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+44:23 Sing, O heavens, for Adonai has done it! Shout, depths of the earth! Break forth into singing, mountains, forest, and every tree in it! For Adonai has redeemed Jacob and will be glorified through Israel.
+44:24 Thus says Adonai, your Redeemer, who formed you from the womb: “I am Adonai, Maker of all things, stretching out the heavens alone, spreading the earth abroad by Myself,
 44:25 causing the omens of boasters to fail, making fools of diviners, turning wise men backward and making their knowledge foolish,
 44:26 while confirming the word of His servant, fulfilling the counsel of His messengers, saying of Jerusalem, “She will be lived in” and of the cities of Judah, “They will be built, and I will raise up their ruins,”
 44:27 while saying to the deep, “Be dry, I will dry up your rivers,”
 44:28 while saying of Cyrus, “He is My shepherd, and he shall fulfill all My purpose” while saying to Jerusalem, “You will be built” and to the Temple, “Your foundation will be laid.”
-45:1 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+45:1 Thus says Adonai to His anointed, Cyrus, whose right hand I have grasped, to subdue nations before him, to loose the belts of kings, to open doors before him so that gates may not be shut.
 45:2 I will go before you and make crooked places straight. I will shatter bronze doors and cut through iron bars.
-45:3 I will give you treasures of darkness and hidden riches of secret places, so you may know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+45:3 I will give you treasures of darkness and hidden riches of secret places, so you may know that I am Adonai, the God of Israel, who calls you by your name.
 45:4 For the sake of Jacob My servant, and Israel My chosen one, I have also called you by name, I have given you a title of honor, though you have not known Me.
-45:5 I am </span><span class="it"><span class="sc"><span class="content">Adonai
-45:6 so they may know, from the rising to the setting of the sun, that there is no one besides Me. I am </span><span class="it"><span class="sc"><span class="content">Adonai
-45:7 I form light and create darkness. I make </span><span class="it"><span class="content">shalom
-45:8 “Rain down, O heavens, from above, and let the clouds pour down justice. Let the earth open up, let salvation sprout, and righteousness spring up with it. I, </span><span class="it"><span class="sc"><span class="content">Adonai
-45:9  , to one who quarrels with his Maker, like a pot among the pots of the earth! Shall the clay say to the potter, “What have you made?” Or does your work say, “It has no handles”?
-45:10  , to him who says to his father, “What have you begotten?” Or to a woman, “What have you born?”
-45:11 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+45:5 I am Adonai—there is no other. Besides Me there is no God. I will strengthen you, though you have not known Me,
+45:6 so they may know, from the rising to the setting of the sun, that there is no one besides Me. I am Adonai—there is no other.
+45:7 I form light and create darkness. I make shalom and create calamity. I, Adonai, do all these things.
+45:8 “Rain down, O heavens, from above, and let the clouds pour down justice. Let the earth open up, let salvation sprout, and righteousness spring up with it. I, Adonai, have created it.”
+45:9 Oy , to one who quarrels with his Maker, like a pot among the pots of the earth! Shall the clay say to the potter, “What have you made?” Or does your work say, “It has no handles”?
+45:10 Oy , to him who says to his father, “What have you begotten?” Or to a woman, “What have you born?”
+45:11 Thus says Adonai, the Holy One of Israel and its Maker, “Ask Me about the things to come upon My children. Then you will commit to Me the work of My hands.
 45:12 I made the earth and created man on it. My hands stretched out the heavens and I commanded all their host.
-45:13 “I stirred Cyrus up in righteousness and I will level all his roads. He will build My city and set My exiles free, with no price or bribe,” says </span><span class="it"><span class="sc"><span class="content">Adonai
-45:14 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+45:13 “I stirred Cyrus up in righteousness and I will level all his roads. He will build My city and set My exiles free, with no price or bribe,” says Adonai-Tzva’ot.
+45:14 Thus says Adonai: “Egypt’s toil, Ethiopia’s merchandise, and the tall Sabeans will come over to you and be yours. They will walk behind you in chains. They will bow down to you, and pray, saying, ‘Surely God is with you!’ There is none else— no other God!”
 45:15 Truly You are a God who hides Himself, O God of Israel, Savior!
 45:16 All of them will be ashamed, disgraced— idol-makers go in dishonor together.
-45:17 Israel has been saved by </span><span class="it"><span class="sc"><span class="content">Adonai
-45:18 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-45:19 “I have not spoken in secret, in a place of a land of darkness. I did not say to the seed of Jacob, ‘Seek Me in desolation.’ I, </span><span class="it"><span class="sc"><span class="content">Adonai
+45:17 Israel has been saved by Adonai with an everlasting salvation. You will not be put to shame or disgraced, for ever and ever.
+45:18 For thus says Adonai— He is God who fashioned the heavens, who formed the earth and made it, He established it and did not create it desolate but formed it to be inhabited— “I am Adonai—there is no other!”
+45:19 “I have not spoken in secret, in a place of a land of darkness. I did not say to the seed of Jacob, ‘Seek Me in desolation.’ I, Adonai, speak righteousness, declaring uprightly.”
 45:20 “Assemble yourselves and come, draw near together, fugitives of the nations! Those who carry their wooden idols have no knowledge, praying to a god who cannot save.
-45:21 Declare and present your case, Indeed, let them consult together. Who foretold this from ancient time? Who has declared it of old? Is it not I, </span><span class="it"><span class="sc"><span class="content">Adonai
+45:21 Declare and present your case, Indeed, let them consult together. Who foretold this from ancient time? Who has declared it of old? Is it not I, Adonai? There is no other God beside Me —a righteous God and a Savior— there is none besides Me!
 45:22 Turn to Me, and be saved, all the ends of the earth. For I am God—there is no other.
 45:23 By Myself I have sworn— the word has gone forth from My mouth in righteousness, and is irrevocable: that to Me every knee will bow, every tongue will swear.
-45:24 They will say of Me, ‘Only in </span><span class="it"><span class="sc"><span class="content">Adonai
-45:25 In </span><span class="it"><span class="sc"><span class="content">Adonai
+45:24 They will say of Me, ‘Only in Adonai is righteousness and strength.’ All who have raged against Him will come to Him and be put to shame.
+45:25 In Adonai all the seed of Israel will be justified and give praise.”
 46:1 Bel bows down; Nebo stoops over. Their idols are for beasts and cattle. The things you carry are borne as burdens on weary beasts.
 46:2 They stoop, they bow down together, they cannot save the burden, but themselves go into captivity.
 46:3 “Listen to Me, house of Jacob, all the remnant of the house of Israel, borne by Me from birth, carried from the womb.
@@ -946,7 +946,7 @@
 47:1 Come down and sit in the dust, virgin daughter of Babylon. Sit on the ground without a throne, daughter of the Chaldeans. For you will no more be called tender and delicate.
 47:2 Take the millstones and grind flour. Remove your veil, strip off the skirt, uncover the leg, cross the rivers.
 47:3 Your nakedness will be uncovered, and your shame will be exposed. I will take vengeance, and will spare no one.
-47:4 Our Redeemer, </span><span class="it"><span class="sc"><span class="content">Adonai
+47:4 Our Redeemer, Adonai-Tzva’ot is His Name, is the Holy One of Israel.
 47:5 Sit in silence, go into darkness, daughter of the Chaldeans. For you will no more be called the mistress-queen of kingdoms.
 47:6 I was angry with My people. I profaned My heritage. I gave them into your hand, but you showed them no mercy. You made your yoke very heavy on the aged.
 47:7 You said, “Forever, I will be the eternal mistress-queen!” You did not lay these things to heart or remember their end.
@@ -958,8 +958,8 @@
 47:13 You are weary of your consultations. So many! So let the astrologers, star-gazers, predicting by new moons, stand up and save you from what will come upon you.
 47:14 Behold, they shall be as stubble. Fire will consume them. They cannot deliver themselves from the power of the flame! It is not a coal for warming by or a fire to sit before!
 47:15 So much have they become to you, with whom you have toiled, trafficking with you from your youth, each wandering about his own way. No one will save you!
-48:1 Hear this, house of Jacob, who are called by the Name of Israel, who came from the wellspring of Judah, who swear by the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-48:2 For they call themselves by the holy city, and lean on the God of Israel, </span><span class="it"><span class="sc"><span class="content">Adonai
+48:1 Hear this, house of Jacob, who are called by the Name of Israel, who came from the wellspring of Judah, who swear by the Name of Adonai and confess the God of Israel— but not in truth or righteousness.
+48:2 For they call themselves by the holy city, and lean on the God of Israel, Adonai-Tzva’ot is His Name.
 48:3 “I foretold the former things long ago. They went forth from My mouth, and I caused them to be heard. Suddenly I acted, so they came about.
 48:4 For I know that you are obstinate, and your neck is iron sinew, and your forehead bronze.
 48:5 So I foretold it to you long ago. before it came about I made you hear, lest you should say, ‘My idol did them, my carved image, yes, my molded image commanded them.’
@@ -971,153 +971,153 @@
 48:11 For My own sake, for My own sake, I act. For how should I be profaned? I will not give My glory to another.
 48:12 Listen to Me, Jacob, Israel whom I called: I am He; I am the first; I am also the last.
 48:13 Surely My hand founded the earth, My right hand spread out the heavens. When I call to them, they stand together.
-48:14 Assemble, all of you, and listen! Who among them foretold these things? </span><span class="it"><span class="sc"><span class="content">Adonai
+48:14 Assemble, all of you, and listen! Who among them foretold these things? Adonai loves him. He will do His will against Babylon— His arm against the Chaldeans.
 48:15 I, I have spoken, yes I called him. I will bring him, so his ways will succeed.
-48:16 Draw near to Me, hear this: Since the beginning, I have not spoken in secret. From the time it existed, I was there. So now </span><span class="it"><span class="sc"><span class="content">Adonai
-48:17 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+48:16 Draw near to Me, hear this: Since the beginning, I have not spoken in secret. From the time it existed, I was there. So now Adonai Elohim has sent Me, and His Ruach.”
+48:17 Thus says Adonai, your Redeemer, the Holy One of Israel: “I am Adonai your God, who teaches you to profit, who leads you in the way you should go.
 48:18 If only you had listened to My commandments! then your peace would be like a river, and your righteousness like the waves of the sea.
 48:19 Your seed would have been like sand, and your offspring like its grains. Their name would never be cut off or destroyed from before Me.”
-48:20 “Get out of Babylon, flee from Chaldea! With a shout of joy, proclaim this, send it out to the end of the earth, say: ‘</span><span class="it"><span class="sc"><span class="content">Adonai
+48:20 “Get out of Babylon, flee from Chaldea! With a shout of joy, proclaim this, send it out to the end of the earth, say: ‘Adonai has redeemed His servant Jacob!
 48:21 They did not thirst when He led them through the deserts. He caused the water to flow out of the rock for them. He split the rock also, and the waters gushed out.’”
-48:22 “There is no </span><span class="it"><span class="content">shalom
-49:1 Listen, to Me, islands! Pay attention, peoples far away. </span><span class="it"><span class="sc"><span class="content">Adonai
+48:22 “There is no shalom,” says Adonai, “for the wicked.”
+49:1 Listen, to Me, islands! Pay attention, peoples far away. Adonai called Me from the womb, from My mother’s belly He named Me.
 49:2 He made My mouth like a sharp sword. in the shadow of His hand He hid Me. He made Me a polished arrow, He has hidden Me in His quiver.
 49:3 He said to Me, “You are My servant, Israel, in whom I will be glorified.”
-49:4 But I said, “I have labored in vain, I have spent my strength for nothing and futility. Yet surely the justice due to me is with </span><span class="it"><span class="sc"><span class="content">Adonai
-49:5 So now says </span><span class="it"><span class="sc"><span class="content">Adonai
+49:4 But I said, “I have labored in vain, I have spent my strength for nothing and futility. Yet surely the justice due to me is with Adonai, and my reward with my God.”
+49:5 So now says Adonai, who formed Me from the womb to be His servant, to bring Jacob back to Him, to gather Israel back to Him. For I am honored in the eyes of Adonai and My God has become my strength.
 49:6 So He says, “It is too trifling a thing that You should be My servant to raise up the tribes of Jacob and restore the preserved ones of Israel. So I will give You as a light for the nations, that You should be My salvation to the end of the earth.”
-49:7 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-49:8 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+49:7 Thus says Adonai, the Redeemer of Israel, their Holy One, to the One despised, to the One the nation abhors, to a servant of rulers: “Kings will see and arise, princes will also bow down, because of Adonai who is faithful, the Holy One of Israel who has chosen You.”
+49:8 Thus says Adonai: “In a time of favor I will answer you. in a day of salvation I will help you. I will keep You and give You as a covenant to the people, to restore the land, to make them possess its desolate inheritances,
 49:9 saying to the prisoners, ‘Come out!’ to those in darkness, ‘Be shown!’ Along the roads they will graze— their pasture will be on all the barren heights.
 49:10 They will not hunger or thirst, nor scorching wind or sun strike them, for their compassionate One will lead them, and will guide them by springs of water.
 49:11 I will make all My mountains a road, and My highways will be raised up.
 49:12 “Behold, these shall come from afar. behold, these from the north and from the west, and from the land of Sinim.
-49:13 Shout for joy, heavens! Rejoice, earth! Break forth into ringing shouts, O mountains! For </span><span class="it"><span class="sc"><span class="content">Adonai
-49:14 But Zion said: “</span><span class="it"><span class="sc"><span class="content">Adonai
+49:13 Shout for joy, heavens! Rejoice, earth! Break forth into ringing shouts, O mountains! For Adonai has comforted His people and has compassion on His afflicted.”
+49:14 But Zion said: “Adonai has forsaken me, Adonai has forgotten me.”
 49:15 “Can a woman forget her nursing baby or lack compassion for a child of her womb? Even if these forget, I will not forget you.
 49:16 Behold, I have engraved you on the palms of My hands. Your walls are continually before Me.
 49:17 Your children will come quickly. Your destroyers and devastators will go away from you.
-49:18 Lift up your eyes around and see: all of them will gather and come to you.” “As I live” —it is </span><span class="it"><span class="sc"><span class="content">Adonai
+49:18 Lift up your eyes around and see: all of them will gather and come to you.” “As I live” —it is Adonai’s declaration— “you will wear them all as jewelry and bind them on like a bride.”
 49:19 For your waste and desolate places and your destroyed land will now be surely too small for the inhabitants, and those who swallowed you up will be far away.
 49:20 The children of your bereavement will yet say in your ears, “The place is too cramped for me! Make room for me to settle in.”
 49:21 Then you will say in your heart, “Who has borne these for me? Wasn’t I bereaved of my children— barren, an exile and wandering? So who has raised these? Behold, I was left alone— these, where were they?”
-49:22 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-49:23 Kings will be your guardians, their princesses your nurses. They will bow down to you with their face to the ground, and lick the dust of your feet. Then you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+49:22 Thus says Adonai Elohim: “Look, I will lift My hand to the nations, and raise My banner to the peoples! They will bring your sons on their chest, and carry your daughters on their shoulders.
+49:23 Kings will be your guardians, their princesses your nurses. They will bow down to you with their face to the ground, and lick the dust of your feet. Then you will know that I am Adonai— those hoping in Me will not be ashamed.”
 49:24 Can plunder be taken from the mighty, or captives of the righteous freed?
-49:25 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-49:26 I will feed your oppressors their flesh. They will be drunk with their blood as with sweet wine. Then all flesh will know that I, </span><span class="it"><span class="sc"><span class="content">Adonai
-50:1 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+49:25 For thus says Adonai: “Yes, captives of the mighty will be taken and the prey of the tyrant will be freed. For I will oppose your adversary. I will save your children.
+49:26 I will feed your oppressors their flesh. They will be drunk with their blood as with sweet wine. Then all flesh will know that I, Adonai, am your Savior and your Redeemer, the Mighty One of Jacob.”
+50:1 Thus says Adonai: “Where is the divorce certificate, by which I sent your mother away? Or to whom of My creditors did I sell you? See, you were sold for your iniquities, and for your transgressions your mother was sent away.
 50:2 Why was no one there when I came? Why was there no one to answer when I called? Is My hand too short to redeem? Or have I no power to deliver? Behold, I dry up the sea at My rebuke, I make rivers a wilderness— their fish stink for lack of water and die of thirst.
 50:3 I clothe the heavens with blackness and make sackcloth their covering.”
-50:4  has given Me the tongue of the learned, that I may know how to sustain the weary with a word. He awakens Me morning by morning. He awakens My ear to give heed as a disciple.
-50:5  has opened My ear, and I was not rebellious, nor did I turn back.
+50:4 Adonai Elohim has given Me the tongue of the learned, that I may know how to sustain the weary with a word. He awakens Me morning by morning. He awakens My ear to give heed as a disciple.
+50:5 Adonai Elohim has opened My ear, and I was not rebellious, nor did I turn back.
 50:6 I gave My back to those who strike, and My cheeks to those pulling out My beard; I did not hide My face from humiliation and spitting.
-50:7 For </span><span class="it"><span class="sc"><span class="content">Adonai
+50:7 For Adonai Elohim will help Me. Therefore I have not been disgraced. Therefore I set My face like flint, and I know that I will not be ashamed.
 50:8 The One who vindicates Me is near. Who will accuse Me? Let us stand up to each other. Who is My adversary? Let him confront Me.
-50:9 See, </span><span class="it"><span class="sc"><span class="content">Adonai
-50:10 Who among you fears </span><span class="it"><span class="sc"><span class="content">Adonai
+50:9 See, Adonai Elohim will help Me. Who is he who would condemn Me? See, they all wear out like a garment. A moth will eat them up.
+50:10 Who among you fears Adonai? Who hears the voice of His servant? Who walks in darkness and has no light? Let him trust in the Name of Adonai and lean on his God.
 50:11 “Behold, all you who kindle a fire, encircling yourselves with firebrands. Walk in the light of your fire and among the brands you have lit. This you will have from My hand: you will lie down in torment.”
-51:1 “Listen to Me, you who pursue justice, you who seek </span><span class="it"><span class="sc"><span class="content">Adonai
+51:1 “Listen to Me, you who pursue justice, you who seek Adonai. Look to the rock from which you were hewn, and to the quarry from which you were dug.
 51:2 Look to Abraham your father and to Sarah who bore you. For when I called him, he was but one, then I blessed him and multiplied him.”
-51:3 For </span><span class="it"><span class="sc"><span class="content">Adonai
-51:4 “Pay attention to Me, My people, give ear to Me, My nation. For </span><span class="it"><span class="content">Torah
+51:3 For Adonai will comfort Zion. He will comfort all her waste places. He will make her wilderness like Eden, her desert like the garden of Adonai. Joy and gladness will be found in her, thanksgiving and a sound of melody.
+51:4 “Pay attention to Me, My people, give ear to Me, My nation. For Torah will go out from Me, My justice as a light to the peoples.
 51:5 My righteousness is near, My salvation has gone out, and My arms will judge the nations. The coastlands will wait for Me— for My arm they will wait expectantly.
 51:6 Lift up your eyes to the heavens, and look at the earth beneath. For the heavens will vanish like smoke, the earth will wear out like a garment, and its inhabitants will die like gnats, but My salvation will be forever, and My righteousness never wane.
-51:7 Listen to Me, you who know justice, a people with My </span><span class="it"><span class="content">Torah
+51:7 Listen to Me, you who know justice, a people with My Torah in their heart: Do not fear the taunt of men, nor be dismayed at their insults.
 51:8 For the moth will eat them like a garment, and the worm will eat them like wool. But My righteousness will be forever and My salvation for all generations.”
-51:9 Awake, awake, put on strength, O arm of </span><span class="it"><span class="sc"><span class="content">Adonai
+51:9 Awake, awake, put on strength, O arm of Adonai, awake, as in days of old, the generations of long ago. Was it not You who cut Rahab in pieces, who pierced the dragon?
 51:10 Was it not You who dried up the sea, the waters of the great deep, who made the depths of the sea a path for the redeemed to pass over?
-51:11 Now the ransomed of </span><span class="it"><span class="sc"><span class="content">Adonai
+51:11 Now the ransomed of Adonai will return, and come to Zion with singing. Everlasting joy will be upon their heads. They will obtain gladness and joy, and sorrow and sighing will flee away.
 51:12 “I, I am the One who comforts you. Who are you that you should fear man, who dies, or a son of man, who is given up like grass?”
-51:13 But you forgot </span><span class="it"><span class="sc"><span class="content">Adonai
+51:13 But you forgot Adonai your Maker, who stretched out the heavens and laid the foundations of the earth. Are you in constant dread all day because of the fury of the oppressor as he makes ready to destroy? But where is the fury of the oppressor?
 51:14 Soon one bowed down will be released. He will not die and go to the Pit, nor will his bread be lacking.
-51:15 “For I am </span><span class="it"><span class="sc"><span class="content">Adonai
+51:15 “For I am Adonai your God, who stirs up the sea so that its waves roar—Adonai-Tzva’ot is His Name.
 51:16 I have put My words in your mouth, and covered you with the shadow of My hand— I who set the heavens in place, who laid the foundations of the earth, and say to Zion, ‘You are My people.’”
-51:17 Awake, awake! Stand up, Jerusalem! From </span><span class="it"><span class="sc"><span class="content">Adonai
+51:17 Awake, awake! Stand up, Jerusalem! From Adonai’s hand you have drunk the cup of His fury, the chalice of reeling that you have drained to the dregs.
 51:18 There is none to guide her among all the sons she has borne, nor is there one to take her by the hand among all the sons she has raised.
 51:19 These two things have befallen you —who will mourn for you?— devastation and destruction, famine and the sword. How will I comfort you?
-51:20 Your sons have fainted. They lie at every street corner, like an antelope in a net. They are full of </span><span class="it"><span class="sc"><span class="content">Adonai
+51:20 Your sons have fainted. They lie at every street corner, like an antelope in a net. They are full of Adonai’s fury, the rebuke of your God.
 51:21 Therefore hear this, you who are afflicted, who are drunk, but not with wine.
-51:22 Thus says your Lord, </span><span class="it"><span class="sc"><span class="content">Adonai
+51:22 Thus says your Lord, Adonai your God who defends His people: “Behold, I have taken from your hand the cup of reeling, the bowl of My wrath. You will never drink it again.
 51:23 Then I will put it into the hand of your tormentors, who said to you, ‘Lie down, so we may walk over you.’ You have made your back like the ground and like a street for passersby.
 52:1 Awake, awake! Clothe yourself in your strength, Zion! Clothe yourself in beautiful garments, Jerusalem, the holy city, for the uncircumcised and the unclean will never invade you again.
 52:2 Shake off the dust and arise! Be enthroned, Jerusalem. Loose the bonds off your neck, captive Daughter of Zion.
-52:3 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-52:4 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-52:5 “Now therefore, what do I have here?” —it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-52:6 Therefore My people will know My Name. Therefore in that day, I am the One who will be saying, ‘</span><span class="it"><span class="content">Hineni
-52:7 How beautiful on the mountains are the feet of him who brings good news, who announces </span><span class="it"><span class="content">shalom
-52:8 The voice of your watchmen— they will lift up their voices. Together they are shouting for joy! For they will see eye to eye when </span><span class="it"><span class="sc"><span class="content">Adonai
-52:9 Break forth in joy, sing together, you ruins of Jerusalem, for </span><span class="it"><span class="sc"><span class="content">Adonai
-52:10  has bared His holy arm before the eyes of all the nations. All the ends of the earth will see the salvation of our God.
-52:11 Leave, leave! Get out of there! Touch no unclean thing. Go out of her midst. Purify yourselves, you who carry the vessels of </span><span class="it"><span class="sc"><span class="content">Adonai
-52:12 For you will not go out in haste, nor will you go in flight, for </span><span class="it"><span class="sc"><span class="content">Adonai
+52:3 For thus says Adonai: “You were sold for nothing. So you will be redeemed without silver.”
+52:4 For thus says Adonai Elohim: “At first My people went down to Egypt to reside there, then the Assyrian oppressed them for nothing.
+52:5 “Now therefore, what do I have here?” —it is a declaration of Adonai— “My people are taken away for nothing? Its rulers wail” —it is Adonai’s declaration— “and My Name is continually blasphemed all day long.
+52:6 Therefore My people will know My Name. Therefore in that day, I am the One who will be saying, ‘Hineni!’”
+52:7 How beautiful on the mountains are the feet of him who brings good news, who announces shalom, who brings good news of happiness, who announces salvation, who says to Zion, “Your God reigns!”
+52:8 The voice of your watchmen— they will lift up their voices. Together they are shouting for joy! For they will see eye to eye when Adonai returns to Zion.
+52:9 Break forth in joy, sing together, you ruins of Jerusalem, for Adonai has comforted His people. He has redeemed Jerusalem.
+52:10 Adonai has bared His holy arm before the eyes of all the nations. All the ends of the earth will see the salvation of our God.
+52:11 Leave, leave! Get out of there! Touch no unclean thing. Go out of her midst. Purify yourselves, you who carry the vessels of Adonai.
+52:12 For you will not go out in haste, nor will you go in flight, for Adonai will go before you, and the God of Israel will be your rear guard.
 52:13 “Behold, My servant will prosper, He will be high and lifted up and greatly exalted.
 52:14 Just as many were appalled at You— His appearance was disfigured more than any man, His form more than the sons of men.
 52:15 So He will sprinkle many nations. Kings will shut their mouths because of Him, for what had not been told them they will see, and what they had not heard they will perceive.
-53:1 ‘Who has believed our report? To whom is the arm of </span><span class="it"><span class="sc"><span class="content">Adonai
+53:1 ‘Who has believed our report? To whom is the arm of Adonai revealed?
 53:2 For He grew up before Him like a tender shoot, like a root out of dry ground. He had no form or majesty that we should look at Him, nor beauty that we should desire Him.
 53:3 He was despised and rejected by men, a man of sorrows, acquainted with grief, One from whom people hide their faces. He was despised, and we did not esteem Him.
 53:4 Surely He has borne our griefs and carried our pains. Yet we esteemed Him stricken, struck by God, and afflicted.
-53:5 But He was pierced because of our transgressions, crushed because of our iniquities. The chastisement for our </span><span class="it"><span class="content">shalom
-53:6 We all like sheep have gone astray. Each of us turned to his own way. So </span><span class="it"><span class="sc"><span class="content">Adonai
+53:5 But He was pierced because of our transgressions, crushed because of our iniquities. The chastisement for our shalom was upon Him, and by His stripes we are healed.
+53:6 We all like sheep have gone astray. Each of us turned to his own way. So Adonai has laid on Him the iniquity of us all.
 53:7 He was oppressed and He was afflicted yet He did not open His mouth. Like a lamb led to the slaughter, like a sheep before its shearers is silent, so He did not open His mouth.
 53:8 Because of oppression and judgment He was taken away. As for His generation, who considered? For He was cut off from the land of the living, for the transgression of my people— the stroke was theirs
 53:9 His grave was given with the wicked, and by a rich man in His death, though He had done no violence, nor was there any deceit in His mouth.
-53:10 Yet it pleased </span><span class="it"><span class="sc"><span class="content">Adonai
+53:10 Yet it pleased Adonai to bruise Him. He caused Him to suffer. If He makes His soul a guilt offering, He will see His offspring, He will prolong His days, and the will of Adonai will succeed by His hand.
 53:11 As a result of the anguish of His soul He will see it and be satisfied by His knowledge. The Righteous One, My Servant will make many righteous and He will bear their iniquities.
 53:12 Therefore I will give Him a portion with the great, and He will divide the spoil with the mighty— because He poured out His soul to death, and was counted with transgressors. For He bore the sin of many, and interceded for the transgressors.
-54:1 “Sing, barren one, who has not given birth. burst into singing and shout, you who have not travailed. For more are the children of the desolate than the children of the married one,” says </span><span class="it"><span class="sc"><span class="content">Adonai
+54:1 “Sing, barren one, who has not given birth. burst into singing and shout, you who have not travailed. For more are the children of the desolate than the children of the married one,” says Adonai.
 54:2 “Enlarge the place of your tent, stretch out your tabernacle curtains. Do not hold back— lengthen your cords, strengthen your stakes.
 54:3 For you will spread out to the right hand and to the left. Your offspring will possess the nations and will resettle the desolate cities.
 54:4 Fear not, for you will not be ashamed. Nor cringe, for you will not be disgraced. For you will forget the shame of your youth, and you will remember the reproach of your widowhood no more.
-54:5 For your Maker is your husband —</span><span class="it"><span class="sc"><span class="content">Adonai
-54:6 “For </span><span class="it"><span class="sc"><span class="content">Adonai
+54:5 For your Maker is your husband —Adonai-Tzva’ot is His Name— the Holy One of Israel is your Redeemer. He will be called God of all the earth.
+54:6 “For Adonai has called you back like a wife deserted and grieved in spirit, like a wife of one’s youth that is rejected,” says your God.
 54:7 “For a brief moment I deserted you, but I will regather you with great compassion.
-54:8 In a surge of anger I hid My face from you a moment, but with everlasting kindness I will have compassion on you,” says </span><span class="it"><span class="sc"><span class="content">Adonai
+54:8 In a surge of anger I hid My face from you a moment, but with everlasting kindness I will have compassion on you,” says Adonai your Redeemer.
 54:9 “For this is like the waters of Noah to Me: for as I swore that the waters of Noah should no more cover the earth, so I have sworn that I will not be angry with you, nor will I rebuke you.
-54:10 Though the mountains depart and the hills be shaken, My love will not depart from you, nor will My covenant of peace be shaken, says </span><span class="it"><span class="sc"><span class="content">Adonai
+54:10 Though the mountains depart and the hills be shaken, My love will not depart from you, nor will My covenant of peace be shaken, says Adonai who has compassion on you.
 54:11 Afflicted one, storm-tossed, unconsoled, behold, I set your stones in antimony, lay your foundations with sapphires,
 54:12 make your pinnacles of rubies, your gates of crystal, and all your walls of precious stones.
-54:13 All your children will be taught by </span><span class="it"><span class="sc"><span class="content">Adonai
+54:13 All your children will be taught by Adonai. Your children will have great shalom.
 54:14 “In righteousness you will be established. You will be far from oppression —for you will not fear— and from terror— for it will not come near you.
 54:15 Behold, anyone fiercely attacking is not from Me. Whoever stirs up strife with you will fall because of you.
 54:16 Behold, I created the smith who blows the fire of coals and produces a weapon for its work, and I created the destroyer to ruin.
-54:17 No weapon formed against you will prosper and you will condemn every tongue that rises against you in judgment. This is the heritage of </span><span class="it"><span class="sc"><span class="content">Adonai
+54:17 No weapon formed against you will prosper and you will condemn every tongue that rises against you in judgment. This is the heritage of Adonai’s servants— their vindication is from Me.” It is a declaration of Adonai.
 55:1 “Ho, everyone who thirsts, come to the water, and you who have no money, come, buy and eat. Come, buy wine and milk without money and without cost!
 55:2 Why do you spend money for what is not bread? Your wages for what does not satisfy? Listen diligently to Me, and eat what is good, and delight yourself in abundance.
 55:3 Incline your ear and come to Me. Listen, so that your soul may live. I will make an everlasting covenant with you, the trustworthy loyalty to David.
 55:4 Behold, I made him a witness to the peoples, a leader and commander for the peoples.
-55:5 Behold, you will summon a nation you do not know, and a nation that did not know you will run to you, because of </span><span class="it"><span class="sc"><span class="content">Adonai
-55:6 Seek </span><span class="it"><span class="sc"><span class="content">Adonai
-55:7 Let the wicked forsake his way, and the unrighteous one his thoughts, let him return to </span><span class="it"><span class="sc"><span class="content">Adonai
-55:8 “For My thoughts are not your thoughts, nor are your ways My ways.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+55:5 Behold, you will summon a nation you do not know, and a nation that did not know you will run to you, because of Adonai your God and the Holy One of Israel, for He has glorified you.”
+55:6 Seek Adonai while He may be found, call on Him while He is near.
+55:7 Let the wicked forsake his way, and the unrighteous one his thoughts, let him return to Adonai, so He may have compassion on him, and to our God, for He will abundantly pardon.
+55:8 “For My thoughts are not your thoughts, nor are your ways My ways.” It is a declaration of Adonai.
 55:9 “For as the heavens are higher than earth, so are My ways higher than your ways, and My thoughts than your thoughts.
 55:10 For as the rain and snow come down from heaven, and do not return there without having watered the earth, making it bring forth and sprout, giving seed to sow and bread to eat,
 55:11 so My word will be that goes out from My mouth. It will not return to Me in vain, but will accomplish what I intend, and will succeed in what I sent it for.
 55:12 “Yes, you will go out with joy and be led forth with peace. The mountains and the hills will break forth before you singing, and all the trees of the field will clap their hands!
-55:13 Instead of the thorn bush, a cypress will come up, and instead of the brier, a myrtle will come up, and it will be a memorial to </span><span class="it"><span class="sc"><span class="content">Adonai
-56:1 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+55:13 Instead of the thorn bush, a cypress will come up, and instead of the brier, a myrtle will come up, and it will be a memorial to Adonai, as an everlasting sign that will never be cut off.”
+56:1 Thus says Adonai: “Preserve justice, do righteousness. For My salvation is about to come, and My righteousness to be revealed.
 56:2 Blessed is the one who does this, the son of man who takes hold of it, who keeps from profaning Shabbat, and keeps his hand from doing any evil.
-56:3 Do not let a son of a foreigner who has joined himself to </span><span class="it"><span class="sc"><span class="content">Adonai
-56:4 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+56:3 Do not let a son of a foreigner who has joined himself to Adonai say, ‘Adonai will surely exclude me from His people.” Nor let the eunuch say, ‘Behold, I am a dry tree.’”
+56:4 For thus says Adonai, “To the eunuchs who keep My Shabbatot, who choose what pleases Me, and hold fast My covenant:
 56:5 I will give to them in My House and within My walls a memorial and a name better than sons and daughters. I will give them an everlasting name that will not be cut off.
-56:6 Also the foreigners who join themselves to </span><span class="it"><span class="sc"><span class="content">Adonai
+56:6 Also the foreigners who join themselves to Adonai, to minister to Him, and to love the Name of Adonai, and to be His servants— all who keep from profaning Shabbat, and hold fast to My covenant—
 56:7 these I will bring to My holy mountain, and let them rejoice in My House of Prayer. Their burnt offerings and sacrifices will be acceptable on My altar. For My House will be called a House of Prayer for all nations.”
-56:8 , who gathers the dispersed of Israel, declares, “I will gather still others to him, to those already gathered.”
+56:8 Adonai Elohim, who gathers the dispersed of Israel, declares, “I will gather still others to him, to those already gathered.”
 56:9 All you beasts of the field, come to eat, all you beasts in the forest.
 56:10 His watchmen are all blind. All of them know nothing. All of them are mute dogs unable to bark, dreamers lying down, lovers of slumber,
 56:11 and the dogs are greedy— they never have enough. They are shepherds with no discernment. They have all turned to their own way, each to his own gain, one and all.
 56:12 “Come, let’s get wine, let’s guzzle strong drink. Tomorrow will be like today, only even better!”
 57:1 The righteous one perishes, but no one takes it to heart. Godly men are taken away, but no one discerns that the righteous man is taken from evil.
-57:2 He enters into </span><span class="it"><span class="content">shalom
+57:2 He enters into shalom. They rest on their beds, each who walked in his integrity.
 57:3 But as for you, come here, you children of a sorceress, offspring of an adulterer and prostitute.
 57:4 Whom are you mocking? At whom do you open your mouth wide and stick out your tongue? Are you not children of transgression, offspring of deceit?
 57:5 You who burn with lust among the oaks and under every green tree, who sacrifice your children in the wadis and under the clefts of the rocks?
 57:6 Among the smooth stones of the wadi is your portion—they are your lot. To them you have even poured out a drink offering, made a grain offering. Shall I relent concerning these things?
 57:7 Upon a high and lofty mountain you made your bed. You also went up there to offer sacrifice.
 57:8 Behind the door and the doorpost you have set up your memorial sign. For away from Me, you uncovered, went up and made your bed wide, and cut covenant with them. You loved their bed— you looked on their nakedness.
-57:9 You journeyed to the king with oil and multiplied your perfumes. You sent your ambassadors far away, and made them go down to </span><span class="it"><span class="content">Sheol
+57:9 You journeyed to the king with oil and multiplied your perfumes. You sent your ambassadors far away, and made them go down to Sheol.
 57:10 You wearied of the length of your way, yet you did not say, “It is hopeless!” You found renewed strength, so you did not weaken.
 57:11 “Whom was it you dreaded and feared, so that you lied. But you did not remember Me or take it to heart? Have I not kept silent a long time— yet you do not fear Me?
 57:12 I will expose your ‘righteousness’, and your deeds—they will not profit you.
@@ -1127,106 +1127,106 @@
 57:16 For I will not contend forever, nor will I always be angry, for the spirit would grow weak before Me, the breath of those whom I made.
 57:17 Because of the iniquity of his unjust gain I was angry; I struck him; I hid My face; I was angry—but he went on backsliding in the way of his heart.
 57:18 I have seen his ways, but I will heal him. I will lead him and restore comfort to him and his mourners.
-57:19 Creating the praise of lips: ‘</span><span class="it"><span class="content">Shalom
+57:19 Creating the praise of lips: ‘Shalom, shalom to him who is far and to him who is near,’ says Adonai, ‘and I will heal him.’”
 57:20 But the wicked are like a troubled sea, for it cannot rest, and its waters toss up mire and dirt.
-57:21  “There is no </span><span class="it"><span class="content">shalom
-58:1 “Cry aloud, do not hold back! Raise your voice like a </span><span class="it"><span class="content">shofar
+57:21  “There is no shalom,” says my God “for the wicked.”
+58:1 “Cry aloud, do not hold back! Raise your voice like a shofar. Tell My people their transgression, and the house of Jacob their sins.
 58:2 Yet they seek Me day to day and delight to know My ways, as if they were a nation that did right, and had not forsaken their God’s decree. They ask Me for righteous judgments; they delight in the nearness of God.”
 58:3  “Why have we fasted. yet You do not see? Why have we afflicted our souls, yet You take no notice?” “Behold, in the day of your fast you seek your own pleasure, and exploit all your laborers.
 58:4 Behold, you fast for strife and contention and to strike with a wicked fist. You should not fast as you do today to make your voice heard on high.
-58:5 Is this the fast I have chosen? A day for one to afflict his soul? Is it to bow down his head like a reed, and spreading out sackcloth and ashes? Will you call this a fast and a day acceptable to </span><span class="it"><span class="sc"><span class="content">Adonai
+58:5 Is this the fast I have chosen? A day for one to afflict his soul? Is it to bow down his head like a reed, and spreading out sackcloth and ashes? Will you call this a fast and a day acceptable to Adonai?
 58:6 “Is not this the fast I choose: to release the bonds of wickedness, to untie the cords of the yoke, to let the oppressed go free, and to tear off every yoke?
 58:7 Is it not to share your bread with the hungry, to bring the homeless poor into your house? When you see the naked, to cover him, and not hide yourself from your own flesh and blood?
-58:8 Then your light will break forth like the dawn, and your healing will spring up speedily. Your righteousness will go before you, the glory of </span><span class="it"><span class="sc"><span class="content">Adonai
-58:9 Then you will call, and </span><span class="it"><span class="sc"><span class="content">Adonai
+58:8 Then your light will break forth like the dawn, and your healing will spring up speedily. Your righteousness will go before you, the glory of Adonai as your rear guard.”
+58:9 Then you will call, and Adonai will answer. You will cry and He will say, “Here I am.” If you get rid of the yoke among you— finger-pointing and badmouthing—
 58:10 If you give yourself to the hungry, and satisfy the desire of the afflicted, then your light will rise in darkness, and your gloom will be like midday.
-58:11 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+58:11 Then Adonai will guide you continually, satisfy your soul in drought and strengthen your bones. You will be like a watered garden, like a spring of water whose waters never fail.
 58:12 Some of you will rebuild the ancient ruins, will raise up the age-old foundations, will be called Repairer of the Breach, Restorer of Streets for Dwelling.
-58:13 If you turn back your foot from Shabbat, from doing your pleasure on My holy day, and call </span><span class="it"><span class="content">Shabbat
-58:14 then You will delight yourself in </span><span class="it"><span class="sc"><span class="content">Adonai
-59:1 Behold, </span><span class="it"><span class="sc"><span class="content">Adonai
+58:13 If you turn back your foot from Shabbat, from doing your pleasure on My holy day, and call Shabbat a delight, the holy day of Adonai honorable, If you honor it, not going your own ways, not seeking your own pleasure, nor speaking your usual speech,
+58:14 then You will delight yourself in Adonai, and I will let you ride over the heights of the earth, I will feed you with the heritage of your father Jacob.” For the mouth of Adonai has spoken.
+59:1 Behold, Adonai’s hand is not too short to save, nor His ear too dull to hear.
 59:2 Rather, your iniquities have made a separation between you and your God. Your sins have hidden His face from you, so that He does not hear.
 59:3 For your hands are defiled with blood and your fingers with iniquity. Your lips have spoken lies, your tongue mutters wickedness.
 59:4 No one sues justly, and none pleads a case honestly. They trust in confusion and speak lies. They conceive mischief, and bring forth iniquity.
 59:5 They hatch adders’ eggs, and weave the spider’s web— whoever eats their eggs dies; crack one open, a viper breaks out.
 59:6 Their webs will not become clothing, nor will they cover themselves with what they make. Their deeds are works of iniquity, an act of violence is in their hands.
 59:7 Their feet run after evil. They rush to shed innocent blood. Their thoughts are thoughts of iniquity. Violence and ruin are on their highways.
-59:8 They do not know the path of peace, and there is no justice in their tracks. They have made their paths crooked. Whoever walks in them will not experience </span><span class="it"><span class="content">shalom
+59:8 They do not know the path of peace, and there is no justice in their tracks. They have made their paths crooked. Whoever walks in them will not experience shalom.
 59:9 That is why justice is far from us and righteousness does not reach us. We hope for light, but behold darkness, for brightness, but walk in gloom.
 59:10 We grope along the wall like the blind. We grope like those with no eyes. We stumble at noon as at twilight. We are like the dead in desolation.
 59:11 All of us growl like bears or moan like doves. We hope for justice, but there is none; for salvation, but it is far from us.
 59:12 For our transgressions are multiplied before You, and our sins testify against us, for our transgressions are with us, and we know our iniquities:
-59:13 transgressing and denying </span><span class="it"><span class="sc"><span class="content">Adonai
+59:13 transgressing and denying Adonai, turning back from following our God, speaking oppression and revolt, conceiving and uttering lying words from the heart.
 59:14 Justice is turned back, and righteousness stands far off. For truth has stumbled in the street, and uprightness cannot enter.
-59:15 So now truth is missing, and whoever shuns evil becomes prey. Now when </span><span class="it"><span class="sc"><span class="content">Adonai
+59:15 So now truth is missing, and whoever shuns evil becomes prey. Now when Adonai saw it, it was displeasing in His eyes that there was no justice.
 59:16 He saw that there was no one— He was astonished that no one was interceding. Therefore His own arm brought salvation for Him, and His righteousness upheld Him.
 59:17 He put on righteousness as a breastplate and a helmet of salvation on His head. He clothed Himself in robes of vengeance and wrapped Himself in zeal as a cloak.
 59:18 According to their deeds, so He will repay: wrath to His adversaries, retribution to His enemies. To the islands He will repay as due.
-59:19 So from the west they will fear the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
-59:20 “But a Redeemer will come to Zion, and to those in Jacob who turn from transgression.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-59:21 “As for Me, this is My covenant with them,” says </span><span class="it"><span class="sc"><span class="content">Adonai
-60:1 Arise, shine, for your light has come! The glory of </span><span class="it"><span class="sc"><span class="content">Adonai
-60:2 For behold, darkness covers the earth, and deep darkness the peoples. But </span><span class="it"><span class="sc"><span class="content">Adonai
+59:19 So from the west they will fear the Name of Adonai, and His glory from the rising of the sun. For He will come like a rushing stream driven along by the Ruach Adonai.
+59:20 “But a Redeemer will come to Zion, and to those in Jacob who turn from transgression.” It is a declaration of Adonai.
+59:21 “As for Me, this is My covenant with them,” says Adonai: “My Ruach who is on you, and My words that I have put in your mouth, shall not depart from your mouth, or from the mouth of your offspring, or from the mouth of your children’s offspring,” says Adonai, “from now on and forever.”
+60:1 Arise, shine, for your light has come! The glory of Adonai has risen on you.
+60:2 For behold, darkness covers the earth, and deep darkness the peoples. But Adonai will arise upon you, and His glory will appear over you.
 60:3 Nations will come to your light, kings to the brilliance of your rising.
 60:4 Lift up your eyes and look all around: they all gather—they come to you— your sons will come from far away, your daughters carried on the hip.
 60:5 Then you will see and be radiant, and your heart will throb and swell with joy. For the abundance of the sea will be turned over to you. The wealth of nations will come to you.
-60:6 A multitude of camels will cover you, young camels of Midian and Ephah, all those from Sheba will come. They will bring gold and frankincense, and proclaim the praises of </span><span class="it"><span class="sc"><span class="content">Adonai
+60:6 A multitude of camels will cover you, young camels of Midian and Ephah, all those from Sheba will come. They will bring gold and frankincense, and proclaim the praises of Adonai.
 60:7 All Kedar’s flocks will be gathered to you. Nebaioth’s rams will minister to you. They will go up with favor on My altar, and I will beautify My glorious House.
 60:8 Who are these who fly like a cloud, like doves to their windows?
-60:9 Surely the islands will hope in Me, with the ships of Tarshish in the lead, to bring your sons from afar, their silver and gold with them, for the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+60:9 Surely the islands will hope in Me, with the ships of Tarshish in the lead, to bring your sons from afar, their silver and gold with them, for the Name of Adonai your God, and for the Holy One of Israel, because He has glorified you.
 60:10 Foreigners will build up your walls, and their kings will minister to you. For in My fury I struck you, but in My favor I will show you mercy.
 60:11 Your gates will be open continually. They will not be shut day or night, so that men may bring to you the wealth of the nations, with their kings led in procession.
 60:12 For the nation and the kingdom which will not serve you will perish— those nations will be utterly ruined.
 60:13 The glory of Lebanon will come to you —cypress, elm and pine together— to beautify the place of My Sanctuary. I will give to the place of My feet glory.
-60:14 The sons of those who afflicted you will come bowing to you, and all those who despised you will fall at the soles of your feet. They will call you the city of </span><span class="it"><span class="sc"><span class="content">Adonai
+60:14 The sons of those who afflicted you will come bowing to you, and all those who despised you will fall at the soles of your feet. They will call you the city of Adonai, Zion of the Holy One of Israel.
 60:15 Instead of deserted and hated, no one passing through, I will make you an eternal pride, joy from generation to generation.
-60:16 You will also suck the milk of nations and nurse at the breast of kings. Then you will know that I, </span><span class="it"><span class="sc"><span class="content">Adonai
-60:17 “Instead of bronze I will bring gold, instead of iron I will bring silver, instead of wood, bronze, and instead of stones, iron. I will make </span><span class="it"><span class="content">shalom
+60:16 You will also suck the milk of nations and nurse at the breast of kings. Then you will know that I, Adonai, am your Savior and your Redeemer, the Mighty One of Jacob.
+60:17 “Instead of bronze I will bring gold, instead of iron I will bring silver, instead of wood, bronze, and instead of stones, iron. I will make shalom your overseer, and righteousness your taskmasters.
 60:18 No more will violence be heard in your land, devastation nor destruction within your borders. But you will call your walls Salvation and your gates Praise.
-60:19 No more will the sun be your light by day, nor the glow of the moon be your light, but </span><span class="it"><span class="sc"><span class="content">Adonai
-60:20 No more will your sun set, nor will your moon wane, for </span><span class="it"><span class="sc"><span class="content">Adonai
+60:19 No more will the sun be your light by day, nor the glow of the moon be your light, but Adonai will be your everlasting light, and your God for your glory.
+60:20 No more will your sun set, nor will your moon wane, for Adonai will be your everlasting light, as the days of your mourning end.
 60:21 Then your people will all be righteous. They will possess the land forever— the branch of His planting, the work of My hands— that I may be glorified.
-60:22 The smallest will become a thousand, and the least a mighty nation. I, </span><span class="it"><span class="sc"><span class="content">Adonai
-61:1 The </span><span class="it"><span class="content">Ruach </span><span class="sc"><span class="content">Adonai
-61:2 to proclaim the year of </span><span class="it"><span class="sc"><span class="content">Adonai
-61:3 to console those who mourn in Zion, to give them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness, that they might be called oaks of righteousness, the planting of </span><span class="it"><span class="sc"><span class="content">Adonai
+60:22 The smallest will become a thousand, and the least a mighty nation. I, Adonai, will hasten it in its time.”
+61:1 The Ruach Adonai Elohim is on me, because Adonai has anointed me to proclaim Good News to the poor. He has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to those who are bound,
+61:2 to proclaim the year of Adonai’s favor and the day of our God’s vengeance, to comfort all who mourn
+61:3 to console those who mourn in Zion, to give them beauty for ashes, the oil of joy for mourning, the garment of praise for the spirit of heaviness, that they might be called oaks of righteousness, the planting of Adonai, that He may be glorified.
 61:4 They will rebuild the ancient ruins. They will restore former desolations. They will repair the ruined cities, the desolations of many generations.
 61:5 Strangers will stand and shepherd your flocks, children of foreigners will be your plowmen and vinedressers.
-61:6 But you will be called the </span><span class="it"><span class="content">kohanim
+61:6 But you will be called the kohanim of Adonai, They will speak of you as the ministers of our God. You will eat the wealth of nations and boast in their abundance.
 61:7 Instead of your shame, double portion. instead of disgrace they will sing for joy. Therefore in their land they will inherit a double portion; they will have everlasting joy.
-61:8 For I, </span><span class="it"><span class="sc"><span class="content">Adonai
-61:9 Then their offspring will be known among the nations, their descendants among the peoples. All who see them will recognize them, for they are the seed that </span><span class="it"><span class="sc"><span class="content">Adonai
-61:10 I will rejoice greatly in </span><span class="it"><span class="sc"><span class="content">Adonai
-61:11 For as the earth brings forth its sprouts, and as a garden causes things sown to spring up, so </span><span class="it"><span class="sc"><span class="content">Adonai
+61:8 For I, Adonai, love justice. I hate robbery in the burnt offering. In faithfulness I will reward My people and cut an eternal covenant with them.
+61:9 Then their offspring will be known among the nations, their descendants among the peoples. All who see them will recognize them, for they are the seed that Adonai has blessed.
+61:10 I will rejoice greatly in Adonai. My soul will be joyful in my God. For He has clothed me with garments of salvation, He has wrapped me in a robe of righteousness— like a bridegroom wearing a priestly turban, like a bride adorning herself with her jewels.
+61:11 For as the earth brings forth its sprouts, and as a garden causes things sown to spring up, so Adonai Elohim will cause justice and praise to spring up before all the nations.
 62:1 For Zion’s sake I will not keep silent, for Jerusalem’s sake I will not rest, until her righteousness shines out brightly, and her salvation as a blazing torch.
-62:2 Nations will see your righteousness, and all kings your glory. You will be called by a new name, which </span><span class="it"><span class="sc"><span class="content">Adonai
-62:3 You will also be a crown of beauty in the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
-62:4 No longer will you be termed “Forsaken”, no longer your land termed “Desolate”. Instead you will be called, “My Delight is in Her” and your land, “Married”. For </span><span class="it"><span class="sc"><span class="content">Adonai
+62:2 Nations will see your righteousness, and all kings your glory. You will be called by a new name, which Adonai’s mouth will bestow.
+62:3 You will also be a crown of beauty in the hand of Adonai, and a royal diadem in the hand of your God.
+62:4 No longer will you be termed “Forsaken”, no longer your land termed “Desolate”. Instead you will be called, “My Delight is in Her” and your land, “Married”. For Adonai delights in you, and your land will be married.
 62:5 For as a young man marries a virgin, so your sons will marry you. As a bridegroom rejoices over a bride, so your God will rejoice over you.
-62:6 On your walls, Jerusalem, I have set watchmen. All day and all night, they will never hold their peace. “You who remind </span><span class="it"><span class="sc"><span class="content">Adonai
+62:6 On your walls, Jerusalem, I have set watchmen. All day and all night, they will never hold their peace. “You who remind Adonai, take no rest for yourselves,
 62:7 And give Him no rest until He establishes and makes Jerusalem a praise in the earth.
-62:8  has sworn by His right hand and by His strong arm: “Surely I will never again give your grain as food for your enemies, nor will foreigners drink your new wine, for which you have labored.
-62:9 But those who have garnered it will eat it and praise </span><span class="it"><span class="sc"><span class="content">Adonai
+62:8 Adonai has sworn by His right hand and by His strong arm: “Surely I will never again give your grain as food for your enemies, nor will foreigners drink your new wine, for which you have labored.
+62:9 But those who have garnered it will eat it and praise Adonai, and those who have gathered it will drink it in the courts of My Sanctuary.”
 62:10 Go through, go through the gates. Clear the way for the people! Build up, build up the highway! Remove the stones. Lift up a banner over the peoples.
-62:11 Behold, </span><span class="it"><span class="sc"><span class="content">Adonai
-62:12 Then they will call them The Holy People, The Redeemed of </span><span class="it"><span class="sc"><span class="content">Adonai
+62:11 Behold, Adonai has proclaimed to the end of the earth: Say to the Daughter of Zion, “Behold, your salvation comes! See, His reward is with Him, and His recompense before Him.”
+62:12 Then they will call them The Holy People, The Redeemed of Adonai, and you will be called, Sought Out, A City Not Forsaken.
 63:1 “Who is this coming from Edom, in crimsoned garments from Bozrah? This One splendid in His apparel, pressing forward in His great might?” “It is I who speak in righteousness, mighty to save.”
 63:2 “Why is Your apparel so red, and Your garments like one who treads in a wine press?”
 63:3 “I have trodden the winepress alone— from the peoples, no man was with Me. I trod them in My anger, and trampled them in My wrath. Their lifeblood spattered My garments, so I stained all My robes.
 63:4 For a day of vengeance was in My heart, and My year of redemption has come.
 63:5 I looked, but there was no one to help. I was amazed, but no one was assisting. So My own arm won victory for Me, and My wrath upheld Me.
 63:6 So I trod down the peoples in My anger, and made them drunk in My wrath, and I poured out their lifeblood on the earth.”
-63:7 I will remember the lovingkindnesses of </span><span class="it"><span class="sc"><span class="content">Adonai
+63:7 I will remember the lovingkindnesses of Adonai, the praises of Adonai, according to all that Adonai has granted us, and the great goodness toward the house of Israel, which He has granted them according to His compassion, and according to the abundance of His lovingkindnesses.
 63:8 For He said, “Surely they are My people, children who will not deal falsely.” So He became their Savior.
 63:9 In all their affliction He was afflicted. So the angel of His presence saved them. In His love and in His mercy He redeemed them, then He lifted them and carried them all the days of old.
-63:10 But they rebelled, and grieved His </span><span class="it"><span class="content">Ruach ha-Kodesh
-63:11 Then His people remembered the days of old, the days of Moses: “Where is He who brought them through the sea with the shepherd of His flock? Where is He who put among them His </span><span class="it"><span class="content">Ruach ha-Kodesh
+63:10 But they rebelled, and grieved His Ruach ha-Kodesh. So He turned to become their enemy. He Himself fought against them.
+63:11 Then His people remembered the days of old, the days of Moses: “Where is He who brought them through the sea with the shepherd of His flock? Where is He who put among them His Ruach ha-Kodesh?
 63:12 Who caused His glorious arm to go at the right hand of Moses? Who divided the waters before them— to make Himself a Name forever?
 63:13 Who led them through the depths? Like a horse in the desert, they did not stumble.
-63:14 Like cattle that go down into a valley, the </span><span class="it"><span class="content">Ruach
+63:14 Like cattle that go down into a valley, the Ruach Adonai gave them rest. So You led Your people, to make Yourself a glorious Name.
 63:15 Look down from heaven and see from Your holy, glorious, lofty abode. Where are Your zeal and mighty deeds? Are the yearnings of Your heart, Your compassions, withheld from me?
-63:16 For You are our Father— even if Abraham would not know us or Israel not recognize us. You, </span><span class="it"><span class="sc"><span class="content">Adonai
-63:17 , why do You cause us to stray from Your ways, and harden our heart from fearing You? Return for Your servants’ sake, the tribes of Your heritage.
+63:16 For You are our Father— even if Abraham would not know us or Israel not recognize us. You, Adonai, are our Father, our Redeemer— from everlasting is Your Name.
+63:17 Adonai, why do You cause us to stray from Your ways, and harden our heart from fearing You? Return for Your servants’ sake, the tribes of Your heritage.
 63:18 Briefly Your holy people possessed it— our foes have trampled Your Sanctuary.
 63:19 We have become like those over whom You have never ruled, like those not called by Your Name. Oh, that You would rend the heavens and come down, that the mountains might quake at Your presence!
 64:1 As fire kindles brushwood, as fire causes water to boil, make Your Name known to Your foes, so the nations may tremble before You!
@@ -1235,58 +1235,57 @@
 64:4 You meet him who rejoices in doing righteousness, who remembers You in Your ways. Behold, You were angry. When we keep sinning all the time, would we be saved?
 64:5 For all of us have become like one who is unclean, and all our righteousness is like a filthy garment, and all of us wither like a leaf, and our iniquities carry us away, like the wind.
 64:6 No one calls on Your Name, or stirs himself up to take hold of You. For You have hidden Your face from us, and have consumed us, because of our iniquities.
-64:7 But now, </span><span class="it"><span class="sc"><span class="content">Adonai
-64:8 Do not be angry much more, </span><span class="it"><span class="sc"><span class="content">Adonai
+64:7 But now, Adonai, You are our Father. We are the clay and You are our potter, We are all the work of Your hand.
+64:8 Do not be angry much more, Adonai, or remember iniquity forever. Oh, please see, we are all Your people!
 64:9 Your holy cities became a wilderness, Zion has become a wilderness, Jerusalem a desolation.
 64:10 Our holy and beautiful House, where our fathers praised You, Has been burned with fire— all our pleasant things are laid waste.
-64:11 Will You restrain Yourself at these things? </span><span class="it"><span class="sc"><span class="content">Adonai
-64:12
-65:1 “I was sought by those who did not ask for Me, I was found by those who did not seek Me. I said, ‘</span><span class="it"><span class="content">Hineni
+64:11 Will You restrain Yourself at these things? Adonai, will You stay silent, and afflict us very severely?
+65:1 “I was sought by those who did not ask for Me, I was found by those who did not seek Me. I said, ‘Hineni, hineni!’ to a nation not called by My Name.
 65:2 I have stretched out My hands all day to a rebellious people, who walk in a way that is not good, following their own thoughts.
 65:3 These people provoke Me continually to My face, sacrificing in gardens, burning incense on bricks,
 65:4 sitting among graves, spending the night in cave-tombs; eating swine’s flesh, and the broth of detestable things is in their pots,
 65:5 who say, ‘Keep to yourself, don’t come to me, for I am holier than you!’ These are smoke in My nostrils, a fire that burns all day.
 65:6 Behold, it is written before Me; I will not keep silence, but will repay, even repay into their laps,
-65:7 your iniquities, and the iniquities of your fathers together,” says </span><span class="it"><span class="sc"><span class="content">Adonai
-65:8 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+65:7 your iniquities, and the iniquities of your fathers together,” says Adonai, “because they burned incense on the mountains, and scorned Me on the hills. So I will measure into their laps full wages for their former deeds.”
+65:8 Thus says Adonai: “As new wine is found in a cluster, and one says, ‘Do not destroy it, for a blessing is in it,’ so I will do for My servants’ sakes, that I may not destroy them all.
 65:9 I will bring forth offspring from Jacob, an heir of My mountains from Judah. My chosen ones will inherit it, and My servants will dwell there.
 65:10 Sharon will be a fold of flocks, and the valley of Achor a place for herds to lie down in, for My people who seek Me.
-65:11 But you who forsake </span><span class="it"><span class="sc"><span class="content">Adonai
+65:11 But you who forsake Adonai, who forget My holy mountain, who prepare a table for Fortune, who fill cups of mixed wine for Fate,
 65:12 I will fate you to the sword, and all of you will kneel to slaughter. For I called, but you did not answer, I spoke, but you did not hear. So you did what was evil in My sight, and chose what I did not delight in.”
-65:13 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+65:13 Therefore thus says Adonai Elohim: “Behold, My servants will eat, while you will go hungry. Behold, My servants will drink, but you will be thirsty. Behold, My servants will rejoice, but you will be put to shame.
 65:14 Behold, My servants will sing for joy with a happy heart, but you will cry from pain of heart, and wail out of a broken spirit.
-65:15 You will leave your name behind as a curse for My chosen ones, and </span><span class="it"><span class="sc"><span class="content">Adonai
-65:16 So he who says a </span><span class="it"><span class="content">bracha
+65:15 You will leave your name behind as a curse for My chosen ones, and Adonai Elohim will slay you. But He will call His servants by another name.
+65:16 So he who says a bracha in the land will be blessed by the God of truth, and he who swears in the land will swear by the God of truth. For the former troubles are forgotten, because they are hidden from My sight!
 65:17 For behold, I create new heavens and a new earth. The former things will not be remembered or come to mind.
 65:18 But be glad and rejoice forever in what I am creating. For behold, I am creating Jerusalem for rejoicing, and her people for joy.
 65:19 Then I will rejoice in Jerusalem, and be glad in My people. No longer will the voice of weeping or the voice of crying be heard in her.
 65:20 No longer will there be in it an infant who lives but a few days, or an old man who does not fill out his days. For the youth will die at a hundred years, But one who misses the mark of a hundred must be accursed.
 65:21 They will build houses and inhabit them. They will plant vineyards and eat their fruit.
 65:22 They will not build and another inhabit, nor plant and another eat. For like the days of a tree, so will be the days of My people, and My chosen ones will long enjoy the work of their hands.
-65:23 They will not labor in vain nor bear children for calamity. For they are the offspring of those blessed by </span><span class="it"><span class="sc"><span class="content">Adonai
+65:23 They will not labor in vain nor bear children for calamity. For they are the offspring of those blessed by Adonai, as well as descendants with them.
 65:24 And it will come to pass that before they call, I will answer, and while they are still speaking, I will hear.
-65:25 The wolf and the lamb will feed together. The lion will eat straw like the ox, but dust will be the serpent’s food. They will not hurt or destroy in all My holy mountain,” says </span><span class="it"><span class="sc"><span class="content">Adonai
-66:1 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-66:2 For My hand has made all these things, so all these things came to be,” declares </span><span class="it"><span class="sc"><span class="content">Adonai
+65:25 The wolf and the lamb will feed together. The lion will eat straw like the ox, but dust will be the serpent’s food. They will not hurt or destroy in all My holy mountain,” says Adonai.
+66:1 Thus says Adonai: “Heaven is My throne, and the earth is My footstool. Where then is the House you would build for Me? Where is the place of My rest?
+66:2 For My hand has made all these things, so all these things came to be,” declares Adonai. “But on this one will I look, one humble and of a contrite spirit, who trembles at My word.”
 66:3 One who kills an ox is like one who kills a man; one who sacrifices a lamb is like one who breaks a dog’s neck; one who offers a grain offering is like one who offers swine’s blood; one who burns incense is like one who blesses an idol. They have chosen their own ways, so their soul delights in their abominations.
 66:4 So I will choose their punishments and bring on them what they dread. For when I called, no one answered; when I spoke, they did not listen. But they did what was evil in My eyes, and chose what I did not delight in.
-66:5 Hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-66:6 A sound of uproar from the city, a sound from the Temple— the sound of </span><span class="it"><span class="sc"><span class="content">Adonai
+66:5 Hear the word of Adonai, you who tremble at His word: “Your brothers who hated you, excluding you for My Name’s sake, have said, ‘Let Adonai be glorified, that we may see your joy’— but they will be put to shame.”
+66:6 A sound of uproar from the city, a sound from the Temple— the sound of Adonai who fully repays His enemies.
 66:7 Before she was in labor, she gave birth. Before her pain came, she delivered a male child.
 66:8 Who has heard such a thing? Who has seen such things? Can a land be born in one day? Can a nation be brought forth at once? For as soon as Zion was in labor, she gave birth to her children.
-66:9 “Will I bring the moment of birth, and not give delivery?” says </span><span class="it"><span class="sc"><span class="content">Adonai
+66:9 “Will I bring the moment of birth, and not give delivery?” says Adonai. “Will I who cause delivery shut up the womb?” says your God.
 66:10 Rejoice with Jerusalem, and be glad with her, all you who love her. Rejoice for joy with her all you who mourned over her.
 66:11 For you will nurse and be satisfied from her comforting breast. You will drink deeply and delight from her glorious abundance.
-66:12 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+66:12 For thus says Adonai: “Behold, I will extend peace to her like a river, and the glory of the nations like an overflowing stream. You will be nursed, carried on the hip, and bounced on her knees.
 66:13 As one whom his mother comforts, so I will comfort you, so you will be comforted in Jerusalem.
-66:14 You will see, your heart will rejoice, and your bones will flourish like grass. So the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
-66:15 For behold, </span><span class="it"><span class="sc"><span class="content">Adonai
-66:16 For by fire and His sword </span><span class="it"><span class="sc"><span class="content">Adonai
-66:17 Those who consecrate and purify themselves to enter the groves, following after one in the midst, who eat swine’s flesh, vermin and mice, will come to an end altogether. It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+66:14 You will see, your heart will rejoice, and your bones will flourish like grass. So the hand of Adonai will be known to His servants, and His indignation to His enemies.
+66:15 For behold, Adonai will come in fire, and His chariots like the whirlwind, to render His anger with fury, and His rebuke with flames of fire.
+66:16 For by fire and His sword Adonai will execute judgment on all flesh and those slain by Adonai will be many.
+66:17 Those who consecrate and purify themselves to enter the groves, following after one in the midst, who eat swine’s flesh, vermin and mice, will come to an end altogether. It is a declaration of Adonai.
 66:18 “For I know their works and their thoughts. It will come about that I will gather all nations and tongues, and they will come and see My glory.
 66:19 Then I will set up a sign among them, and I will send survivors from them to the nations, to Tarshish, Pul and Lud (who pull the bow), to Tubal and Javan, to distant islands that have not heard My fame or seen My glory. Then they will declare My glory among the nations.
-66:20 “Then they will bring all your kinsmen from all the nations, as an offering to </span><span class="it"><span class="sc"><span class="content">Adonai
-66:21 I will also take some of them as priests and for Levites,” says </span><span class="it"><span class="sc"><span class="content">Adonai
-66:22 “For just as the new heavens and the new earth, which I will make, will endure before Me”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-66:23 “And it will come to pass, that from one New Moon to another, and from one </span><span class="it"><span class="content">Shabbat
+66:20 “Then they will bring all your kinsmen from all the nations, as an offering to Adonai, on horses and in chariots, and on litters, mules and camels, to My holy mountain Jerusalem,” says Adonai, “just as Bnei-Yisrael bring their grain offering in a clean vessel to the House of Adonai.
+66:21 I will also take some of them as priests and for Levites,” says Adonai.
+66:22 “For just as the new heavens and the new earth, which I will make, will endure before Me”—it is a declaration of Adonai—“so your descendants and your name will endure.”
+66:23 “And it will come to pass, that from one New Moon to another, and from one Shabbat to another, all flesh will come to bow down before Me,” says Adonai.
 66:24 “As they leave, they will look on the corpses of the people who rebelled against Me. For their worm will not die, and their fire will not be quenched, and they will be a horror to all flesh.”
