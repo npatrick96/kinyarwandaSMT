@@ -141,28 +141,28 @@
 5:29 Should I not punish them?” says Adonai. “On such a nation should I not avenge Myself?
 5:30 An appalling and horrible thing has happened in the land.
 5:31 The prophets prophesy falsely, the kohanim rule by their own authority, and My people love it this way! But what will you do in the end?”
-6:1 Flee for refuge, children of Benjamin, from the midst of Jerusalem! Blow the </span><span class="it"><span class="content">shofar
+6:1 Flee for refuge, children of Benjamin, from the midst of Jerusalem! Blow the shofar in Tekoa and raise a signal in Beth-cherem! For disaster looms from the north, even terrible destruction.
 6:2 “The lovely, delicate Daughter of Zion I will cut off.”
 6:3 Shepherds with their flocks are coming against her. All around her they pitch their tents, each pasturing in his own place.
-6:4 “Prepare for war against her. Rise up! Let’s attack at noon.” “</span><span class="it"><span class="content">Oy
+6:4 “Prepare for war against her. Rise up! Let’s attack at noon.” “Oy for us! For day is fading— evening shadows are lengthening.”
 6:5 “Rise up! Let’s attack at night and destroy her palaces.”
-6:6 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+6:6 For thus says Adonai-Tzva’ot: “Chop down her trees! Raise a siege ramp at Jerusalem. This city must be punished— in her midst is only oppression.
 6:7 As a well gushes out its waters, so she pours out her wickedness. Violence and havoc are heard in her, sickness and wounds ever before Me.
 6:8 Be warned, O Jerusalem, lest I abandon you, lest I make you desolate— an uninhabited land.”
-6:9 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-6:10 “To whom can I speak and warn so they would hear? See, their ears are uncircumcised, unable to hear! The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-6:11 So I am full of the wrath of </span><span class="it"><span class="sc"><span class="content">Adonai
-6:12 Their homes will be turned over to others—together with their fields and their wives. For I will stretch out My hand on the inhabitants of the land.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-6:13 “For from the least to the greatest, all of them are greedy for gain, and from prophet even to </span><span class="it"><span class="content">kohen
-6:14 They healed the wound of My people superficially, saying ‘</span><span class="it"><span class="content">Shalom
-6:15 ""Were they ashamed when they committed abomination? No, they were not at al ashamed; they did not know how to blush. Therefore they shall fall among thos who fall; at the time that I punish them, they shall be overthrown,"" says </span><span class="it"><span class="sc"><span class="content">Adonai
-6:16 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-6:17 So I set watchmen over you, saying ‘Listen to the sound of the </span><span class="it"><span class="content">shofar
+6:9 Thus says Adonai-Tzva’ot: “Glean the remnant of Israel thoroughly as a vine. Pass your hand over the branches once more, like a grape-gatherer.”
+6:10 “To whom can I speak and warn so they would hear? See, their ears are uncircumcised, unable to hear! The word of Adonai has become scorn to them. They have no delight in it.
+6:11 So I am full of the wrath of Adonai. I am weary of holding it in! Pour it out on a child in the street, on young men gathered together. For husband will be taken with wife, the aged with the very old.
+6:12 Their homes will be turned over to others—together with their fields and their wives. For I will stretch out My hand on the inhabitants of the land.” It is a declaration of Adonai.
+6:13 “For from the least to the greatest, all of them are greedy for gain, and from prophet even to kohen, everyone practices deceit.
+6:14 They healed the wound of My people superficially, saying ‘Shalom, shalom!’ when there is no shalom.”
+6:15 ""Were they ashamed when they committed abomination? No, they were not at al ashamed; they did not know how to blush. Therefore they shall fall among thos who fall; at the time that I punish them, they shall be overthrown,"" says Adonai.
+6:16 Thus says Adonai: “Stand in the roads and look. Ask for the ancient paths— where the good way is— and walk in it. Then you will find rest for your souls. But they said, ‘We won’t walk in it.’
+6:17 So I set watchmen over you, saying ‘Listen to the sound of the shofar!’ But they said, ‘We won’t listen.’
 6:18 Therefore hear, O nations and observe, O congregation, what is against them.
-6:19 Hear, O earth! See, I will bring disaster on this people —fruit of their schemes— for they did not listen to My words and rejected My </span><span class="it"><span class="content">Torah
+6:19 Hear, O earth! See, I will bring disaster on this people —fruit of their schemes— for they did not listen to My words and rejected My Torah.
 6:20 Of what use to Me is frankincense coming from Sheba or sweet cane from a distant country? Your burnt offerings are not acceptable, nor are your sacrifices pleasing to Me.”
-6:21 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-6:22 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+6:21 Therefore thus says Adonai: “Look, I am laying before this people stumbling blocks— and against them they will stumble— fathers and the sons together, a neighbor and his friend, and they will perish.”
+6:22 Thus says Adonai: “Look, a people coming from a northern land, a great nation roused from the ends of the earth!
 6:23 They are armed with bow and spear, cruel and with no compassion. They sound like the roaring sea— as they ride on horses as men in battle formation, against you, Daughter of Zion!”
 6:24 “We have heard of their fame. Our hands hang limp; anguish has gripped us, pain like a woman in labor.
 6:25 Don’t go out into the field or walk on the road. Since the enemy has a sword, there’s terror on every side!”
@@ -170,140 +170,140 @@
 6:27 “I have made you a metal-tester among My people—so you may observe and test their way.
 6:28 They are all stubborn rebels spreading slander. They are bronze and iron, all of them are corrupt.
 6:29 The bellows blow fiercely, blasting away the lead with fire. The refining is completely in vain, for the wicked are not drawn off.
-6:30 They are called ‘cast off silver’— for </span><span class="it"><span class="sc"><span class="content">Adonai
-7:1 The word that came to Jeremiah from </span><span class="it"><span class="sc"><span class="content">Adonai
-7:2 Stand in the gate of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:3 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-7:4 Do not trust in deceptive words and say ‘The Temple of </span><span class="it"><span class="sc"><span class="content">Adonai
+6:30 They are called ‘cast off silver’— for Adonai has cast them off.”
+7:1 The word that came to Jeremiah from Adonai, saying:
+7:2 Stand in the gate of Adonai’s house and proclaim there this word and say: “Hear the word of Adonai, all you of Judah that come through these gates to worship Adonai.
+7:3 Thus says Adonai-Tzva’ot, the God of Israel; mend your ways and your deeds, and I will let you live in this place.
+7:4 Do not trust in deceptive words and say ‘The Temple of Adonai, the Temple of Adonai, the Temple of Adonai!’
 7:5 “No, if you truly mend your ways and your deeds—if you are doing justice between a man and his neighbor,
 7:6 not oppressing the sojourner, orphan and widow nor shedding innocent blood in this place, nor going after other gods to your own ruin—
 7:7 then I will let you dwell in this place, in the land that I gave to your fathers forever and ever.
 7:8 Look, you are trusting in deceptive words that are empty.
 7:9 Will you steal, murder, and commit adultery and perjury, and offer incense to Baal and walk after other gods whom you have not known—
 7:10 and then come and stand before Me in this house that bears My Name, saying, ‘We are saved!’—so that you may keep doing all these abominations?
-7:11 Has this House, which bears My Name, become a den of robbers in your eyes? Look, even I have seen it!” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+7:11 Has this House, which bears My Name, become a den of robbers in your eyes? Look, even I have seen it!” It is a declaration of Adonai.
 7:12 “Indeed, go now to My place that was in Shiloh, where I first made My Name dwell. Now see what I did to it because of the wickedness of My people Israel.
-7:13 While you were doing all these things,” declares </span><span class="it"><span class="sc"><span class="content">Adonai
+7:13 While you were doing all these things,” declares Adonai, “I spoke to you early and often, but you did not listen, and I called you but you did not answer.
 7:14 Therefore I will do to the House that bears My Name—the one in which you trust, the one that I gave to you and to your fathers—as I have done to Shiloh.
 7:15 And I will cast you out of My sight, just as I cast out all your brothers, all the offspring of Ephraim.
 7:16 “As for you, do not pray for this people. Do not offer any supplication or petition for them, nor entreat Me, because I will not hear you.
 7:17 Do you not see what they are doing in the cities of Judah and in the streets of Jerusalem?
 7:18 The children gather wood, the fathers light the fire and the women knead the dough to make sacrificial cakes to the queen of heaven. Moreover, they pour out drink offerings to other gods in order to provoke Me to anger.
-7:19 But am I the One they are provoking?” declares </span><span class="it"><span class="sc"><span class="content">Adonai
-7:20 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-7:21 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+7:19 But am I the One they are provoking?” declares Adonai. “Are they not vexing themselves to their own shame?”
+7:20 Therefore thus says Adonai Elohim: “My anger and My wrath is about to be poured out on this place—on man and beast, and on the trees of the field and the fruit of the land—and it will burn and not be quenched.”
+7:21 Thus says Adonai-Tzva’ot, the God of Israel: “Add your burnt offerings to your sacrifices and eat the meat!
 7:22 For on the day that I brought your fathers out of the land of Egypt I did not speak to them nor did I command them concerning burnt offerings and sacrifices,
 7:23 but I explicitly commanded them: ‘Obey My voice and I will be your God to you and you will be My people. Walk in all the ways that I command you that it may go well with you.’
 7:24 But they did not listen or pay attention. Instead they followed their own counsel, in the stubbornness of their evil heart. They have gone backward and not forward,
 7:25 from the day your fathers left the land of Egypt until today. Although I sent to you all My servants the prophets, daily and persistently,
 7:26 they did not listen to Me or pay attention. Rather, they stiffened their neck, doing more evil than their fathers.
 7:27 “When you tell them all these things, they will not listen to you. When you call to them, they will not answer you.
-7:28 So you will say to them, ‘This nation has not obeyed the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:29 Cut off your hair and throw it away and take up a lamentation on the barren hills. For </span><span class="it"><span class="sc"><span class="content">Adonai
-7:30 “The children of Judah have done what is evil in My sight”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+7:28 So you will say to them, ‘This nation has not obeyed the voice of Adonai their God or received correction. Truth has perished and is cut off from their mouth.
+7:29 Cut off your hair and throw it away and take up a lamentation on the barren hills. For Adonai has spurned and cast off the generation of His wrath.”
+7:30 “The children of Judah have done what is evil in My sight”—it is a declaration of Adonai—“They have set their detestable things in the House that bears My Name to defile it.
 7:31 They have built the high places of Topheth in the Valley of Ben-Hinnom to burn their sons and their daughters in the fire—which I did not command, nor did it even enter My mind.
-7:32 Therefore, the days are soon coming,” declares </span><span class="it"><span class="sc"><span class="content">Adonai
+7:32 Therefore, the days are soon coming,” declares Adonai, “when it will no longer be called Topheth, nor the Valley of Ben-Hinnom, but the Valley of Slaughter. For they will bury in Topheth until there is no room.
 7:33 The carcasses of this people will be food for the birds of the sky and for the beasts of the earth, and no one will frighten them away.
 7:34 Then I will bring an end, from the cities of Judah and from the streets of Jerusalem, to the voice of joy and the voice of gladness, the voice of the bridegroom and the voice of the bride. For the land will be desolate.”
-8:1 “At that time”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+8:1 “At that time”—it is a declaration of Adonai—“the bones of the kings of Judah and the bones of his princes, the bones of the kohanim and the bones of the prophets, and the bones of the inhabitants of Jerusalem will be brought out of their graves.
 8:2 They will spread them out to the sun, the moon and all the host of heaven, which they have loved and served, and after which they have walked and sought, and which they have worshipped. They will not be gathered or buried, but will be like dung on the face of the ground.
-8:3 So death will be chosen rather than life by all the remnant that remains of this evil family that remains in all the places to which I have driven them.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-8:4 Moreover you will say to them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+8:3 So death will be chosen rather than life by all the remnant that remains of this evil family that remains in all the places to which I have driven them.” It is a declaration of Adonai-Tzva’ot.
+8:4 Moreover you will say to them, thus says Adonai: “Do men fall and not get up again? Does one turn away and not return?
 8:5 Why then has this people—Jerusalem— turned away in perpetual backsliding? They cling to deceit; they refuse to return.
 8:6 I listened attentively, but they have not spoken what is right. No one repents of his wickedness, saying, ‘What have I done?’ Each one turns in his own direction, like a horse charging into battle.
-8:7 Even the stork in the sky knows her appointed times, and the turtledove, swallow and crane observe the time of their migration, but My people do not know the judgments of </span><span class="it"><span class="sc"><span class="content">Adonai
-8:8 How can you say, ‘We are wise! The </span><span class="it"><span class="content">Torah
-8:9 The wise men will be put to shame— shattered, trapped. Look! They have rejected </span><span class="it"><span class="sc"><span class="content">Adonai
-8:10 Therefore I will give their wives to others and their fields to new owners. For from the least to the greatest everyone is greedy for gain. From the prophet even to the </span><span class="it"><span class="content">kohen
-8:11 They heal the fracture of the daughter of My people by treating it superficially— saying, ‘</span><span class="it"><span class="content">Shalom
-8:12 Were they ashamed of the abomination they committed? No, not ashamed, not at all— they do not know how to blush! So they will fall among the fallen. At the time of their punishment they will be brought down.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-8:13 “I will utterly consume them,” says </span><span class="it"><span class="sc"><span class="content">Adonai
-8:14 “Why are we sitting here? Assemble! Let us flee to the fortified cities and perish there! For </span><span class="it"><span class="sc"><span class="content">Adonai
-8:15 We hoped for </span><span class="it"><span class="content">shalom
+8:7 Even the stork in the sky knows her appointed times, and the turtledove, swallow and crane observe the time of their migration, but My people do not know the judgments of Adonai.
+8:8 How can you say, ‘We are wise! The Torah of Adonai is with us’? In fact, it is the lying pen of the scribes that have made it a lie.
+8:9 The wise men will be put to shame— shattered, trapped. Look! They have rejected Adonai’s word, so what wisdom do they have?
+8:10 Therefore I will give their wives to others and their fields to new owners. For from the least to the greatest everyone is greedy for gain. From the prophet even to the kohen everyone practices deceit.
+8:11 They heal the fracture of the daughter of My people by treating it superficially— saying, ‘Shalom, shalom,’ when there is no shalom.
+8:12 Were they ashamed of the abomination they committed? No, not ashamed, not at all— they do not know how to blush! So they will fall among the fallen. At the time of their punishment they will be brought down.” It is a declaration of Adonai.
+8:13 “I will utterly consume them,” says Adonai. “There will be no grapes on the vine, and no figs on the fig tree, and even the leaf will wither, and what I gave them will pass away.”
+8:14 “Why are we sitting here? Assemble! Let us flee to the fortified cities and perish there! For Adonai Eloheinu has silenced us and given us poisoned water to drink. For we have sinned against Adonai.
+8:15 We hoped for shalom, but it is no good, for a time of healing —and suddenly, terror!”
 8:16 From Dan is heard the snorting of his horses. At the sound of his stallions neighing, the whole land quakes. For they come and devour the land and everything in it— the city and all who live there.
-8:17 “For I am about to send serpents on you, vipers for which there is no charm, and they will bite you.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+8:17 “For I am about to send serpents on you, vipers for which there is no charm, and they will bite you.” It is a declaration of Adonai.
 8:18 My joy is overcome by grief, my heart is faint within me.
-8:19 Listen, the sound of the cry of the daughter of my people —a voice from a distant land— “Is </span><span class="it"><span class="sc"><span class="content">Adonai
+8:19 Listen, the sound of the cry of the daughter of my people —a voice from a distant land— “Is Adonai no longer in Zion? Is her King no longer in her?” “Why have they provoked Me with their graven images, with foreign idols?”
 8:20 “Harvest is past, summer is over, yet we are not saved.”
 8:21 “Because of the brokenness of the daughter of my people, I am brokenhearted. I mourn—desolation grips me.
 8:22 Is there no balm in Gilead? Is there no physician there? Then why has no healing gone up for the daughter of my people?
+8:23 If only my head were water and my eyes a fountain of tears, then I would weep day and night for the slain of the daughter of my people!
 9:1 If only I had a travelers’ lodging place in the wilderness, then I might leave my people and get away from them! For they are all adulterers, a bunch of traitors.
-9:2 They bend their tongue like a bow. Lies, not faithfulness, prevail in the land. “For they go from evil to evil and do not know Me,” says </span><span class="it"><span class="sc"><span class="content">Adonai
+9:2 They bend their tongue like a bow. Lies, not faithfulness, prevail in the land. “For they go from evil to evil and do not know Me,” says Adonai.
 9:3 Beware, everyone, of your neighbor! Don’t even trust a brother. For every brother grabs like Jacob and every neighbor spreads slander.
 9:4 Everyone deceives his neighbor and does not speak the truth. They taught their tongue to speak lies. They wear themselves out doing wrong.
-9:5 “You dwell in the midst of deceit. In deceit they refuse to know Me.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-9:6 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-9:7 Their tongue is a deadly arrow, speaking deceit. With his mouth each says </span><span class="it"><span class="content">shalom
-9:8 For such things shall I not punish them?” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+9:5 “You dwell in the midst of deceit. In deceit they refuse to know Me.” It is a declaration of Adonai.
+9:6 Therefore thus says Adonai-Tzva’ot: “I am about to refine them and test them. For what else can I do for the daughter of My people?
+9:7 Their tongue is a deadly arrow, speaking deceit. With his mouth each says shalom to his neighbor, while inwardly setting a trap for him.
+9:8 For such things shall I not punish them?” It is a declaration of Adonai. “Should I not avenge Myself on such a nation as this?”
 9:9 For the mountains I lift up weeping and wailing, a lament for the desert pastures. For they are so scorched that no one passes through— the lowing of cattle is not heard. The birds of the air have fled and the animals are gone.
 9:10 “I will make Jerusalem a heap of ruins, a lair for jackals. I will make the cities of Judah a wasteland without inhabitant.
-9:11 Who is the one wise enough to understand this? To whom has the mouth of </span><span class="it"><span class="sc"><span class="content">Adonai
-9:12  that I set before them. They have neither obeyed My voice nor walked according to it,
+9:11 Who is the one wise enough to understand this? To whom has the mouth of Adonai spoken that he may explain it? Why is the land ruined, laid waste like a wilderness, so that no one passes through?”
+9:12 Adonai said “It is because they have forsaken My Torah that I set before them. They have neither obeyed My voice nor walked according to it,
 9:13 but have walked after the stubbornness of their heart, and after the Baalim that their fathers taught them.
-9:14 Therefore, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+9:14 Therefore, thus says Adonai-Tzva’ot, the God of Israel, “look, I will make this people eat wormwood and drink poisoned water.
 9:15 I will scatter them among the nations whom neither they nor their fathers have known. I will pursue them with the sword, until I have finished with them.”
-9:16 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+9:16 Thus says Adonai-Tzva’ot: “Pay attention! Call the dirge-singers and let them come. Send for the most skillful wailers and let them come!”
 9:17 “Let them come quickly and lift up a wailing over us so our eyes may run down with tears and our eyelids gush with water.”
 9:18 For a wailing voice is heard from Zion: “How we are ruined! We are utterly ashamed— we have forsaken the land, for they tore down our dwellings.”
-9:19 Now, hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+9:19 Now, hear the word of Adonai, O women, let your ear receive the word of His mouth. Teach your daughters wailing and everyone her neighbor a dirge.
 9:20 For death has climbed through our windows. It has entered into our palaces to cut off children from the street and young men from the squares.”
-9:21 “Say this,” declares </span><span class="it"><span class="sc"><span class="content">Adonai
-9:22 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-9:23 But let one who boasts boast in this: that he understands and knows Me. For I am </span><span class="it"><span class="sc"><span class="content">Adonai
-9:24 “Days are soon coming,” declares </span><span class="it"><span class="sc"><span class="content">Adonai
+9:21 “Say this,” declares Adonai. “The carcasses of men will lie like dung on the open field, like cut grain behind the reaper, with no one gathering them.”
+9:22 Thus says Adonai: “Let not the wise boast in his wisdom nor the mighty boast in his might nor the rich glory in his riches.
+9:23 But let one who boasts boast in this: that he understands and knows Me. For I am Adonai who exercises lovingkindness, justice and righteousness on earth. For in these things I delight.” It is a declaration of Adonai.
+9:24 “Days are soon coming,” declares Adonai, “when I will punish all who are circumcised and yet uncircumcised—
 9:25 Egypt, Judah, Edom and Ammon’s children and Moab, and all that have cut the corners of their hair—that dwell in the wilderness. For all the nations are uncircumcised but all the house of Israel are uncircumcised in the heart.
-9:26
-10:1 Hear the word that </span><span class="it"><span class="sc"><span class="content">Adonai
-10:2 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+10:1 Hear the word that Adonai speaks to you, house of Israel,
+10:2 Thus says Adonai: “Do not learn the way of the nations or be frightened by signs of the heavens—though the nations are terrified by them.
 10:3 The customs of the peoples are useless: it is just a tree cut from the forest, the work of the hands of a craftsman with a chisel.
 10:4 They decorate it with silver and gold, and fasten it with hammer and nails so it won’t totter.
 10:5 Like a scarecrow in a cucumber garden, their idols cannot speak. They must be carried because they cannot walk! Do not fear them for they can do no harm —nor do any good.”
-10:6 There is none like You, </span><span class="it"><span class="sc"><span class="content">Adonai
+10:6 There is none like You, Adonai! You are great and great is Your Name in power.
 10:7  Who should not fear You, Ruler of the nations? For it is your due! For among all the wise of the nations and in all their kingdoms, there is none like You.
 10:8 They are totally stupid and foolish. Discipline is useless—it’s wood!
 10:9 Beaten silver is brought from Tarshish and gold from Uphaz. The work of the craftsman and of the goldsmith’s hands is clothed in blue and purple— all the work of skillful men.
-10:10 But </span><span class="it"><span class="sc"><span class="content">Adonai
+10:10 But Adonai Elohim is truth. He is the living God and eternal King. At His wrath the earth quakes and the nations cannot endure His indignation.
 10:11 Thus you will say to them: “The gods—which did not make the heavens and the earth—will perish from the earth and from under the heavens.”
 10:12 He made the earth by His power, established the world by His wisdom, and stretched out heaven by His understanding.
 10:13 When His voice thunders, waters in heaven roar. He makes clouds rise from the ends of the earth. He makes lightning for the rain and brings forth wind from His storehouses.
 10:14 Everyone is stupid, ignorant. Every goldsmith is put to shame by his idol! His molten image is a fraud. There is no breath in them.
 10:15 They are futile, a work of mockery. In the time of their punishment they will perish.
-10:16 Jacob’s portion is not like these. For He is the Maker of all things and Israel, the tribe of His inheritance —</span><span class="it"><span class="sc"><span class="content">Adonai
+10:16 Jacob’s portion is not like these. For He is the Maker of all things and Israel, the tribe of His inheritance —Adonai-Tzva’ot is His Name.”
 10:17 Pick up your bundle from the ground, you who live under siege.
-10:18 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-10:19  to me because of my brokenness! My wound is incurable. Yet I said, “This is simply a sickness and I must bear it.”
+10:18 For thus says Adonai: “I am about to hurl the inhabitants out of the land. At this time I will press hard on them so that they will be found out.”
+10:19 Oy to me because of my brokenness! My wound is incurable. Yet I said, “This is simply a sickness and I must bear it.”
 10:20 “My tent is destroyed and all my ropes are snapped. My children are gone from me and are no more. No one is left to stretch out my tent or set up my tent curtains.
-10:21 For the shepherds are stupid! They have not sought </span><span class="it"><span class="sc"><span class="content">Adonai
+10:21 For the shepherds are stupid! They have not sought Adonai. Therefore they have not acted wisely and all their flocks are scattered.”
 10:22 Listen! The sound of a report is coming— a great commotion out of the land of the north— to make the cities of Judah desolate, a haunt of jackals.
-10:23 I know, </span><span class="it"><span class="sc"><span class="content">Adonai
-10:24 Chasten me, </span><span class="it"><span class="sc"><span class="content">Adonai
+10:23 I know, Adonai, that a man’s way is not his own, nor does man, as he walks, direct his steps.
+10:24 Chasten me, Adonai, but with justice, not in Your anger, lest You reduce me to nothing.
 10:25 Pour out Your wrath on the nations that do not acknowledge You and on the families that do not call on Your Name. For they have devoured Jacob, devoured and consumed him, and destroyed his homeland.
-11:1 The word that came to Jeremiah from </span><span class="it"><span class="sc"><span class="content">Adonai
+11:1 The word that came to Jeremiah from Adonai, saying:
 11:2 Hear the words of this covenant, and speak to the people of Judah and to the inhabitants of Jerusalem.
-11:3 Now say to them, Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+11:3 Now say to them, Thus says Adonai, the God of Israel: “Cursed is the one who does not obey the words of this covenant,
 11:4 which I commanded your forefathers in the day I brought them out of the land of Egypt—out of the iron furnace—saying: ‘Listen to My voice, and do all that I command you. Then you will be My people, and I will be your God.
-11:5 Then I will fulfill the oath which I swore to your fathers, to give them a land flowing with milk and honey, as it is today.’” In response I said, “Amen, </span><span class="it"><span class="sc"><span class="content">Adonai
-11:6 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+11:5 Then I will fulfill the oath which I swore to your fathers, to give them a land flowing with milk and honey, as it is today.’” In response I said, “Amen, Adonai.”
+11:6 Then Adonai said to me: “Proclaim all these words in the cities of Judah and in the streets of Jerusalem, saying: ‘Hear the words of this covenant, and do them.’
 11:7 For I earnestly forewarned your fathers in the day that I brought them up out of the land of Egypt until this day, forewarning early and often, saying ‘Listen to My voice!’
 11:8 Yet they would not obey or incline their ear, but each one walked in the stubbornness of his evil heart. Therefore I brought on them all the words of this covenant—which I commanded them to do, but they did not.”
-11:9 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+11:9 Then Adonai said to me, “A conspiracy has been discovered among the men of Judah and the inhabitants of Jerusalem.
 11:10 They have turned back to the iniquities of their forefathers who refused to hear My words. They have gone after other gods to serve them. “The house of Israel and the house of Judah have broken My covenant which I made with their fathers.”
-11:11 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+11:11 Therefore thus says Adonai. “I will soon bring a disaster on them that they will not be able to escape. They will cry out to Me, yet I will not listen to them.
 11:12 Then the cities of Judah and the inhabitants of Jerusalem will go and cry out to the gods to whom they burn incense—but they will not save them at all in the time of their trouble.
 11:13 For as numerous as your cities are your gods, O Judah, and as numerous as the streets of Jerusalem are the altars you have set up to the shameful thing—altars to burn incense to Baal.
 11:14 As for you, you are not to pray for this people or lift up supplication or prayer for them, for I will not hear them at the time they cry out to Me because of their disaster.”
 11:15 “What is My beloved doing in My House as she does evil schemes with many? Can holy meat prevent your disaster? So you may rejoice?
-11:16  called your name— a leafy olive tree, beautiful with well-formed fruit. With the noise of a great tumult He has set it on fire, and its branches are broken.
-11:17 For </span><span class="it"><span class="sc"><span class="content">Adonai
-11:18 Moreover, </span><span class="it"><span class="sc"><span class="content">Adonai
+11:16 Adonai called your name— a leafy olive tree, beautiful with well-formed fruit. With the noise of a great tumult He has set it on fire, and its branches are broken.
+11:17 For Adonai-Tzva’ot, who planted you, has pronounced evil against you because of the evil of the house of Israel and of the house of Judah, which they have done to themselves, provoking Me by offering sacrifices to Baal.
+11:18 Moreover, Adonai gave me knowledge of it, and I knew it, then You showed me their deeds.
 11:19 But I was like a gentle lamb led to slaughter. I did not know they had devised plots against me: “Let us destroy the tree with its fruit. Let us cut him off from the land of the living, so that his name will be no more remembered.”
-11:20 But </span><span class="it"><span class="sc"><span class="content">Adonai
-11:21 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-11:22 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+11:20 But Adonai-Tzva’ot, who judges righteously, who tests the mind and the heart, let me see your vengeance on them. For to You I have made my cause known.
+11:21 Therefore thus says Adonai concerning the men of Anathoth who seek your life, saying, “You must not prophesy in the Name of Adonai, so you would not die by our hand.”
+11:22 Therefore thus says Adonai-Tzva’ot: “I am about to punish them! The young men will die by the sword; their sons and their daughters will die by famine.
 11:23 No remnant will be left to them, for I will bring calamity on the men of Anathoth—the year of their visitation.
-12:1 Righteous are You, </span><span class="it"><span class="sc"><span class="content">Adonai
+12:1 Righteous are You, Adonai, when I plead my case with You. Yet I speak with You about justice. Why does the way of the wicked prosper? Why do all the treacherous thrive?
 12:2 You planted them, so they have taken root. They are growing, bearing fruit. You are near in their mouth, yet far from their mind.
-12:3 But You have known me, </span><span class="it"><span class="sc"><span class="content">Adonai
+12:3 But You have known me, Adonai. You see me, and examine my heart toward You. Drag them off like sheep for slaughter. Set them apart for the day of carnage.
 12:4 How long will the land mourn and the grass of all the field wither? Because those living in it are evil, beasts and birds are swept away. For they said, “He cannot see our end.”
 12:5 “If you raced with those on foot and they wore you out, how can you compete with horses? If you are secure in a land of peace, how will you do in Jordan’s thickets?
 12:6 For even your brothers —your father’s house— even they will betray you, even they will shout out after you. Have no confidence in them, even if they say nice words to you.”
@@ -312,29 +312,29 @@
 12:9 Is My inheritance a speckled vulture? Are vultures circling all around her? Go, gather all the wild beasts, bring them for devouring!
 12:10 “Many shepherds ruined My vineyard. They trampled My property. They made My pleasant portion a desolate wilderness.
 12:11 They made it a wasteland. It mourns before Me, desolate. The whole land will be laid waste, because no one takes it to heart.”
-12:12 On all the bare hills in the wilderness destroyers have come. For the sword of </span><span class="it"><span class="sc"><span class="content">Adonai
-12:13 They sowed wheat but reaped thorns. They wore themselves out, gaining nothing. So be ashamed of your harvest, because of </span><span class="it"><span class="sc"><span class="content">Adonai
-12:14 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+12:12 On all the bare hills in the wilderness destroyers have come. For the sword of Adonai is devouring from the one end of the land to the other end of the land. No flesh has shalom.
+12:13 They sowed wheat but reaped thorns. They wore themselves out, gaining nothing. So be ashamed of your harvest, because of Adonai’s fierce anger.
+12:14 Thus says Adonai, “As for all My evil neighbors who strike at the inheritance that I bequeathed to My people Israel—I am about to uproot them from their land and pluck the house of Judah from them.
 12:15 Yet it will come to pass, after I have uprooted them, that I will again have compassion on them and I will bring them back, each one to his inheritance and each one to his land.
-12:16 “So it will come to pass, if they will diligently learn the ways of My people—to swear by My Name, ‘As </span><span class="it"><span class="sc"><span class="content">Adonai
-12:17 But if they will not obey, then I will uproot that nation, plucking it up and destroying it.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-13:1 Thus </span><span class="it"><span class="sc"><span class="content">Adonai
-13:2 So I got a waistband in keeping with the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-13:3 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+12:16 “So it will come to pass, if they will diligently learn the ways of My people—to swear by My Name, ‘As Adonai lives,’ just as they taught My people to swear by Baal—then they will be built up in the midst of My people.
+12:17 But if they will not obey, then I will uproot that nation, plucking it up and destroying it.” It is a declaration of Adonai.
+13:1 Thus Adonai said to me: “Go, and buy yourself a linen waistband and put it around your waist, and do not put it in water.”
+13:2 So I got a waistband in keeping with the word of Adonai, and put it on my waist.
+13:3 Then the word of Adonai came to me a second time, saying:
 13:4 “Take the waistband that you bought, which is on your waist, and get up, go to Perath and hide it there in a cleft of the rock.”
-13:5 So I went and hid it at Perath, as </span><span class="it"><span class="sc"><span class="content">Adonai
-13:6 Now it came to pass after many days that </span><span class="it"><span class="sc"><span class="content">Adonai
+13:5 So I went and hid it at Perath, as Adonai commanded me.
+13:6 Now it came to pass after many days that Adonai said to me: “Get up, go to Perath, and take the waistband that I commanded you to hide there.”
 13:7 So I went to Perath, dug it up and took the waistband from the place where I had hidden it. But to my surprise, the waistband was marred, worth nothing at all.
-13:8 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-13:9 thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+13:8 Then the word of Adonai came to me, saying,
+13:9 thus says Adonai: “Just so I will mar the pride of Judah and the great pride of Jerusalem.
 13:10 This wicked people, who refuse to hear My words, who walk in the stubbornness of their own heart, and go after other gods to serve them and worship them, will be just like this waistband—worth nothing at all.
-13:11 For just as the waistband clings to a man’s waist, so I will make the whole house of Israel and the whole house of Judah cling to Me,” declares </span><span class="it"><span class="sc"><span class="content">Adonai
-13:12 Moreover, speak this word to them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-13:13 Then you will say to them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-13:14 And I will smash them against each other, even fathers and sons,’ says </span><span class="it"><span class="sc"><span class="content">Adonai
-13:15 Hear and give ear! Do not be haughty! For </span><span class="it"><span class="sc"><span class="content">Adonai
-13:16 Give glory to </span><span class="it"><span class="sc"><span class="content">Adonai
-13:17 But if you will not listen, my soul will sob in secret before such pride, and my eyes will weep bitterly and overflow with tears, for </span><span class="it"><span class="sc"><span class="content">Adonai
+13:11 For just as the waistband clings to a man’s waist, so I will make the whole house of Israel and the whole house of Judah cling to Me,” declares Adonai, “to be to Me a people, a name, a praise and a glory. But they would not obey.”
+13:12 Moreover, speak this word to them, thus says Adonai, the God of Israel: “Every jug should be filled with wine.” When they say to you, ‘Don’t we know very well that every jug should be filled with wine?’
+13:13 Then you will say to them, thus says Adonai, ‘I am about to fill all the inhabitants of this land—even the kings who sit on David’s throne, the kohanim, the prophets, and all the inhabitants of Jerusalem—with drunkenness.
+13:14 And I will smash them against each other, even fathers and sons,’ says Adonai. ‘I will show no pity, nor regret, nor compassion, to keep Me from destroying them.’”
+13:15 Hear and give ear! Do not be haughty! For Adonai has spoken.
+13:16 Give glory to Adonai your God, before it grows dark, and before your feet stumble on mountains at dusk. When you look for light, He turns it into the shadow of death, and turns it into deep darkness.
+13:17 But if you will not listen, my soul will sob in secret before such pride, and my eyes will weep bitterly and overflow with tears, for Adonai’s flock will be taken captive.
 13:18 Say to the king and the queen mother: “Sit down low, for your glorious crown has fallen from your head.”
 13:19 The towns of the South will be shut up, with no one to open them. All Judah is taken into exile— utterly swept into exile.
 13:20 Lift up your eyes and see those coming from the north. Where is the flock given to you, Your beautiful sheep?
@@ -342,73 +342,73 @@
 13:22 Suppose you say in your heart, “Why did these things happen to me?” Because of your great iniquity, your skirts are uncovered and your heels suffer violence.
 13:23 Can the Ethiopian change his skin? Or the leopard his spots? So, could you do good, that are accustomed to doing evil?
 13:24 “Therefore I will scatter them like drifting straw in the desert wind.
-13:25 This is your lot, the portion measured for you from Me.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:25 This is your lot, the portion measured for you from Me.” It is a declaration of Adonai. “For you have forgotten Me and trusted in falsehood.
 13:26 Therefore I will also uncover your skirts over your face, expose your shame.
-13:27 Your adulteries, your lustful neighings, the lewdness of your prostitution— on the hills in the field I have seen your loathsome acts. </span><span class="it"><span class="content">Oy
-14:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:27 Your adulteries, your lustful neighings, the lewdness of your prostitution— on the hills in the field I have seen your loathsome acts. Oy you, Jerusalem! You are unclean! How much longer?”
+14:1 The word of Adonai that came to Jeremiah concerning the droughts:
 14:2 Judah will mourn, and her gates languish. They will bow in black to the ground And Jerusalem’s wail will go up.
 14:3 Their nobles will send their lads for water. They come to the cisterns, but find no water. Their jars return empty. They are ashamed and humiliated; they cover their heads.
 14:4 Because the ground is cracked, since there has been no rain in the land, the farmers are ashamed— they cover their heads.
 14:5 For even the doe in the field abandons her newborn fawn, because there is no grass.
 14:6 Wild donkeys stand on the barren hills, as they pant for air like jackals. Their eyes fail, since there is no foliage.
-14:7 Though our iniquities testify against us, </span><span class="it"><span class="sc"><span class="content">Adonai
+14:7 Though our iniquities testify against us, Adonai, act for Your Name’s sake. For our backslidings are many. We have sinned against You.
 14:8 O hope of Israel, Savior in time of trouble, why are You like a stranger in the land, or like a traveler who stays for a night?
-14:9 Why are You like a man overcome, like a champion who cannot save? Yet you, </span><span class="it"><span class="sc"><span class="content">Adonai
-14:10 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-14:11 So </span><span class="it"><span class="sc"><span class="content">Adonai
+14:9 Why are You like a man overcome, like a champion who cannot save? Yet you, Adonai, are in our midst, and we are called by Your Name. Do not forsake us!
+14:10 Thus says Adonai to this people: How they loved to wander, They did not restrain their feet. So Adonai does not accept them. Now will He remember their iniquity, and punish their sins.
+14:11 So Adonai said to me: “Do not pray for the good of this people.
 14:12 If they fast, I will not hear their cry. If they offer burnt offering or grain offering, I will not accept them. Instead I will consume them with sword, with famine and with plague.”
-14:13 Then I said: “Oh my Lord, </span><span class="it"><span class="sc"><span class="content">Adonai
-14:14 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-14:15 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+14:13 Then I said: “Oh my Lord, Adonai! The prophets keep telling them: ‘You will not see the sword nor famine, but I will give you true peace in this place.’”
+14:14 Then Adonai said to me: “The prophets prophesy lies in My Name! I did not send them, nor commanded them, nor did I speak to them. They are prophesying to you a lying vision, divination, futility, a delusion of their heart.”
+14:15 Therefore thus says Adonai: “About the prophets who prophesy in My Name, though I did not send them, yet keep saying, ‘Sword and famine will never be in this land’—by sword and famine will those prophets be consumed.
 14:16 Also the people to whom they prophesy will be thrown out into the streets of Jerusalem, because of the famine and the sword. They will have no one to bury them, their wives, their sons or their daughters. For I will pour their disaster on them.”
 14:17 You will say this word to them: “Let my eyes overflow with tears. Night and day, may they never stop. For the virgin daughter of my people is crushed with a great blow, with a sorely infected wound.”
-14:18 If I go out into the field, see, those slain by the sword! And if I enter into the city, see, the sick with famine! For both prophet and </span><span class="it"><span class="content">kohen
-14:19 Have You utterly rejected Judah? Has Your soul loathed Zion? Why have You smitten us, and there is no healing for us? We looked for </span><span class="it"><span class="content">shalom
-14:20 We acknowledge our wickedness, </span><span class="it"><span class="sc"><span class="content">Adonai
+14:18 If I go out into the field, see, those slain by the sword! And if I enter into the city, see, the sick with famine! For both prophet and kohen will travel to a land they do not know.
+14:19 Have You utterly rejected Judah? Has Your soul loathed Zion? Why have You smitten us, and there is no healing for us? We looked for shalom, but nothing good came, and for a time of healing, but suddenly, terror!
+14:20 We acknowledge our wickedness, Adonai, the iniquity of our fathers, for we have sinned against You.
 14:21 Do not despise us, for Your Name’s sake. Do not dishonor Your glorious throne. Remember Your covenant with us— do not break it!
-14:22 Can any of the idols of the nations bring rain? Or can the skies grant showers? Is it not You, </span><span class="it"><span class="sc"><span class="content">Adonai
-15:1 Then said </span><span class="it"><span class="sc"><span class="content">Adonai
-15:2 It will come to pass, when they say to you, ‘Where should we go?’ Then You will tell them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-15:3 I have appointed over them four kinds” —it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+14:22 Can any of the idols of the nations bring rain? Or can the skies grant showers? Is it not You, Adonai our God? Do we not wait for You? For You have done all these things.
+15:1 Then said Adonai to me: “Even if Moses and Samuel stood before Me, My soul could not be toward this people. Cast them out of My presence, and let them go out!”
+15:2 It will come to pass, when they say to you, ‘Where should we go?’ Then You will tell them, thus says Adonai: “Those for death—to death! Those for the sword—to the sword! Those for famine—to famine! Those for exile—to exile!
+15:3 I have appointed over them four kinds” —it is a declaration of Adonai— “the sword to slay, the dogs to drag, the birds of the sky and the beasts of the earth to devour and to destroy.
 15:4 “So I will make them a horror to all the kingdoms of the earth, because of Manasseh son of Hezekiah king of Judah, for what he did in Jerusalem.
 15:5 “Who will have pity on you, Jerusalem? Or who will grieve for you? Or who will turn aside to ask about your welfare?
-15:6 You have cast Me off” —it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+15:6 You have cast Me off” —it is a declaration of Adonai— “You keep going backward! So I stretch out My hand against you and will destroy you. I am weary with relenting.
 15:7 I will scatter them with a winnowing fork at the gates of the land. I will bereave them of children and destroy My people, since they do not repent of their ways.
 15:8 Their widows will increase before Me more than the sand of the seas, I will bring a destroyer at noonday against the mother of a young man. Suddenly I will bring down on her anguish and terrors.
-15:9 She who bore seven languishes. She breathes out her soul. Her sun sets while it is yet day. She is shamed and humiliated. Their survivors I give to the sword before their enemies.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-15:10  to me, my mother, that you gave birth to me— a man of strife and conflict to all the land! I did not lend or borrow, yet everyone curses me.
-15:11  said: “Surely I will release you for good. Surely I will make the enemy appeal to you in a time of trouble, in a time of affliction.
+15:9 She who bore seven languishes. She breathes out her soul. Her sun sets while it is yet day. She is shamed and humiliated. Their survivors I give to the sword before their enemies.” It is a declaration of Adonai.
+15:10 Oy to me, my mother, that you gave birth to me— a man of strife and conflict to all the land! I did not lend or borrow, yet everyone curses me.
+15:11 Adonai said: “Surely I will release you for good. Surely I will make the enemy appeal to you in a time of trouble, in a time of affliction.
 15:12 Can anyone smash iron— iron and bronze from the north?
 15:13 Your wealth and your treasures I will give as plunder without cost, for all your sins, in all your borders.
 15:14 I will take you away with your enemies into a land you do not know, for a fire is kindled in My nostril, which will burn against you.”
-15:15 , you know. Remember me and think of me. Avenge me against my persecutors. Because of Your long-suffering, do not take me away. Know that for Your sake I endure scorn.
-15:16 Your words were found, so I ate them. Your words were a delight to me and the joy of my heart. For I am called by Your Name, </span><span class="it"><span class="sc"><span class="content">Adonai
+15:15 Adonai, you know. Remember me and think of me. Avenge me against my persecutors. Because of Your long-suffering, do not take me away. Know that for Your sake I endure scorn.
+15:16 Your words were found, so I ate them. Your words were a delight to me and the joy of my heart. For I am called by Your Name, Adonai-Elohei-Tzva’ot.
 15:17 I never sat in the company of revelers nor made merry. Because of Your hand I sat alone, for You filled me with indignation.
 15:18 Why is my pain unending and my wound incurable, refusing to be healed? Will You be to me like a mirage of water that is undependable?
-15:19 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-15:20 I will make you a fortified bronze wall to this people. They will fight against you, but will not prevail against you, for I am with you to save you and deliver you.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+15:19 Therefore thus says Adonai: “If you return, I will restore you, you will stand before Me. If you extract the precious from the worthless, you will be as My mouth. Let them turn to you, but you must not turn to them.
+15:20 I will make you a fortified bronze wall to this people. They will fight against you, but will not prevail against you, for I am with you to save you and deliver you.” It is a declaration of Adonai.
 15:21 “So I will deliver you out of the hand of the wicked, and I will redeem you out of the grasp of the ruthless.”
-16:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+16:1 The word of Adonai came to me, saying:
 16:2 “You will not take a wife for yourself or have sons or daughters in this place.”
-16:3 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+16:3 For thus says Adonai about the sons and daughters born in this place, and about their mothers who give birth to them and about their fathers who father them in this land:
 16:4 They will die of deadly diseases. They will not be lamented or buried, but will be like dung on the surface of the ground. They will be consumed by the sword and famine, and their carcasses will be food for the birds of the sky and the beasts of the earth.
-16:5 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+16:5 For thus says Adonai: “Do not enter a house of mourning, neither go to lament nor bemoan them. For I have taken away My shalom from this people”—it is a declaration of Adonai—“as well as My mercy and compassion.
 16:6 Both great and small will die in this land; they will not be buried; neither will anyone lament for them, or cut themselves or shave his head for them.
 16:7 No one will break bread for them in mourning, to give comfort for the dead. Nor will anyone offer a cup of consolation to drink for anyone’s father or for his mother.
 16:8 “You must not go into the house of feasting to sit with them, to eat and to drink”
-16:9 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-16:10 “Now it will come to pass, when You will tell this people all these words, they will say to you: ‘Why has </span><span class="it"><span class="sc"><span class="content">Adonai
-16:11 Then will You say to them: ‘Because your fathers have forsaken Me,’ says </span><span class="it"><span class="sc"><span class="content">Adonai
+16:9 For thus says Adonai-Tzva’ot, the God of Israel: “I am about to eliminate from this place, before your eyes and in your days, the sound of joy and the sound of gladness, the voice of the bridegroom and the voice of the bride.
+16:10 “Now it will come to pass, when You will tell this people all these words, they will say to you: ‘Why has Adonai pronounced all this great evil against us? So what is our iniquity? So what is our sin that we have committed against Adonai our God?’
+16:11 Then will You say to them: ‘Because your fathers have forsaken Me,’ says Adonai, ‘and have walked after other gods, served them and worshipped them, and have forsaken Me and have not kept My Torah.
 16:12 Yes, you have done worse than your fathers. For here you are, each of you walking after the stubbornness of his evil heart, not listening to Me.
 16:13 So I will cast you out of this land into a land that you have not known—neither you nor your fathers—and there you will serve other gods day and night. For I will give you no grace.’
-16:14 “Therefore, the days are quickly coming,” declares </span><span class="it"><span class="sc"><span class="content">Adonai
-16:15 Rather, ‘As </span><span class="it"><span class="sc"><span class="content">Adonai
-16:16 “Behold, I will send for many fishers,” says </span><span class="it"><span class="sc"><span class="content">Adonai
+16:14 “Therefore, the days are quickly coming,” declares Adonai, “when it will no longer be said. ‘As Adonai lives, who brought up the children of Israel out of the land of Egypt.’
+16:15 Rather, ‘As Adonai lives, who brought up the children of Israel from the land of the north and from all the lands where He had banished them.’ So I will bring them back into their land that I gave to their fathers.
+16:16 “Behold, I will send for many fishers,” says Adonai, “and they will fish for them. After that, I will send for many hunters, and they will hunt them down from every mountain and from every hill, and out of the clefts of the rocks.
 16:17 For My eyes are on all their ways. They are not hidden from My face, nor is their iniquity concealed from My eyes.
 16:18 First I will repay them double for their iniquity and their sin, because they have profaned My land, and they have filled My possession with the carcasses of their vile things and their abominations.”
-16:19 , my strength, my stronghold, my refuge in the day of affliction, to You will the nations come from the ends of the earth and say: “Our fathers have inherited nothing but lies, futility and useless things.”
+16:19 Adonai, my strength, my stronghold, my refuge in the day of affliction, to You will the nations come from the ends of the earth and say: “Our fathers have inherited nothing but lies, futility and useless things.”
 16:20 Will man make gods for himself? Yet they are not gods.
-16:21 “So I will surely make them know— this time I make them know My hand and My might— they will know that My Name is </span><span class="it"><span class="sc"><span class="content">Adonai
+16:21 “So I will surely make them know— this time I make them know My hand and My might— they will know that My Name is Adonai.”
 17:1 Judah’s sin is written with an iron pen and with a point of a diamond, engraved on the tablet of their heart and on the horns of your altars.
 17:2 So their children remember their altars and their Asherah poles by leafy trees on the high hills.
 17:3 My mountain in the country, your wealth and all your treasures I will give away as plunder, along with your high places for sin within all your borders.
