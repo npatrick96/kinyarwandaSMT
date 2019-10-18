@@ -97,29 +97,29 @@
 5:15 When I execute judgment upon you in anger, rage and furious chastisement, you will be a mockery and a taunt, a warning and a horror to the surrounding nations: I, Adonai, have spoken it.
 5:16 When I send evil arrows of famine upon them, for destruction I will send them to destroy you, and I will intensify the famine upon you and will break your staff of bread.
 5:17 I will send on you famine and evil beasts, and they will make you childless. Plague and blood will sweep through you. I will bring the sword upon you. I, Adonai, have spoken.”
-6:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+6:1 The word of Adonai came to me saying:
 6:2 “Son of man, set your face toward the mountains of Israel and prophesy to them.
-6:3 Say: mountains of Israel, hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+6:3 Say: mountains of Israel, hear the word of Adonai!” Thus says Adonai Elohim concerning the mountains and concerning the hills, concerning the wadis and concerning the valleys: “Behold, I will bring a sword on you. I will destroy your high places.
 6:4 Your altars will become desolate. Your sun pillars will be broken. I will cast down your slain men before your idols.
-6:5 I will lay the corpses of </span><span class="it"><span class="content">Bnei-Yisrael
+6:5 I will lay the corpses of Bnei-Yisrael before their idols. I will scatter your bones around your altars.
 6:6 In all your dwellings the cities will be desolate. The high places will be deserted. Your altars will be laid waste and made desolate, your idols broken and destroyed, your sun pillars cut down and your works blotted out.
-6:7 The slain will fall in your midst. Then you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+6:7 The slain will fall in your midst. Then you will know that I am Adonai.
 6:8 “Yet I will leave a remnant, some that escape the sword among the nations, when you have been scattered through the countries.
 6:9 The survivors will remember Me among the nations where they are carried captive, how I was crushed by their adulterous heart that has strayed from Me and their eyes which have lusted after their idols. They will loathe themselves in their own sight for the evils that they committed in all their abominations.
-6:10 They will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-6:11 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+6:10 They will know that I am Adonai. I have not warned in vain that I would do this evil to them.”
+6:11 Thus says Adonai Elohim: “Clap your hands, stamp your foot and cry, ‘Alas!’ because of all the vile abominations of the house of Israel who will fall by the sword, by famine and by plague.
 6:12 The one who is far off will die of the plague; the one who is near will fall by the sword. Whoever remains and is spared will die by the famine; this is how I will spend My fury on them.
-6:13 You will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-6:14 I will stretch out My hand over them and make the land desolate and waste, more than the wilderness of Diblah, wherever they live. Then they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-7:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:2 “You, son of man, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+6:13 You will know that I am Adonai, when your slain lie among their idols surrounding their altars, on every high hill, on all the mountaintops, under every green tree and under every leafy oak—the places where they offer sweet aroma to all their idols.
+6:14 I will stretch out My hand over them and make the land desolate and waste, more than the wilderness of Diblah, wherever they live. Then they will know that I am Adonai.”
+7:1 The word of Adonai came to me saying:
+7:2 “You, son of man, thus says Adonai Elohim concerning the land of Israel: An end! The end has come on the four corners of the land.
 7:3 The end is upon you. I will send My anger on you. I will judge you according to your ways. I will bring all your abominations on you.
-7:4 My eyes will not spare you nor will I have pity, but I will bring your ways upon you, for your abominations in your midst. Then you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-7:5 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+7:4 My eyes will not spare you nor will I have pity, but I will bring your ways upon you, for your abominations in your midst. Then you will know that I am Adonai.”
+7:5 Thus says Adonai Elohim: An evil, a singular evil, behold, it comes.
 7:6 An end has come, the end has come! It has awakened against you. Look, it is coming!
 7:7 Doom has come upon you, inhabitant of the land! The time has come, the day is near—panic, not joyful shouting on the hills.
 7:8 Now, soon, I am about to pour out My fury on you. I will exhaust My anger on you. I will judge you according to your ways. I will bring all your abominations on you.
-7:9 My eye will not spare you nor will I have pity—I will repay you for your ways—your abominations are in your midst. Then you will know that it is I, </span><span class="it"><span class="sc"><span class="content">Adonai
+7:9 My eye will not spare you nor will I have pity—I will repay you for your ways—your abominations are in your midst. Then you will know that it is I, Adonai, who strikes.
 7:10 Behold, the day! Look, it is coming! Doom has gone out. The rod has budded, arrogance has blossomed.
 7:11 Violence grows into a rod of wickedness. Nothing will come from them, nothing from their crowd, nothing from their tumult, nothing distinctive among them.
 7:12 The time has come—the day draws near. The buyer will not rejoice, the seller will not play the mourner, for wrath is on the entire crowd.
@@ -129,18 +129,18 @@
 7:16 Those survivors who escape will head for the mountains like doves of the valleys, all of them moaning, each one over his iniquity.
 7:17 All hands will be feeble. All knees will turn to water.
 7:18 They will also gird on sackcloth. Horror will cover them. Shame will be upon all faces. Baldness will be upon all their heads.
-7:19 They will throw their silver in the streets. Their gold will be as garbage. Their silver and their gold cannot deliver them in the day of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:20 They took pride in their beautiful jewelry and made images of their abominations and their detestable idols. Therefore I made it </span><span class="it"><span class="content">niddah
+7:19 They will throw their silver in the streets. Their gold will be as garbage. Their silver and their gold cannot deliver them in the day of Adonai’s wrath. They will not satisfy their appetite or fill their bellies, for their iniquity is a stumbling block.
+7:20 They took pride in their beautiful jewelry and made images of their abominations and their detestable idols. Therefore I made it niddah to them.
 7:21 I will give it into the hands of the strangers as plunder and to the wicked of the earth as spoil, and they will profane it.
 7:22 I will turn My face from them, as they will profane the place I treasure. Robbers will enter it and profane it.
 7:23 “Forge the chain! For the land is full of bloodshed. The city is full of violence.
 7:24 I will bring the wicked of the nations. They will possess their houses. So I will end the pride of the strong, when their holy places are profaned.
 7:25 Shuddering comes. They will seek peace but there will be none.
-7:26 Disaster upon disaster will come, and rumor upon rumor. They will seek a vision from a prophet, but </span><span class="it"><span class="content">Torah
-7:27 The king will mourn. The prince will be clothed with despair. The hands of the people of the land will tremble. By their conduct I will deal with them. By their own standards I will judge them. Then they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-8:1 In the sixth year, on the fifth day of the sixth month, I was sitting in my house. The elders of Judah were sitting before me. There the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
+7:26 Disaster upon disaster will come, and rumor upon rumor. They will seek a vision from a prophet, but Torah will perish from the kohen and counsel from the elders.
+7:27 The king will mourn. The prince will be clothed with despair. The hands of the people of the land will tremble. By their conduct I will deal with them. By their own standards I will judge them. Then they will know that I am Adonai.”
+8:1 In the sixth year, on the fifth day of the sixth month, I was sitting in my house. The elders of Judah were sitting before me. There the hand of Adonai fell on me.
 8:2 I looked, and behold, a form resembling fire—from the appearance of his waist downward, fire; and from his loins and waist upward, something like the appearance of brightness, as glowing metal.
-8:3 Something like the form of a hand stretched out, and took me by the hair of my head. The </span><span class="it"><span class="content">Ruach
+8:3 Something like the form of a hand stretched out, and took me by the hair of my head. The Ruach lifted me up between the earth and the heaven. He brought me in the visions of God to Jerusalem, to the door of the gate of the inner court facing north—where the idol that provokes furious jealousy was.
 8:4 Behold, the glory of the God of Israel was there, like the vision that I saw in the valley.
 8:5 He said to me: “Son of man, lift your eyes toward the north.” So I lifted up my eyes toward the north. Behold, north of the gate of the altar, was this image provoking jealousy in the entrance.
 8:6 He said to me: “Son of man, do you see what they are doing, the great abominations that the house of Israel is committing here, that drives me far off from My own Sanctuary? But you will see even greater abominations.”
@@ -149,44 +149,44 @@
 8:9 He said to me: “Go and see the wicked abominations that they do here.”
 8:10 So I went in and saw, behold, every detestable image of creeping things and beasts and all the idols of the house of Israel, engraved on the surrounding walls.
 8:11 Standing there before them were 70 men of the elders of the house of Israel, Jaazaniah son of Shaphan standing in their midst, each man with his censer in his hand. A thick cloud of incense went up.
-8:12 Then He said to me: “Son of man, do you see what the elders of the house of Israel do in the dark, every man in his chamber of his carved idol? For they say, ‘</span><span class="it"><span class="sc"><span class="content">Adonai
+8:12 Then He said to me: “Son of man, do you see what the elders of the house of Israel do in the dark, every man in his chamber of his carved idol? For they say, ‘Adonai does not see us. Adonai has forsaken the land.’”
 8:13 He said further to me, “You will see still greater abominations that they are doing.”
-8:14 He brought me to the door of the gate of </span><span class="it"><span class="sc"><span class="content">Adonai
+8:14 He brought me to the door of the gate of Adonai’s House, which was toward the north. Behold, the women sat there weeping for Tammuz.
 8:15 He said to me, “Have you seen this, son of man? You will again see even greater abominations than these.”
-8:16 So He brought me into the inner court of </span><span class="it"><span class="sc"><span class="content">Adonai
+8:16 So He brought me into the inner court of Adonai’s House. Behold, at the door of the Temple of Adonai, between the porch and the altar, were about 25 men, with their backs toward the Temple of Adonai and their faces toward the east—and they were bowing in worship eastward toward the sun.
 8:17 He said to me, “Have you seen this, son of man? Is it too light a thing to the house of Judah that they commit the abominations they practice here, that they must also fill the land with violence and provoke Me still more? Look, they are putting the twig to My nose!
 8:18 Therefore I will indeed act in fury. My eye will not spare you nor will I have pity. Though they cry into My ears with a loud voice, I will not hear them.”
 9:1 Then He called into my ears in a loud voice saying: “Bring near the executioners of the city, each with his weapon of destruction in his hand.”
 9:2 Behold, six men came from the direction of the upper gate, facing north, each with his war club in his hand. One man among them, clothed in linen, had a scribe’s writing case at his side. They went in and stood beside the bronze altar.
 9:3 Then the glory of the God of Israel went up from above the cheruv, where it had been, to the threshold of the House. He called to the man clothed in linen, who had the scribe’s inkhorn at his side.
-9:4  said to him, “Go throughout the city, through the midst of Jerusalem. Make a mark on the foreheads of the people who sigh and moan over all the abominations that are committed in it.”
+9:4 Adonai said to him, “Go throughout the city, through the midst of Jerusalem. Make a mark on the foreheads of the people who sigh and moan over all the abominations that are committed in it.”
 9:5 To the others He said in my hearing: “Go through the city after him and strike. Show no pity or compassion;
 9:6 kill off old men, young men and girls, little children and women. But touch no one who has the mark. Begin at My Sanctuary.” Then they began with the elders who were before the House.
 9:7 He said to them, “Defile the House and fill the courts with the slain. Go out!” So they went out and began to kill in the city.
-9:8 While they were out killing, and I was left alone, I fell on my face and cried out saying, “Alas, </span><span class="it"><span class="sc"><span class="content">Adonai
-9:9 He said to me, “The iniquity of the house of Israel and Judah is very, very great; the land is full of blood and the city is full of corruption. For they say, ‘</span><span class="it"><span class="sc"><span class="content">Adonai
+9:8 While they were out killing, and I was left alone, I fell on my face and cried out saying, “Alas, Adonai Elohim! Are you going to destroy all the remnant of Israel by pouring out Your wrath upon Jerusalem?”
+9:9 He said to me, “The iniquity of the house of Israel and Judah is very, very great; the land is full of blood and the city is full of corruption. For they say, ‘Adonai has forsaken the land, Adonai does not see!’
 9:10 As for Me, my eye will not show pity nor will I spare. I will bring their conduct upon their head.”
 9:11 Behold, the man clothed in linen, who had the inkhorn at his side, reported saying, “I have done just as You have commanded me.”
-10:1 Then I looked, and behold, above the expanse over the heads of the </span><span class="it"><span class="content">cheruvim
-10:2 He spoke to the man clothed in linen and said, “Go in between the whirling wheels underneath the </span><span class="it"><span class="content">cheruvim
-10:3 Now the </span><span class="it"><span class="content">cheruvim
-10:4 Then the glory of </span><span class="it"><span class="sc"><span class="content">Adonai
-10:5 The sound of the wings of the </span><span class="it"><span class="content">cheruvim
-10:6 After He commanded the man clothed in linen saying: “Take fire from between the whirling wheels, from between the </span><span class="it"><span class="content">cheruvim
-10:7 The </span><span class="it"><span class="content">cheruv
-10:8 The </span><span class="it"><span class="content">cheruvim
-10:9 Then I looked, and behold, four wheels beside the </span><span class="it"><span class="content">cheruvim
+10:1 Then I looked, and behold, above the expanse over the heads of the cheruvim, there appeared above them something like a sapphire stone, resembling a throne.
+10:2 He spoke to the man clothed in linen and said, “Go in between the whirling wheels underneath the cheruvim. Fill your hands with glowing coals from between the cheruvim and scatter them over the city.” So he went in before my eyes.
+10:3 Now the cheruvim stood on the right side of the House when the man went in. The cloud filled the inner court.
+10:4 Then the glory of Adonai rose up from above the cheruv to the threshold of the House. The House was filled with the cloud and the court was full of the brilliance of Adonai’s glory.
+10:5 The sound of the wings of the cheruvim was heard as far as the outer court, as the voice of El Shaddai when He speaks.
+10:6 After He commanded the man clothed in linen saying: “Take fire from between the whirling wheels, from between the cheruvim,” he went in and stood beside a wheel.
+10:7 The cheruv reached out his hand from between the cheruvim into the fire that was between the cheruvim and took some of it. He put it into the hands of the man clothed in linen, who took it and went out.
+10:8 The cheruvim appeared to have the form of a human hand under their wings.
+10:9 Then I looked, and behold, four wheels beside the cheruvim, one wheel beside one cheruv, and another wheel beside another cheruv. The appearance of the wheels was like the sparkling of a beryl stone.
 10:10 As for their appearance, the four had one form—like a wheel within a wheel.
 10:11 When they went, they would go in any of their four directions, without pivoting as they went. So to whatever place the head faced, they followed, without turning as they went.
 10:12 Their whole body, their backs, their hands, their wings, and their wheels, the wheels of the four of them, were full of eyes all around.
 10:13 As for the wheels, they were called in my hearing “the whirling wheels.”
 10:14 Each one had four faces: the first face was the face of the cheruv, the second face was the face of a man, the third the face of a lion and the fourth the face of an eagle.
-10:15 The </span><span class="it"><span class="content">cheruvim
-10:16 As the </span><span class="it"><span class="content">cheruvim
+10:15 The cheruvim arose—these were the living creatures that I saw by the river Chebar.
+10:16 As the cheruvim went, the wheels would go beside them. When the cheruvim lifted up their wings to rise from the earth, the wheels would not turn from beside them.
 10:17 When they stood still, these stood still. When they rose up, these rose up with them; for the spirit of the living creatures was in them.
-10:18 Then the glory of </span><span class="it"><span class="sc"><span class="content">Adonai
-10:19 The </span><span class="it"><span class="content">cheruvim
-10:20 They were the living creatures that I saw under the God of Israel by the river Chebar. I knew that they were </span><span class="it"><span class="content">cheruvim
+10:18 Then the glory of Adonai went forth from above the threshold of the House and stood above the cheruvim.
+10:19 The cheruvim lifted up their wings and arose from the earth in my sight. When they went out, the wheels went with them. They stood still at the door of the east gate of Adonai’s House. The glory of the God of Israel was over them from above.
+10:20 They were the living creatures that I saw under the God of Israel by the river Chebar. I knew that they were cheruvim.
 10:21 Each of them had four faces and each one four wings. The appearance of human hands was under their wings.
 10:22 As for the appearance of their faces, they were the same faces whose appearance I saw by the river Chebar. Each could move in the direction of any of its faces.
 11:1 Then the </span><span class="it"><span class="content">Ruach
