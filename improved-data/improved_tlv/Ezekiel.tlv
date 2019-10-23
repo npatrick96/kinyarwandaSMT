@@ -473,70 +473,75 @@
 20:42 You will know that I am Adonai, when I bring you into the land of Israel, into the country where I lifted up My hand to give it to your fathers.
 20:43 There you will remember your ways and all your deeds, by which you defiled yourselves. You will loathe yourselves for all your evil that you have done.
 20:44 Then you will know that I am Adonai, when I deal with you for My Name’s sake and not according to your evil ways and your corrupt deeds, house of Israel.” It is a declaration of Adonai.
-21:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+21:1 The word of Adonai came to me saying:
 21:2 “Son of man, set your face toward Teman and proclaim to the South. Prophesy against the brush land of the Negev.
-21:3 Say to the brush land of the South: ‘Hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-21:4 All flesh will see that I, </span><span class="it"><span class="sc"><span class="content">Adonai
-21:5 Then I said, “Ah, </span><span class="it"><span class="sc"><span class="content">Adonai
-21:6 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+21:3 Say to the brush land of the South: ‘Hear the word of Adonai!’ Thus says Adonai Elohim: ‘Behold, I will kindle a fire in you. It will devour every moist tree in you and every dry tree. Its leaping flame will not be extinguished. All faces from the south to the north will be scorched by it.
+21:4 All flesh will see that I, Adonai, have kindled it; it will not be extinguished.’”
+21:5 Then I said, “Ah, Adonai! They say of me. ‘Isn’t he just speaking in parables?’”
+21:6 Then the word of Adonai came to me saying:
 21:7 “Son of man, set your face toward Jerusalem and proclaim to the sanctuaries and prophesy against the land of Israel.
-21:8 Say to the land of Israel, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+21:8 Say to the land of Israel, thus says Adonai Elohim: ‘Behold, I am against you. I will draw My sword from its sheath. I will cut off the righteous and the wicked from you.
 21:9 Since I will cut off from you both the righteous and the wicked, therefore My sword will come out of its sheath against all flesh from the south to the north.
-21:10 All flesh will know that I, </span><span class="it"><span class="sc"><span class="content">Adonai
+21:10 All flesh will know that I, Adonai, have drawn My sword from its sheath; it will not return any more.
 21:11 As for you, son of man, groan, with breaking of your sides and with bitterness you will groan before their eyes.
-21:12 Now when they ask you, ‘Why are you groaning?’ you will say, ‘Because of the news that is coming. Every heart will melt, every hand will be limp, every spirit will be faint, and all knees will turn to water. Behold, it is coming, and it will happen!’” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-21:13 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-21:14 “Son of man, prophesy and say, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+21:12 Now when they ask you, ‘Why are you groaning?’ you will say, ‘Because of the news that is coming. Every heart will melt, every hand will be limp, every spirit will be faint, and all knees will turn to water. Behold, it is coming, and it will happen!’” It is a declaration of Adonai Elohim.
+21:13 The word of Adonai came to me saying,
+21:14 “Son of man, prophesy and say, thus says Adonai, and say: ‘A sword! A sword! Sharpened and also polished!
 21:15 Sharpened to slaughter ruthlessly! Polished so it will flash like lightning! Or should we rejoice? It is the rod, My son—despising every tree!
 21:16 It is given to be polished, to be seized. The sword is sharpened, polished, to be put into the hand of the slayer.
 21:17 Cry and wail, son of man! For it is against My people. It is against all the leaders of Israel. They are thrown over to the sword, along with My people. Therefore strike your thigh.
-21:18 For it is a testing. What if they scorn even the rod? It must not be!” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+21:18 For it is a testing. What if they scorn even the rod? It must not be!” It is a declaration of Adonai.
 21:19 You, son of man, prophesy. Strike your hands together. The sword will strike twice, even three times, a sword for the slain, a sword for a great slaughter—it surrounds them!
 21:20 So that their hearts will melt and many will stumble and fall, I have set the point of the sword against all their gates. Alas! It is made for lightning, it is polished for slaughter.
 21:21 Slash to the right, turn to the left—wherever your blade is meeting!
-21:22 I also will clap My hands together. So I will satisfy My wrath. I, </span><span class="it"><span class="sc"><span class="content">Adonai
-21:23 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+21:22 I also will clap My hands together. So I will satisfy My wrath. I, Adonai, have spoken.’”
+21:23 The word of Adonai came to me saying:
 21:24 “Now you, son of man, mark two ways for the sword of the king of Babylon to come. Both of them should originate from the same land. Mark a signpost; cut it out at the start of the road to the city.
 21:25 You are to mark out a way, so the sword can come to Rabbah of the children of Ammon and to Judah in fortified Jerusalem.
 21:26 For the king of Babylon stands at the fork in the road, at the start of the two roads, to seek divination. He shakes the arrows, consults the idols, he looks in the liver.
 21:27 In his right hand is the lot for Jerusalem—to set up battering rams, to open the mouth for slaughter, to lift up the voice with a war cry, to set up battering rams against the gates, to cast up ramps, to build a siege wall.
 21:28 It will seem to them like a false divination. They have sworn solemn oaths, but he will remember their iniquity, so they may be seized.”
-21:29 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+21:29 Therefore thus says Adonai Elohim: “Because you have caused your iniquity to be remembered, by exposing your transgressions, so that your sins appear in all your deeds—because you have come to remembrance, you will be seized with the hand.
 21:30 So you, wicked one, prince of Israel, the day has come to be slain, the time of final punishment.”
-21:31 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+21:31 Thus says Adonai Elohim: “Remove the turban, take off the crown! This will no longer be the same. What is low will be exalted. What is high will be abased.
 21:32 Ruin, ruin, I will make it a ruin! Even this will not be, until He comes to whom belongs the judgment, and I give it to Him.
-22:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+21:33 “Now you, son of man, prophesy and say, thus says Adonai Elohim concerning the children of Ammon and concerning their taunt, say: ‘A sword, a sword, drawn for slaughter, polished to consume, to flash like lightning—
+21:34 while they see false visions for you, while they divine lies for you —to lay you out on the necks of the wicked who are to be slain, whose day has come, in the time of the final punishment.
+21:35 Return to its sheath! In the place where you were created, in the land of your origin, I will judge you.
+21:36 I will pour out My indignation on you. I will blow on you with the fire of My fury. I will hand you over to brutal men, skilled to destroy.
+21:37 You will be fuel for the fire. Your blood will be throughout the land. You will not be remembered. For I, Adonai, have spoken.’”
+22:1 The word of Adonai came to me saying:
 22:2 “You, son of man, will you judge? Will you judge the bloody city? So explain to her all her abominations.
-22:3 Say, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+22:3 Say, thus says Adonai Elohim: ‘City that spills blood in her midst and makes idols for herself that defile—her time has come!
 22:4 You have become guilty in your blood that you have spilled, and are defiled by your idols that you have made. So you have brought your days near, and have come up to your years. Therefore I have made you a disgrace to the nations and a mockery to all the lands.
 22:5 Those near and far from you will mock you—with a defiled name and full of turmoil.’
 22:6 “Behold, each prince of Israel has used his own arm’s strength in you to shed blood.
 22:7 Father and mother have been treated with contempt; the outsider has been oppressed in your midst; the orphan and the widow have been mistreated in you.
-22:8 You have despised My holy things and profaned My </span><span class="it"><span class="content">Shabbatot
+22:8 You have despised My holy things and profaned My Shabbatot.
 22:9 Slanderous men are in you in order to shed blood. They have eaten at the mountain shrines; they commit immoral acts in your midst.
-22:10 They have uncovered their fathers’ nakedness in you; they violate women that are in </span><span class="it"><span class="content">niddah
+22:10 They have uncovered their fathers’ nakedness in you; they violate women that are in niddah within you.
 22:11 One has been detestable with his neighbor’s wife; another has wickedly defiled his daughter-in-law; yet another has violated his sister, his father’s daughter, in you.
-22:12 They accept bribes in order to shed blood in you; you have taken usurious interest. You have greedily gained by oppressing your neighbors, and you have forgotten Me.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:12 They accept bribes in order to shed blood in you; you have taken usurious interest. You have greedily gained by oppressing your neighbors, and you have forgotten Me.” It is a declaration of Adonai.
 22:13 “Now look, I clap My hands at your dishonest gain that you have made and at your bloodshed in your midst.
-22:14 Will your heart’s courage stand or your hands be strong in the days when I deal with you? I, </span><span class="it"><span class="sc"><span class="content">Adonai
+22:14 Will your heart’s courage stand or your hands be strong in the days when I deal with you? I, Adonai, have spoken it and will do it.
 22:15 I will scatter you among the nations and disperse you throughout the lands. I will purge your uncleanness from you.
-22:16 You will be defiled in the sight of the nations. Then you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-22:17 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:16 You will be defiled in the sight of the nations. Then you will know that I am Adonai.”
+22:17 The word of Adonai came to me saying:
 22:18 “Son of man, the house of Israel has become dross to Me—all of them are the copper, tin, iron and lead left inside a furnace—they are the dross of silver.”
-22:19 Therefore, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+22:19 Therefore, thus says Adonai Elohim: “Because you have all become dross, therefore behold, I will gather you into Jerusalem.
 22:20 As one gathers silver, copper, iron, lead and tin into the furnace, to blow the fire upon it, to melt it; so I will gather you in My anger and in My fury. I will put you in and melt you.
 22:21 I will gather you and blow the fire of My wrath upon you, so you may be melted in the midst of it.
-22:22 As silver is melted in the furnace, so will you be melted within it. So you will know that I </span><span class="it"><span class="sc"><span class="content">Adonai
-22:23 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:22 As silver is melted in the furnace, so will you be melted within it. So you will know that I Adonai have poured out My fury on you.”
+22:23 The word of Adonai came to me saying:
 22:24 “Son of man, say to her: ‘You are a land that is not cleansed or rained upon in the day of indignation.’
 22:25 There is a conspiracy of her prophets in her midst, like a roaring lion tearing prey. They have devoured lives, they take wealth and valuables, they multiply widows in her midst.
-22:26 Her </span><span class="it"><span class="content">kohanim
+22:26 Her kohanim have done violence to My Torah and have profaned My holy things; they have made no distinction between the holy and the profane, nor have they taught the difference between the unclean and the clean. They shut their eyes to My Shabbatot. So I am profaned among them.
 22:27 Her princes in her midst are like wolves tearing at prey, spilling blood and destroying lives for dishonest gain.
-22:28 Her prophets have plastered them with whitewash, seeing false visions and predicting lies to them, saying ‘Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+22:28 Her prophets have plastered them with whitewash, seeing false visions and predicting lies to them, saying ‘Thus says Adonai Elohim,’ when Adonai has not spoken.
 22:29 “The people of the land have oppressively blackmailed, plundered in robbery, wronged the poor and needy and abused the outsider unjustly.
 22:30 I searched for someone among them who would build up the wall and stand in the breach before Me for the land, so that I would not destroy it, but I found no one.
-22:31 Therefore I have poured out My fury on them; I have consumed them with the fire of My wrath; I have brought their own way upon their heads.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-23:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+22:31 Therefore I have poured out My fury on them; I have consumed them with the fire of My wrath; I have brought their own way upon their heads.” It is a declaration of Adonai.
+23:1 The word of Adonai came to me saying:
 23:2 “Son of man, there were two women, the daughters of one mother.
 23:3 They were harlots in Egypt; they were harlots in their youth; their bosoms were caressed there and their virgin breasts were fondled.
 23:4 Their names were Oholah, the older one, and Oholibah, her sister. They became Mine, and they gave birth to sons and daughters. As for their names, Oholah is Samaria, and Oholibah is Jerusalem.
@@ -557,23 +562,23 @@
 23:19 Yet she multiplied her harlotry—remembering the days of her youth, when she was a harlot in the land of Egypt.
 23:20 She lusted after their paramours, whose flesh is like the flesh of donkeys, and whose issue is like that of horses.
 23:21 So you revisited the promiscuity of your youth, when the Egyptians used to fondle your bosom and youthful breasts.
-23:22 “Therefore Oholibah, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+23:22 “Therefore Oholibah, thus says Adonai Elohim, behold, I will stir up your lovers against you, from whom you turned in disgust. I will bring them against you on every side:
 23:23 the Babylonians and all the Chaldeans, Pekod, Shoa and Koa and all the Assyrians with them, handsome young men, governors and rulers all of them, commanders and officers, all of them riding on horses.
 23:24 They will come against you with armed chariots, whirling wheels and an assembly of people. They will set themselves against you on every side with armor, shield and helmet. I will delegate judgment to them, so they will judge you according to their standards of justice.
 23:25 I will vent My jealousy against you, letting them deal with you in fury. They will cut off your nose and your ears, and your survivors will fall by the sword. They will take your sons and your daughters, and your survivors will be devoured by fire.
 23:26 They will strip your clothes and take your beautiful jewelry.
 23:27 I will put an end to you and your immorality brought from the land of Egypt. You will no longer lift your eyes toward them or remember Egypt anymore.”
-23:28 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+23:28 For thus says Adonai Elohim: “Behold, I will give you into the hand of those you hate, into the hand of those you turned away from in disgust.
 23:29 They will treat you with hatred, take all your property and leave you naked and exposed. The vulgarity of your prostitutions will be uncovered—your debauchery and your promiscuity.
 23:30 These things will be done to you, for you have gone as a harlot after the nations, so you are defiled with their idols.
 23:31 You have walked in the way of your sister, so I will give her cup into your hand.”
-23:32 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+23:32 Thus says Adonai Elohim: “You will drink of your sister’s cup, which is deep and wide. You will be for laughter and ridicule. It holds so much!
 23:33 You will be filled with drunkenness and agony, a cup of horror and desolation—the cup of your sister Samaria.
-23:34 You will drink it and drain it, gnaw its shards and tear your breasts. For I have spoken.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-23:35 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-23:36 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+23:34 You will drink it and drain it, gnaw its shards and tear your breasts. For I have spoken.” It is a declaration of Adonai.
+23:35 Therefore thus says Adonai Elohim: “Because you have forgotten Me and thrust Me behind your back, you will also bear your obscenity and your harlotry.”
+23:36 Then Adonai said to me, “Son of man, will you pass judgment on Oholah and Oholibah? Confront them with their disgusting practices.
 23:37 For they have committed adultery and blood is on their hands. They have committed adultery with their idols and even offered their children, whom they bore for Me, to be devoured.
-23:38 Again, this they have done to Me—they defiled My Sanctuary on the same day and profaned My </span><span class="it"><span class="content">Shabbatot
+23:38 Again, this they have done to Me—they defiled My Sanctuary on the same day and profaned My Shabbatot.
 23:39 On the same day that they slaughtered their children to their idols, they came into My Sanctuary to profane it. See, that is what they have done within My House!
 23:40 “Furthermore, they sent for men who come from far away. A messenger was sent to them, and look, they came! For them you bathed, painted your eyes and decked yourself with jewelry.
 23:41 You sat on a glorious bed, with a table arranged before it, on which you set out My incense and My oil.
@@ -581,54 +586,54 @@
 23:43 Then I said about her, worn out from harlotry: “Still they commit immorality with her—even her?
 23:44 They keep going to her, as they go to a prostitute. So they went to Oholah and to Oholibah—the obscene women.
 23:45 Righteous men would judge them as adulteresses are judged and as those who shed blood are judged. For they are adulteresses, and blood is on their hands.”
-23:46 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+23:46 For thus says Adonai Elohim: “Bring up an assembly against them. Give them over to terror and plunder.
 23:47 The assembly will stone them to death and dispatch them with their swords. They will slaughter their sons and daughters. They will burn down their houses.
 23:48 So I will make obscenity cease from the land, that all women may be taught not to imitate your obscenity.
-23:49 They will repay you both for wickedness and you will bear the sins of your idols. So you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-24:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+23:49 They will repay you both for wickedness and you will bear the sins of your idols. So you will know that I am Adonai.”
+24:1 The word of Adonai came to me in the tenth day of the tenth month of the ninth year saying:
 24:2 “Son of man, record this date, this exact day—this very day the king of Babylon has laid siege to Jerusalem.
-24:3 Utter a parable concerning the rebellious house. Say to them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+24:3 Utter a parable concerning the rebellious house. Say to them, thus says Adonai Elohim: ‘Put on the pot, put it on and then pour water into it.
 24:4 Gather the pieces into it, every good piece —thigh and shoulder. Fill it with the choice bones.
 24:5 Take the choicest of the flock and pile the bones under it; bring it to a rolling boil, so that its bones also seethe in it.’”
-24:6 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+24:6 Therefore thus says Adonai Elohim: “Oy to the city of bloodshed, to the pot whose corrosion is in it, whose rust will not come off it! Draw it out piece by piece —no lot would fall for it.
 24:7 For her bloodshed is in her midst. She put it on the bare rock; she did not pour it upon the ground to cover it with dust.
 24:8 So it stirs up wrath for taking vengeance. I have put her blood on the bare rock, that it may not be covered.”
-24:9 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+24:9 Therefore thus says Adonai Elohim: ‘Oy to the city of bloodshed! I will also make the pile great,
 24:10 heaping on the wood, kindling the fire, boiling the meat well, and mixing in spices. But let the bones be burned!
 24:11 I will set it empty upon the coals until it gets hot and its copper scorches, so its impurity will be melted, its corrosion consumed.
 24:12 It has wearied toil, yet its thick rust will not come out of it. Into the fire with its corrosion!
 24:13 Because of your filthy obscenity, though I tried to purify you yet you were not made pure, you will never be cleansed from your filth until I have satisfied My fury on you.
-24:14 I, </span><span class="it"><span class="sc"><span class="content">Adonai
-24:15 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+24:14 I, Adonai, have spoken —it is coming. I will do it, I will not let go, not pity, not relent —according to your ways and according to your deeds they will judge you.’” It is a declaration of Adonai.
+24:15 The word of Adonai came to me saying:
 24:16 “Son of man, behold, I am about to take away the desire of your eyes with a single blow. But do not lament, do not weep or allow any tears to flow.
 24:17 Sigh silently, do not observe mourning for the dead, keep your turban fastened, and keep your sandals on your feet. Do not cover your upper lip or eat the bread of mourners.”
 24:18 So I spoke to the people in the morning and my wife died in the evening. In the morning I did just as I was commanded.
 24:19 The people said to me, “Won’t you tell us what these things you are doing mean to us?”
-24:20 Then I said to them, “The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-24:21 speak to the house of Israel, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+24:20 Then I said to them, “The word of Adonai came to me saying,
+24:21 speak to the house of Israel, thus says Adonai Elohim: ‘Behold, I will profane My Sanctuary, the pride of your might, the desire of your eyes and the longing of your soul. Your sons and your daughters that you have left behind will fall by the sword.
 24:22 You will do just as I have done: you will not cover your upper lips or eat the bread of mourners.
 24:23 Your turbans will remain on your heads and your shoes on your feet—you will not lament or weep. But you will pine away in your iniquities and groan to each other.
-24:24 Ezekiel will be a sign for you; just as he has done, you will do. When this comes, you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+24:24 Ezekiel will be a sign for you; just as he has done, you will do. When this comes, you will know that I am Adonai.’
 24:25 “You, son of man, on the day when I take from them their stronghold, the joy of their glory, the desire of their eyes, the longing of their soul, as well as their sons and their daughters—
 24:26 on that day a fugitive will come to you to tell you the news.
-24:27 On that day your mouth will be opened to him who escaped. You will speak and no longer be mute. So you will be a sign for them, and they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-25:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+24:27 On that day your mouth will be opened to him who escaped. You will speak and no longer be mute. So you will be a sign for them, and they will know that I am Adonai.”
+25:1 The word of Adonai came to me saying:
 25:2 “Son of man, set your face toward the children of Ammon and prophesy against them.
-25:3 Say to the children of Ammon—hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+25:3 Say to the children of Ammon—hear the word of Adonai, thus says Adonai Elohim—‘Because you said, “Aha!” against My Sanctuary when it was defiled, against the land of Israel when it was made desolate and against the house of Judah when they went into exile,
 25:4 therefore behold, I will give you over to the children of the east as a possession. They will set up their camps among you and make their dwellings among you. They will eat your fruit and drink your milk.
-25:5 I will make Rabbah a grazing place for camels and the children of Ammon a resting place for flocks. Then you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-25:6 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-25:7 therefore behold, I will stretch out My hand over you. I will deliver you as plunder for the nations. I will cut you off from the people. I will cause you to perish from among the countries. I will destroy you. Then you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-25:8 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+25:5 I will make Rabbah a grazing place for camels and the children of Ammon a resting place for flocks. Then you will know that I am Adonai.’”
+25:6 For thus says Adonai Elohim: “Because you have clapped your hands, stomped your feet and rejoiced with all the disdain of your soul against the land of Israel,
+25:7 therefore behold, I will stretch out My hand over you. I will deliver you as plunder for the nations. I will cut you off from the people. I will cause you to perish from among the countries. I will destroy you. Then you will know that I am Adonai.”
+25:8 Thus says Adonai Elohim: “Because Moab and Seir say, ‘See, the house of Judah is like all the other nations!’
 25:9 therefore behold, I will expose the mountain slope of Moab with all its cities, from its frontier cities, the glorious country of Beth-jeshimoth, Baal-meon, and Kiriathaim.
 25:10 I will deliver it, together with the children of Ammon, to the children of the east as a possession, so that the children of Ammon will not be remembered among the nations.
-25:11 Then I will execute judgments upon Moab. Then they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-25:12 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-25:13 therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-25:14 I will take My vengeance upon Edom by the hand of My people Israel. They will do in Edom according to My anger and according to My fury. They will know My vengeance.’” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-25:15 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-25:16 therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-25:17 I will execute severe vengeance upon them with furious punishments. So they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+25:11 Then I will execute judgments upon Moab. Then they will know that I am Adonai.”
+25:12 Thus says Adonai Elohim: “Because Edom has taken severe vengeance against the house of Judah and has grievously offended by taking revenge upon them,
+25:13 therefore thus says Adonai Elohim: ‘I will stretch out My hand upon Edom. I will cut off man and beast from it. I will make it desolate. From Teman to Dedan they will fall by the sword.
+25:14 I will take My vengeance upon Edom by the hand of My people Israel. They will do in Edom according to My anger and according to My fury. They will know My vengeance.’” It is a declaration of Adonai.
+25:15 Thus says Adonai Elohim: “Because the Philistines have acted in revenge and have taken severe vengeance with scornful soul, destroying in unending hatred,
+25:16 therefore thus says Adonai Elohim: ‘Behold, I will stretch out My hand over the Philistines. I will cut off the Cherethites, and destroy the remnant of the seacoast.
+25:17 I will execute severe vengeance upon them with furious punishments. So they will know that I am Adonai, when I lay My vengeance upon them.’”
 26:1 On the first day of the month in the eleventh year, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
 26:2 “Son of man, because Tyre has said against Jerusalem, ‘Aha, she is shattered, the gateway of the peoples—she is turned over to me! I will be filled, now that she is laid waste!’
 26:3 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
