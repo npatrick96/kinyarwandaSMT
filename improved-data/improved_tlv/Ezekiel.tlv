@@ -634,30 +634,30 @@
 25:15 Thus says Adonai Elohim: “Because the Philistines have acted in revenge and have taken severe vengeance with scornful soul, destroying in unending hatred,
 25:16 therefore thus says Adonai Elohim: ‘Behold, I will stretch out My hand over the Philistines. I will cut off the Cherethites, and destroy the remnant of the seacoast.
 25:17 I will execute severe vengeance upon them with furious punishments. So they will know that I am Adonai, when I lay My vengeance upon them.’”
-26:1 On the first day of the month in the eleventh year, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+26:1 On the first day of the month in the eleventh year, the word of Adonai came to me saying:
 26:2 “Son of man, because Tyre has said against Jerusalem, ‘Aha, she is shattered, the gateway of the peoples—she is turned over to me! I will be filled, now that she is laid waste!’
-26:3 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+26:3 Therefore thus says Adonai Elohim: Behold, I am against you, Tyre. I will bring up many nations against you, as the sea brings up its waves.
 26:4 They will destroy the walls of Tyre and tear down her towers. I will sweep her dust from her and make her a bare rock.
-26:5 She will be a place for the spreading of nets in the midst of the sea. For I have spoken it.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-26:6 and her daughters in the field will be slain by the sword. So they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-26:7 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+26:5 She will be a place for the spreading of nets in the midst of the sea. For I have spoken it.” It is a declaration of Adonai. “She will become plunder for the nations,
+26:6 and her daughters in the field will be slain by the sword. So they will know that I am Adonai.”
+26:7 For thus says Adonai Elohim: “Behold, from the north I will bring against Tyre Nebuchadrezzar, king of Babylon, king of kings, with horses, with chariots, with horsemen and a vast army of troops.
 26:8 He will slaughter your daughters in the field with the sword. He will build siege works against you, cast up an assault ramp against you and raise up shields against you.
 26:9 He will thrust his battering engines against your walls. He will tear down your towers with his weapons.
 26:10 You will be covered with dust from the multitude of his horses. At the noise of the horsemen, wheels and chariots, your walls will shake, when he enters your gates, as men enter a breached city.
 26:11 With the hoofs of his horses he will trample all your streets. He will kill your people with the sword. The pillars of your strength will come down to the ground.
 26:12 They will rob your riches and plunder your merchandise. They will tear down your walls and destroy your fine houses. They will cast your stones and your lumber and your dust into the midst of the sea.
 26:13 I will put an end to the sound of your songs. The sound of your lyres will no longer be heard.
-26:14 I will make you a bare rock; you will be a place for the spreading of nets, you will be built no more; for I, </span><span class="it"><span class="sc"><span class="content">Adonai
-26:15 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+26:14 I will make you a bare rock; you will be a place for the spreading of nets, you will be built no more; for I, Adonai, have spoken.” It is a declaration of Adonai.
+26:15 Thus says Adonai Elohim to Tyre: “Will the coastlands not shake at the sound of your downfall—when the wounded groan, when the slaughter is made in your midst?
 26:16 Then all the princes of the sea will come down from their thrones. They will cast aside their robes. They will take off their richly woven garments; they will clothe themselves with trembling; they will sit on the ground. They will tremble every moment and be appalled at you.
 26:17 They will lift a lament for you and say to you: ‘How you have perished —you who were inhabited from the seas, the renowned city, strong in the sea, you and your inhabitants, who spread their terror for all your inhabitants!
 26:18 Now the coastlands will tremble in the day of your downfall. The islands of the sea will be terrified at your demise.’”
-26:19 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+26:19 For thus says Adonai Elohim: “When I make you a desolate city, like the cities that are uninhabited, when I bring the flood upon you and the great waters cover you—
 26:20 then I will bring you down with them who descend into the Pit, to the people of long ago. I will make you dwell in the lowest parts of the earth, like the waste places of old, with those who go down to the Pit, so that you will not be inhabited or radiate splendor in the land of the living.
-26:21 I will make you a horror, and you will no longer exist. Though you are sought for, you will never be found again.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-27:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+26:21 I will make you a horror, and you will no longer exist. Though you are sought for, you will never be found again.” It is a declaration of Adonai Elohim.
+27:1 The word of Adonai came to me saying:
 27:2 “You, son of man, lift up a lament for Tyre.
-27:3 Say to Tyre, dwelling at the entrance of the sea, the merchant to the people of many coastlands, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+27:3 Say to Tyre, dwelling at the entrance of the sea, the merchant to the people of many coastlands, thus says Adonai Elohim: ‘Tyre, you said: “I am perfect in beauty!’
 27:4 Your borders are in the heart of the seas, your builders perfected your beauty.
 27:5 All your planks have been fashioned from cypress trees of Senir. They took a cedar from Lebanon to make a mast for you.
 27:6 They made your oars from Bashan’s oaks. Of boxwood from the islands of Kittim they made your decks, inlaid with ivory.
@@ -691,18 +691,18 @@
 27:34 Now you are shattered by the seas in the depths of the waters. Your merchandise and all your company have fallen in your midst.
 27:35 All the inhabitants of the coastlands are appalled at you. Their kings are horribly afraid, their faces are convulsed.
 27:36 The merchants among the people hiss at you. You have become a horror and will be no more.’”
-28:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-28:2 “Son of man, say to the prince of Tyre, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+28:1 The word of Adonai came to me saying:
+28:2 “Son of man, say to the prince of Tyre, thus says Adonai Elohim: ‘So your heart is exalted and you say, “I am a god! I sit in the seat of the gods in the heart of the seas!” Yet you are human, not a god, even if you set up your heart like the heart of a god.
 28:3 See, you are wiser than Daniel! No secret is hidden from you!
 28:4 By your wisdom and by understanding you have made wealth for yourself and have gathered gold and silver into your treasuries.
 28:5 In your great skill, by your trade, you have increased your wealth, so your heart is exalted by your wealth.’”
-28:6 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+28:6 Therefore thus says Adonai Elohim: “Because you have set up your heart like the heart of God,
 28:7 behold, I will bring strangers against you, the ruthless of the nations. They will draw their swords against the beauty of your wisdom. They will defile your splendor.
 28:8 They will bring you down to the Pit. You will die the death of those slain in the heart of the seas.
 28:9 Will you still say, ‘I am a god’ before the one who slays you? Yet you are man, and not a god, in the hand of those who pierce you.
-28:10 You will die the deaths of the uncircumcised at the hand of strangers. For I have spoken.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-28:11 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-28:12 “Son of man, lift up a lament for the king of Tyre. Say to him, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+28:10 You will die the deaths of the uncircumcised at the hand of strangers. For I have spoken.” It is a declaration of Adonai.
+28:11 The word of Adonai came to me saying:
+28:12 “Son of man, lift up a lament for the king of Tyre. Say to him, thus says Adonai Elohim: ‘You were the seal of perfection, full of wisdom and perfect in beauty.
 28:13 You were in Eden, the garden of God. Every precious stone was your covering —ruby, topaz and diamond, beryl, onyx and jasper, sapphire, turquoise and emerald—your settings and your sockets a workmanship of gold —in the day you were created they were prepared.
 28:14 You were an anointed guardian cheruv. I placed you on the holy mountain of God. You walked among stones of fire.
 28:15 You were perfect in your ways from the day that you were created, until unrighteousness was found in you.
@@ -710,61 +710,61 @@
 28:17 Your heart was exalted because of your beauty. You corrupted your wisdom because of your splendor. I threw you down to the earth. Before kings I set you up as a spectacle.
 28:18 “‘By the multitude of your iniquities, in the injustice of your trade, you profaned your sanctuaries. So I brought fire out from within you, and it has consumed you. I have turned you to ashes on the earth in the eyes of all who saw you.
 28:19 All who know you among the people will be appalled at you. You have become a horror and will be nothing forever.’”
-28:20 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+28:20 The word of Adonai came to me saying:
 28:21 “Son of man, set your face toward Sidon and prophesy against her.
-28:22 Say, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-28:23 I will send a plague to her and blood in her streets. The wounded will fall in her midst by the sword on every side. So they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-28:24 “Never again will there be a briar pricking at the house of Israel or a piercing thorn from any around them who scorn them. They will know that I am the Lord </span><span class="it"><span class="sc"><span class="content">Adonai
-28:25 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-28:26 They will live safely there, and they will build houses and plant vineyards. They will live securely when I have executed judgments on all those around them that treated them with contempt. So they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-29:1 On the twelfth day of the tenth month of the tenth year, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+28:22 Say, thus says Adonai Elohim: ‘Behold, I am against you, Zidon. I will be glorified in your midst. They will know that I am Adonai, when I execute judgments in her, and show my holiness through her.
+28:23 I will send a plague to her and blood in her streets. The wounded will fall in her midst by the sword on every side. So they will know that I am Adonai.’
+28:24 “Never again will there be a briar pricking at the house of Israel or a piercing thorn from any around them who scorn them. They will know that I am the Lord Adonai.”
+28:25 Thus says Adonai Elohim: “When I have gathered the house of Israel from the people among whom they are scattered and show my holiness through them in the eyes of the nations, then they will live in their own land which I gave to My servant Jacob.
+28:26 They will live safely there, and they will build houses and plant vineyards. They will live securely when I have executed judgments on all those around them that treated them with contempt. So they will know that I am Adonai their God.”
+29:1 On the twelfth day of the tenth month of the tenth year, the word of Adonai came to me saying:
 29:2 “Son of man, set your face against Pharaoh king of Egypt. Prophesy against him and against all Egypt,
-29:3 speak and say, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+29:3 speak and say, thus says Adonai Elohim: ‘Behold, I am against you, Pharaoh King of Egypt, the great crocodile lying in his rivers, who says: “My Nile is my own —I made it for myself.”
 29:4 I will put hooks in your jaws and make the fish of your streams stick to your scales. I will haul you up from within your rivers and all the fish of your streams will stick to your scales.
 29:5 I will leave you in the desert —you and all the fish of your streams. You will fall on the open field. You will not be gathered or picked up. I will give you as food for the beasts of the earth and the birds of the sky.
-29:6 Then all the inhabitants of Egypt will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+29:6 Then all the inhabitants of Egypt will know that I am Adonai, because they were a staff of reed to the house of Israel.
 29:7 When they took hold of you by the hand, you snapped and tore all their shoulders. When they leaned on you, you broke and wrenched all their hips.’”
-29:8 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-29:9 The land of Egypt will become desolate and waste. Then they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+29:8 Therefore thus says Adonai Elohim: “Behold, I will bring a sword against you. I will cut off from you man and beast.
+29:9 The land of Egypt will become desolate and waste. Then they will know that I am Adonai. Because he said, ‘The Nile is mine—I made it!’
 29:10 therefore behold, I am against you and against your rivers. I will make the land of Egypt an utter waste and desolation, from Migdol to Syene, as far as the border of Ethiopia.
 29:11 No human foot will pass through it, and no foot of beast will pass through it. It will be uninhabited for 40 years.
 29:12 I will make the land of Egypt a desolation among devastated countries. Her cities will be a desolation 40 years among ruined cities. I will scatter the Egyptians among the nations and disperse them throughout the countries.”
-29:13 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+29:13 For thus says Adonai Elohim: “At the end of 40 years, I will gather the Egyptians from the peoples where they were scattered.
 29:14 I will restore the fortunes of Egypt. I will cause them to return to the land of Pathros, the land of their origin. But they will be a lowly kingdom there.
 29:15 It will be the lowliest of the kingdoms. It will no longer exalt itself above the nations. I will diminish them, so that they no longer rule over the nations.
-29:16 It will no longer be as security for the house of Israel, bringing to mind the iniquity of their turning after them. So they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-29:17 On the first day of the first month of the twenty-seventh year, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+29:16 It will no longer be as security for the house of Israel, bringing to mind the iniquity of their turning after them. So they will know that I am Adonai.”
+29:17 On the first day of the first month of the twenty-seventh year, the word of Adonai came to me saying:
 29:18 “Son of man, Nebuchadnezzar king of Babylon made his army labor hard against Tyre. Every head became bald and every shoulder chafed. But he and his army had no profit from Tyre for the labor that he had expended against it.”
-29:19 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-29:20 I have given him the land of Egypt as his wages for which he served, because they worked for Me.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-29:21 “In that day I will cause a horn to shoot up for the house of Israel. I will open your mouth among them. They will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-30:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-30:2 “Son of man, prophesy, and say, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-30:3 For the day is near, the day of </span><span class="it"><span class="sc"><span class="content">Adonai
+29:19 Therefore thus says Adonai Elohim: “Behold, I will give the land of Egypt to Nebuchadnezzar king of Babylon. He will carry off her abundance, take her spoil and take her prey. It will be the wages for his army.
+29:20 I have given him the land of Egypt as his wages for which he served, because they worked for Me.” It is a declaration of Adonai.
+29:21 “In that day I will cause a horn to shoot up for the house of Israel. I will open your mouth among them. They will know that I am Adonai.”
+30:1 The word of Adonai came to me saying:
+30:2 “Son of man, prophesy, and say, thus says Adonai Elohim: ‘Wail, alas, for the day!
+30:3 For the day is near, the day of Adonai is near, a day of clouds, a time for the nations.
 30:4 A sword will come against Egypt. Anguish will be in Ethiopia when the slain fall in Egypt. They will take away her abundance. Her foundations will be torn down.
 30:5 Ethiopia, Put and Lud, all the mixed people, Libya, and children of the covenant land will fall with them by the sword.’”
-30:6 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+30:6 Thus says Adonai Elohim: “Those who support Egypt will fall. The pride of her power will collapse. From Migdol to Syene they will fall within her by the sword.” It is a declaration of Adonai.
 30:7 “They will be desolate among desolate lands. Her cities will be among ruined cities.
-30:8 They will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+30:8 They will know that I am Adonai, when I have set a fire in Egypt and all her supporters are destroyed.
 30:9 “On that day, messengers will go out from before Me in ships to frighten Ethiopians out of complacency. Anguish will come on them as on the day of Egypt—for, behold, it is coming!”
-30:10 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+30:10 Thus says Adonai Elohim: “I will put away the pomp of Egypt by the hand of Nebuchadrezzar king of Babylon.
 30:11 He and his people with him, the ruthless of the nations, will be brought in to destroy the land. They will draw their swords against Egypt and fill the land with the slain.
-30:12 I will make the rivers dry. I will sell the land into the hand of evildoers. I will make the land desolate, and all that is in it, by the hand of strangers. I, </span><span class="it"><span class="sc"><span class="content">Adonai
-30:13 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+30:12 I will make the rivers dry. I will sell the land into the hand of evildoers. I will make the land desolate, and all that is in it, by the hand of strangers. I, Adonai, have spoken it.”
+30:13 Thus says Adonai Elohim: “I will destroy the idols. I will destroy the pagan gods from Noph. There will no longer be a prince in the land of Egypt. I will strike terror in the land of Egypt.
 30:14 I will make Pathros desolate. I will set a fire in Zoan. I will execute judgments in No.
 30:15 I will pour My fury on Sin, the stronghold of Egypt. I will cut off the multitude of No.
 30:16 I will set a fire in Egypt. Sin will writhe in anguish. No will be assaulted. Noph will face enemies daily.
 30:17 The young men of Aven and Pi-beseth will fall by the sword and the women will go into captivity.
 30:18 In Tehaphnehes the day will grow dark when I break the yokes of Egypt there. The pride of her power will cease in her —a cloud will cover her. Her daughters will go into captivity.
-30:19 So I will execute judgments in Egypt, and they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-30:20 On the seventh day of the first month of the eleventh year, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+30:19 So I will execute judgments in Egypt, and they will know that I am Adonai.”
+30:20 On the seventh day of the first month of the eleventh year, the word of Adonai came to me saying:
 30:21 “Son of man, I have broken the arm of Pharaoh king of Egypt. Behold, it has not been bound up to be healed or put in a splint, so that it is wrapped up with a bandage, to grow strong to wield the sword.”
-30:22 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+30:22 Therefore thus says Adonai Elohim: “I am against Pharaoh king of Egypt. I will break his arms, the strong one and the one that was broken. I will cause the sword to fall out of his hand.
 30:23 I will scatter the Egyptians among the nations and disperse them throughout the countries.
 30:24 I will strengthen the arms of the king of Babylon and put My sword into his hand. I will break the arms of Pharaoh, so he will groan before him like a fatally wounded man.
-30:25 I will strengthen the arms of the king of Babylon, but Pharaoh’s arms will fall. So they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-30:26 I will scatter the Egyptians among the nations and disperse them through the countries. Then they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-31:1 On the first day of the third month of the eleventh year, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+30:25 I will strengthen the arms of the king of Babylon, but Pharaoh’s arms will fall. So they will know that I am Adonai when I put My sword into the hand of the king of Babylon and he stretches it out against the land of Egypt.
+30:26 I will scatter the Egyptians among the nations and disperse them through the countries. Then they will know that I am Adonai.”
+31:1 On the first day of the third month of the eleventh year, the word of Adonai came to me saying:
 31:2 “Son of man, say to Pharaoh king of Egypt and to his multitude: ‘Who is like you in your greatness?
 31:3 Behold, Assyria was a cedar in Lebanon, with beautiful branches shadowing the forest, of lofty height. Its top was in leafy branches.
 31:4 Water nourished it, the deep made it tall, with its rivers going around its planting as it sent out its water-courses to all the trees of the field.
@@ -773,245 +773,245 @@
 31:7 It was beautiful in its greatness, in the length of its branches, for its root was in abundant water.
 31:8 The cedars in the garden of God could not compare with it. No cypress trees could rival its boughs. No plane-trees could match its branches. No tree in the garden of God could compare to its beauty.
 31:9 I made it beautiful with its many limbs. All the trees of Eden in God’s garden envied it.’”
-31:10 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+31:10 Therefore thus says Adonai Elohim: “Because you were exalted in height —its top set up among leafy branches, its heart haughty in its height—
 31:11 I gave it into the hand of a ruler of nations, who surely dealt with it. I drove it out as befits its wickedness.
 31:12 Ruthless barbarians from the nations cut it down. They cast it down on the mountains and in all the valleys its branches fell. Its branches have laid broken in all the streambeds of the land. All the people of the earth have come out from its shade and abandoned it.
 31:13 All the birds of the sky lived on its fallen trunk and all the beasts of the field upon its fallen branches.
 31:14 So none of all the trees by the water should exalt themselves in their height or set their top among the leafy boughs. None of their well-watered mighty ones should attain their height. For they have all been given to death, to the lowest regions under the earth, among the children of men who go down to the Pit.”
-31:15 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-31:16 I made the nations tremble at the sound of its fall, when I cast him down to </span><span class="it"><span class="content">Sheol
-31:17 They also went down with him to </span><span class="it"><span class="content">Sheol
-31:18 ‘Who is like you in glory and greatness among the trees of Eden? You will be brought down with the trees of Eden to the lowest parts of the earth. You will lie among the uncircumcised, with those slain by the sword.’ This is Pharaoh and all his multitude.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-32:1 On the first day of the twelfth month of the twelfth year, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+31:15 Thus says Adonai Elohim: “In the day when he went down to Sheol I caused the deep to mourn and cover itself for him. I restrained his rivers, so the great waters were stopped. I made Lebanon mourn for him. All the trees of the field wilt away for it.
+31:16 I made the nations tremble at the sound of its fall, when I cast him down to Sheol with those who descend into the Pit. All the well-watered trees of Eden, the choice and best of Lebanon, were comforted in the lowest parts of the earth.
+31:17 They also went down with him to Sheol, to those slain by the sword, those who were his mighty arm, who lived in his shadow among the nations.
+31:18 ‘Who is like you in glory and greatness among the trees of Eden? You will be brought down with the trees of Eden to the lowest parts of the earth. You will lie among the uncircumcised, with those slain by the sword.’ This is Pharaoh and all his multitude.” It is a declaration of Adonai.
+32:1 On the first day of the twelfth month of the twelfth year, the word of Adonai came to me saying:
 32:2 “Son of man, lift up a lament for Pharaoh king of Egypt and say to him: ‘You compare yourself to a young lion of the nations, but you are a crocodile in the waters. You thrash about in your rivers and muddy the water with your feet and foul their streams.’”
-32:3 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+32:3 Thus says Adonai Elohim: “I will throw My net over you with a host of many peoples. They will haul you up in My net.
 32:4 I will leave you on the land. I will hurl you on an open field. I will cause all the birds of the sky to settle upon you. I will gorge the beasts of the whole earth with you.
 32:5 I will strew your flesh on the mountains and fill the valleys with your refuse.
 32:6 I will drench the land with the flow of your blood up to the hills. The ravines will be full of you.
 32:7 When I extinguish you, I will cover the sky and darken the stars. I will cover the sun with cloud, and the moon will not give her light.
-32:8 I will darken all of heaven’s bright lights over you and set darkness on your land.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+32:8 I will darken all of heaven’s bright lights over you and set darkness on your land.” It is a declaration of Adonai.
 32:9 “I will disturb the hearts of many peoples when I bring about your destruction among the nations, into lands you have not known.
 32:10 I will make many people appalled at you. Their kings will be totally aghast at you when I brandish My sword over you. They will shudder every moment, every man for his own life, on the day of your downfall.”
-32:11 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+32:11 For thus says Adonai Elohim: “The sword of the king of Babylon will come upon you.
 32:12 By the swords of the mighty I will cause your multitude to fall. They are all ruthless among the nations. They will devastate the pride of Egypt. All of its multitude will be annihilated.
 32:13 I will destroy all the beasts from beside plentiful water. No human foot will muddy them again, nor will hoofs of beasts muddy them.
-32:14 Then I will make their waters settle and make their streams flow like oil.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-32:15 “When I make the land of Egypt desolate and waste when it was previously full, when I strike all that live there, they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-32:16 This is the funeral song —chant it, daughters of the nations, chant for Egypt. All her multitude will chant it.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-32:17 On the fifteenth day of the month in the twelfth year, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+32:14 Then I will make their waters settle and make their streams flow like oil.” It is a declaration of Adonai.
+32:15 “When I make the land of Egypt desolate and waste when it was previously full, when I strike all that live there, they will know that I am Adonai.
+32:16 This is the funeral song —chant it, daughters of the nations, chant for Egypt. All her multitude will chant it.” It is a declaration of Adonai.
+32:17 On the fifteenth day of the month in the twelfth year, the word of Adonai came to me saying:
 32:18 “Son of man, wail over Egypt’s throng. Bring them down —her and the daughters of lofty nations, to the underworld, to those who go down to the pit.
 32:19 Who do you surpass in beauty? Go down, lie with the uncircumcised.
 32:20 They fall among those slain by the sword. She is given over to the sword. They drag her down with all her throng.
-32:21 The strongest warriors will speak of him and his allies from the midst of </span><span class="it"><span class="content">Sheol
+32:21 The strongest warriors will speak of him and his allies from the midst of Sheol. They have gone down, they lie still, the uncircumcised, slain by the sword.
 32:22 “Assyria is there and all her company, their graves surround them —all of them slain, fallen by the sword.
 32:23 Her graves are set in the deepest parts of the Pit. Her company surrounds her grave —all of them slain, fallen by the sword —who put terror in the land of the living.
 32:24 “There is Elam and all her multitude surrounding her grave —all of them slain, fallen by the sword —who went down uncircumcised into the underworld, who caused terror in the land of the living. They bear their disgrace with those who go down to the Pit.
 32:25 They have made her a bed among the slain with all her throng, her graves about them —all of them uncircumcised, slain, fallen by the sword— though they caused terror in the land of the living. So they bear their disgrace with those who go down to the Pit. They are laid among the slain.
 32:26 “Meshech-Tubal is there and all her throng, her graves around them —all of them uncircumcised, slain by the sword, though they spread their terror in the land of the living.
-32:27 They do not lie with the mighty, the fallen from among the uncircumcised, who went down to </span><span class="it"><span class="content">Sheol
+32:27 They do not lie with the mighty, the fallen from among the uncircumcised, who went down to Sheol with their weapons of war. They put their swords under their heads. Their iniquities rest on their bones because the terror of the mighty ones was in the land of the living.
 32:28 You also will be shattered and lie among the uncircumcised, with those who are slain by the sword.
 32:29 “Edom is there, her kings and all her princes, who for all their might are laid with those slain by the sword. They lie with the uncircumcised, with those who go down to the Pit.
 32:30 “The princes of the north are there, all of them, all the Zidonians, who have gone down with the slain, ashamed for all the terror that they caused by their might. They lie uncircumcised with those slain by the sword. They bear their disgrace with those who go down to the pit.
-32:31 When Pharaoh sees them, he will be comforted for all his throng, Pharaoh and all his army, slain by the sword.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-32:32 “For I have put My terror in the land of the living. He will lie among the uncircumcised, with those slain by the sword, Pharaoh and all his multitude.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-33:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+32:31 When Pharaoh sees them, he will be comforted for all his throng, Pharaoh and all his army, slain by the sword.” It is a declaration of Adonai.
+32:32 “For I have put My terror in the land of the living. He will lie among the uncircumcised, with those slain by the sword, Pharaoh and all his multitude.” It is a declaration of Adonai.
+33:1 The word of Adonai came to me saying:
 33:2 “Son of man, speak to the children of your people and say to them: ‘When I bring the sword upon a land, suppose the people of the land take a man from among them, and set him as their watchman.
-33:3 If, when he sees the sword coming upon the land, he blows the </span><span class="it"><span class="content">shofar
-33:4 then whoever hears the sound of the </span><span class="it"><span class="content">shofar
-33:5 He heard the sound of the </span><span class="it"><span class="content">shofar
-33:6 But if the watchman sees the sword come and does not blow the </span><span class="it"><span class="content">shofar
+33:3 If, when he sees the sword coming upon the land, he blows the shofar and warns the people,
+33:4 then whoever hears the sound of the shofar but ignores the warning, if the sword comes and takes him away, his blood will be on his own head.
+33:5 He heard the sound of the shofar and ignored the warning; his blood will be on himself. However, if he had taken warning, he would have saved his soul.
+33:6 But if the watchman sees the sword come and does not blow the shofar, the people are not warned. Then the sword does come and takes a person from among them—he is taken away in his iniquity, but his blood I will require at the watchman’s hand.’
 33:7 “You, son of man, I have set you as a watchman for the house of Israel. When you hear the word from My mouth, warn them from Me.
 33:8 When I say to the wicked: ‘Wicked one, you will surely die!’ and you do not speak to warn the wicked about his way—that wicked one will die in his iniquity, but his blood I will require at your hand.
 33:9 If you warn the wicked of his way to turn from it and he does not turn from his way, then he will die in his iniquity—but you have saved your soul.
 33:10 “You, son of man, say to the house of Israel: ‘You have said, “Surely our transgressions and our sins are upon us and we are pining away in them. So how can we live.”
-33:11 Say to them: ‘As I live’—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+33:11 Say to them: ‘As I live’—it is a declaration of Adonai—‘I have no pleasure in the death of the wicked, but that the wicked turn from his way and live. Return, return from your evil ways. Why will you die, O house of Israel?’
 33:12 “You, son of man, say to the children of your people: ‘The righteousness of the righteous person will not deliver him in the day of his transgression. Nor will the wickedness of the wicked person make him stumble in it on the day he turns away from his wickedness. Nor will the righteous person be able to live by it on the day he sins.
 33:13  When I tell the righteous that he will surely live, but he trusts in his own righteousness and commits iniquity, none of his righteous deeds will be remembered. But in his iniquity that he has committed, he will die.
 33:14 When I say to the wicked, “You will surely die,” yet he turns from his sin and does what is just and right—
 33:15 if the wicked restores a pledge, gives back what he had taken by robbery, walks in the laws of life, committing no iniquity—he will surely live, he will not die.
 33:16 None of his sins that he has committed will be remembered against him. He has done what is just and right; he will surely live.’
-33:17 “Yet the children of your people say, ‘The way of </span><span class="it"><span class="sc"><span class="content">Adonai
+33:17 “Yet the children of your people say, ‘The way of Adonai isn’t fair!’ but it is their way, theirs that is unfair.
 33:18 When a righteous person turns from his righteousness and commits iniquity, he will die in it.
 33:19 When a wicked person turns from his wickedness and does what is just and right, he will live by it.
-33:20 Yet you say, ‘The way of </span><span class="it"><span class="sc"><span class="content">Adonai
+33:20 Yet you say, ‘The way of Adonai is not fair!’ House of Israel, I will judge every one of you according to his ways.”
 33:21 In the twelfth year of our exile, on the fifth day of the tenth month, a survivor from Jerusalem came to me saying, “The city has been struck down.”
-33:22 The hand of </span><span class="it"><span class="sc"><span class="content">Adonai
-33:23 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+33:22 The hand of Adonai had been upon me in the evening, before the survivor came. He had opened my mouth by the time of his coming to me in the morning. So my mouth was opened and I was no longer mute.
+33:23 Then the word of Adonai came to me saying:
 33:24 “Son of man, the inhabitants of these ruins in the land of Israel keep saying, ‘Abraham was only one, yet he inherited the land. Since we are many, the land is given to us as a possession.’
-33:25 “Therefore say to them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+33:25 “Therefore say to them, thus says Adonai Elohim: ‘You eat with the blood, lift up your eyes to your idols and shed blood. Should you possess the land?
 33:26 You rely on your sword, commit abominations and each of you defiles his neighbor’s wife. Should you possess the land?’
-33:27 Say this to them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+33:27 Say this to them, thus says Adonai Elohim: ‘As I live, surely those who are in the ruins will fall by the sword. Whoever is in the open field I will give to the beasts to be devoured, and whoever is in the strongholds and in the caves will die of the plague.
 33:28 I will make the land a desolation and a horror. The pride of her power will cease. The mountains of Israel will be desolate, so that no one will pass through.’
-33:29 They will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-33:30 “Now as for you, son of man, the children of your people are talking about you by the walls and in the doorways of the houses. Each one speaks to one another, each saying to his brother: ‘Come now, hear what message is coming forth from </span><span class="it"><span class="sc"><span class="content">Adonai
+33:29 They will know that I am Adonai, when I have made the land a desolate waste, because of all their abominations that they have committed.”
+33:30 “Now as for you, son of man, the children of your people are talking about you by the walls and in the doorways of the houses. Each one speaks to one another, each saying to his brother: ‘Come now, hear what message is coming forth from Adonai!’
 33:31 So they come to you, as people come, and sit before you as My people and hear your words—but they do not do them—for with their mouth they express doting love, but their heart goes after their own dishonest gain.
 33:32 Look, you are like a love song to them, one who has a beautiful voice and can play well on an instrument. They hear your words, but do not practice them.
 33:33 When this comes to pass—behold, it is coming—they will know that a prophet has been among them.”
-34:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-34:2 “Son of man, prophesy against the shepherds of Israel. Prophesy and say to those shepherds, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+34:1 The word of Adonai came to me saying:
+34:2 “Son of man, prophesy against the shepherds of Israel. Prophesy and say to those shepherds, thus says Adonai Elohim: “Oy , shepherds of Israel who only take care of themselves! Should shepherds not take care of the sheep?
 34:3 You eat the fat. You clothe yourself with the wool. You kill the fat ones. But you do not take care of the sheep.
 34:4 You do not strengthen the weak, heal the sick, bind up the broken, bring back the stray or seek the lost. Instead, you have ruled over them with force and cruelty.
 34:5 They were scattered for lack of a shepherd. They became food for all the beasts of the field as they were scattered.
 34:6 My sheep wandered through all the mountains and on every high hill. Over all the face of the earth My sheep were scattered. No one searched. No one sought.”
-34:7 Therefore, shepherds, hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-34:8 “As I live”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-34:9 therefore, you shepherds, hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-34:10 thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-34:11 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+34:7 Therefore, shepherds, hear the word of Adonai:
+34:8 “As I live”—it is a declaration of Adonai—“as surely as My sheep became prey and My sheep became food for all the beasts of the field, because there was no shepherd, nor did My shepherds search for My flock, but the shepherds fed themselves and did not feed My sheep,”
+34:9 therefore, you shepherds, hear the word of Adonai,
+34:10 thus says Adonai Elohim: “Behold, I am against the shepherds and I will demand My flock from their hand. I will dismiss them from tending the flock. The shepherds will no longer feed themselves. I will rescue My sheep from their mouth, so they will not be food for them.”
+34:11 For thus says Adonai Elohim: “Here I am! I Myself will search for My sheep and seek them out.
 34:12 As a shepherd seeks out his sheep on the day he is among his scattered flock, so I will seek out My sheep. I will rescue them out of all the places where they have been scattered, on a day of cloud and thick darkness.
 34:13 I will bring them out from the peoples. I will gather them from the countries. I will bring them back to their own land. I will shepherd them upon the mountains of Israel, by the streams and in all the habitable places of the land.
 34:14 I will shepherd them in a good pasture—their grazing place will be on the high mountains of Israel. There they will lie down on good grazing ground. They will feed in a rich pasture on the mountains of Israel.
-34:15 I will tend My flock and make them lie down”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+34:15 I will tend My flock and make them lie down”—it is a declaration of Adonai.
 34:16 “I will seek the lost, bring back the stray, bind up the broken and strengthen the sick. But the fat and the strong I will destroy—I will tend them with justice.
-34:17 As for you, My flock”—thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+34:17 As for you, My flock”—thus says Adonai Elohim—“behold, I will judge between sheep and sheep, between rams and male goats.
 34:18 Was it too little for you that you were feeding in the good pasture? Must you trample down the rest of your pastures with your feet? You were drinking clear water. Must you muddy the rest with your feet?
 34:19 Yet My sheep must eat what you have trampled with your feet and drink what you have muddied with your feet!”
-34:20 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+34:20 Therefore thus says Adonai Elohim to them: “Behold, I Myself will judge between the fat sheep and the lean sheep.
 34:21 Because you thrust with your side and with shoulder and gore all the weak with your horns, until you have scattered them all over,
 34:22 I will save My flock. They will no longer be prey. I will judge between sheep and sheep.
 34:23 So I will set up One Shepherd over them, My servant David—He will tend them, He will feed them Himself and be their shepherd.
-34:24 I, </span><span class="it"><span class="sc"><span class="content">Adonai
-34:25 “I will make a covenant of </span><span class="it"><span class="content">shalom
+34:24 I, Adonai, will be their God, and My servant David will be Prince among them. I, Adonai, have spoken.
+34:25 “I will make a covenant of shalom with them. I will remove the evil beasts from the land, so they may dwell safely in the wilderness and sleep in the forest.
 34:26 I will make them and the places around My hill a blessing. I will cause the rain to come down in its season. There will be showers of blessing.
-34:27 The tree of the field will yield its fruit. The ground will yield its produce. They will be secure in their land. Then they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+34:27 The tree of the field will yield its fruit. The ground will yield its produce. They will be secure in their land. Then they will know that I am Adonai, when I have broken the bars of their yoke and have delivered them from the hand of those who enslaved them.
 34:28 They will no longer be prey to the nations. The beast of the earth will not devour them. They will live in security. No one will make them afraid.
 34:29 I will make their agriculture renowned. They will no longer be consumed with hunger in the land. They will no longer bear the scorn of the nations.
-34:30 They will know that I, </span><span class="it"><span class="sc"><span class="content">Adonai
-34:31 “So you, My sheep, the sheep of My pasture, you are human, and I am your God.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-35:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+34:30 They will know that I, Adonai their God, am with them. They, the house of Israel, are My people.” It is a declaration of Adonai.
+34:31 “So you, My sheep, the sheep of My pasture, you are human, and I am your God.” It is a declaration of Adonai Elohim.
+35:1 The word of Adonai came to me saying:
 35:2 “Son of man, set your face against Mount Seir and prophesy against it.
-35:3 Say to it, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-35:4 I will lay your cities waste. You will be devastated. So you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-35:5 “Because you have a long-standing hatred and have delivered </span><span class="it"><span class="content">Bnei-Yisrael
-35:6 therefore, as I live’—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+35:3 Say to it, thus says Adonai Elohim: ‘Behold, I am against you, Mount Seir. I will stretch out My hand over you and make you utterly desolate.
+35:4 I will lay your cities waste. You will be devastated. So you will know that I am Adonai.
+35:5 “Because you have a long-standing hatred and have delivered Bnei-Yisrael to the power of the sword in the time of their calamity, in the time of their final punishment,
+35:6 therefore, as I live’—it is a declaration of Adonai—‘I will destine you for blood, and bloodshed will pursue you. Since you did not hate bloodshed, therefore bloodshed will pursue you.
 35:7 I will make Mount Seir an utter desolation. I will cut off from it all who come and go.
 35:8 I will fill its mountains with its slain; on your hills, your valleys and all your streams those slain by the sword will fall.
-35:9 I will make you everlasting desolations; your cities will not be inhabited. Then you will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-35:10 “Because you said: ‘These two nations and these two lands will be mine! We will possess them’—though </span><span class="it"><span class="sc"><span class="content">Adonai
-35:11 “therefore, as I live”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-35:12 You will know that I, </span><span class="it"><span class="sc"><span class="content">Adonai
+35:9 I will make you everlasting desolations; your cities will not be inhabited. Then you will know that I am Adonai.
+35:10 “Because you said: ‘These two nations and these two lands will be mine! We will possess them’—though Adonai was there—
+35:11 “therefore, as I live”—it is a declaration of Adonai—“I will deal with you with the same anger and envy that you had because of your hatred against them. I will make Myself known among them, when I judge you.
+35:12 You will know that I, Adonai, have heard all your blasphemies that you uttered against the mountains of Israel saying: “They are laid desolate—they are given for us to devour!”
 35:13 You have magnified yourselves against Me with your mouth. You multiplied your words against Me. I heard it.”
-35:14 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-35:15 As you rejoiced over inheriting the house of Israel, because it was desolate, so I will do to you. You will be desolate, Mount Seir and all Edom—all of it. Then they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-36:1 “You, son of man, prophesy to the mountains of Israel and say: ‘Mountains of Israel, hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-36:2 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-36:3 Therefore prophesy and say, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-36:4 therefore, mountains of Israel, hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-36:5 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-36:6 Therefore, prophesy to the land of Israel and say to the mountains and the hills, the streams and the valleys, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-36:7 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+35:14 Thus says Adonai Elohim: “When the whole earth rejoices, I will make you desolate.
+35:15 As you rejoiced over inheriting the house of Israel, because it was desolate, so I will do to you. You will be desolate, Mount Seir and all Edom—all of it. Then they will know that I am Adonai.”
+36:1 “You, son of man, prophesy to the mountains of Israel and say: ‘Mountains of Israel, hear the word of Adonai.
+36:2 Thus says Adonai Elohim: “The enemy has said against you, ‘Aha! Even the ancient high places have become our possession!’
+36:3 Therefore prophesy and say, thus says Adonai Elohim: ‘Because they ravaged and crushed you from every side, so that you became the possession of the rest of the nations and you became the talk and evil gossip of people,’
+36:4 therefore, mountains of Israel, hear the word of Adonai, thus says Adonai Elohim to the mountains, the hills, the streams and the valleys, the desolate wastes and the cities that are forsaken, which have become prey and derision to the rest of the surrounding nations.
+36:5 Therefore thus says Adonai Elohim: ‘Surely in the fire of My wrath I have spoken against the rest of the nations, and against all Edom, that have taken My land for themselves as a possession with the joy of all their heart and contempt in their souls, in order to seize it as plunder.’
+36:6 Therefore, prophesy to the land of Israel and say to the mountains and the hills, the streams and the valleys, thus says Adonai Elohim: ‘Behold, I have spoken in My wrath and in My fury, because you have suffered the scorn of the nations.’
+36:7 Therefore thus says Adonai Elohim: ‘I have lifted My hand. Surely the nations that surround you will themselves suffer scorn.
 36:8 “‘But you, mountains of Israel, you will shoot forth your branches and yield your fruit for My people Israel; for their return is near.
 36:9 For behold, I am for you. I will turn to you. You will be tilled and sown.
 36:10 I will settle a large population upon you—the whole house of Israel, all of it. The cities will be inhabited. The desolate places will be built up.
-36:11 I will multiply man and beast upon you. They will increase and be fruitful. I will cause you to be inhabited as you were before. I will do better for you than at your beginnings. You will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+36:11 I will multiply man and beast upon you. They will increase and be fruitful. I will cause you to be inhabited as you were before. I will do better for you than at your beginnings. You will know that I am Adonai.
 36:12 I will cause people, my people Israel, to walk upon you. They will possess you, and you will be their inheritance. You will no longer deprive them of children.’”
-36:13 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-36:14 therefore you will no longer devour men and you will no longer deprive your nation of children.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-36:15 “I will no longer let the scorn of the nations be heard against you. You will no longer bear disgrace from the peoples. You will no longer cause your nation to stumble.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-36:16 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-36:17 “Son of man, when the house of Israel lived in their own land, they defiled it by their way and by their deeds. Their way before Me was like the uncleanness of a woman in her </span><span class="it"><span class="content">niddah
+36:13 Thus says Adonai Elohim: “Because they say to you, ‘You are a devourer of men and you deprive your nation of children,’
+36:14 therefore you will no longer devour men and you will no longer deprive your nation of children.” It is a declaration of Adonai.
+36:15 “I will no longer let the scorn of the nations be heard against you. You will no longer bear disgrace from the peoples. You will no longer cause your nation to stumble.” It is a declaration of Adonai.
+36:16 The word of Adonai came to me saying:
+36:17 “Son of man, when the house of Israel lived in their own land, they defiled it by their way and by their deeds. Their way before Me was like the uncleanness of a woman in her niddah .
 36:18 So I poured out My fury on them for the blood which they had shed upon the land and because they had defiled it with their idols.
 36:19 I scattered them among the nations, so they were dispersed through the countries. According to their way and their deeds I judged them.
-36:20 Wherever they went among the nations, they profaned My holy Name, since it was said about them, ‘These are the people of </span><span class="it"><span class="sc"><span class="content">Adonai
+36:20 Wherever they went among the nations, they profaned My holy Name, since it was said about them, ‘These are the people of Adonai, yet they had to leave His land.’
 36:21 But I had concern for My holy Name, which the house of Israel had profaned among the nations wherever they went.
-36:22 “Therefore say to the house of Israel, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-36:23 I will sanctify My great Name, which has been profaned among the nations—which you have profaned among them. The nations will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+36:22 “Therefore say to the house of Israel, thus says Adonai Elohim: ‘I do not do this for your sake, house of Israel, but for My holy Name, which you profaned among the nations wherever you went.
+36:23 I will sanctify My great Name, which has been profaned among the nations—which you have profaned among them. The nations will know that I am Adonai’”—it is a declaration of Adonai—“‘when I am sanctified in you before their eyes.’”
 36:24 “‘For I will take you from the nations, gather you out of all the countries and bring you back to your own land.
 36:25 Then I will sprinkle clean water on you and you will be clean from all your uncleanness and from all your idols.
 36:26 Moreover I will give you a new heart. I will put a new spirit within you. I will remove the stony heart from your flesh and give you a heart of flesh.
-36:27 I will put My </span><span class="it"><span class="content">Ruach
+36:27 I will put My Ruach within you. Then I will cause you to walk in My laws, so you will keep My rulings and do them.
 36:28 Then you will live in the land that I gave to your fathers. You will be My people and I will be your God.
 36:29 “So I will save you from all your uncleanness. I will call for the grain and make it plentiful. I will not bring a famine upon you.
 36:30 I will multiply the fruit of the tree and the produce of the field, so that you will no longer bear the disgrace of famine among the nations.
 36:31 When you remember your evil ways and your deeds that were not good, you will be disgusted with yourselves because of your iniquities and your abominations.
-36:32 Not for your sake will I do this”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-36:33 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+36:32 Not for your sake will I do this”—it is a declaration of Adonai—“let that be known to you. Be ashamed and confounded for your ways, house of Israel!”
+36:33 Thus says Adonai Elohim: “In the day that I pronounce you clean from all your iniquities, I will cause the cities to be inhabited and the ruins will be rebuilt.
 36:34 The land that was desolate will be tilled instead of being a wasteland in the sight of all that passed by.
 36:35 They will say, ‘This land that was a wasteland has become like the garden of Eden. The waste, desolate and ruined cities are fortified and inhabited.’
-36:36 Then the nations that are left all around you will know that I, </span><span class="it"><span class="sc"><span class="content">Adonai
-36:37 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-36:38 Like the holy flock, like the flock of Jerusalem during her </span><span class="it"><span class="content">moadim
-37:1 The hand of </span><span class="it"><span class="sc"><span class="content">Adonai
+36:36 Then the nations that are left all around you will know that I, Adonai, have rebuilt the ruined places, and replanted what was desolate. I, Adonai, have spoken it. So I will do it.”
+36:37 Thus says Adonai Elohim: “I will again be inquired of by the house of Israel, to do it for them—I will populate them with people like a flock.
+36:38 Like the holy flock, like the flock of Jerusalem during her moadim, so the waste cities will be filled with flocks of people. Then they will know that I am Adonai.”
+37:1 The hand of Adonai was upon me. The Ruach Adonai carried me out and set me down in the middle of the valley. It was full of bones.
 37:2 He led me all around them. Behold, there were very many on the floor of the valley. Behold, they were very dry.
-37:3 Then He said to me, “Son of man, can these bones live?” I answered, “</span><span class="it"><span class="sc"><span class="content">Adonai
-37:4 “Prophesy over these bones,” He said to me. “Say to them: ‘Dry bones, hear the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-37:5 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-37:6 I will attach tendons to you, bring flesh on you and cover you with skin. Then I will put breath in you. You will live. You will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+37:3 Then He said to me, “Son of man, can these bones live?” I answered, “Adonai Elohim, You know.”
+37:4 “Prophesy over these bones,” He said to me. “Say to them: ‘Dry bones, hear the word of Adonai!’
+37:5 Thus says Adonai Elohim to these bones: “Behold, I will cause Ruach to enter you, so you will live.
+37:6 I will attach tendons to you, bring flesh on you and cover you with skin. Then I will put breath in you. You will live. You will know that I am Adonai.”
 37:7 So I prophesied just as I was commanded. As I prophesied, there was a noise, and behold, an earthquake. Then the bones came together, bone to its bone.
 37:8 I saw, and behold, there were tendons on them, flesh came up and skin covered them above, but there was no breath in them.
-37:9 Then He said to me, “Prophesy to the </span><span class="it"><span class="content">Ruach
-37:10 So I prophesied just as He commanded me. The </span><span class="it"><span class="content">Ruach
+37:9 Then He said to me, “Prophesy to the Ruach. Prophesy, son of man, and say to the Ruach, thus says Adonai Elohim: ‘Come from the four winds, Ruach! Breathe upon these slain, that they may live.”
+37:10 So I prophesied just as He commanded me. The Ruach came into them and they lived. They stood up on their feet, a vast army.
 37:11 Then He said to me, “Son of man, these bones are the whole house of Israel. Behold, they say: ‘Our bones are dried up; our hope is lost; we are cut off—by ourselves.’
-37:12 Therefore prophesy and say to them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-37:13 You will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-37:14 I will put My </span><span class="it"><span class="content">Ruach
-37:15 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
-37:16 “You, son of man, take one stick and write on it, ‘For Judah’—for </span><span class="it"><span class="content">Bnei-Yisrael
+37:12 Therefore prophesy and say to them, thus says Adonai Elohim: ‘Behold, I will open your graves. I will bring you up out of your graves, My people. I will bring you back to the land of Israel.
+37:13 You will know that I am Adonai, when I have opened your graves and brought you up out of your graves, My people.
+37:14 I will put My Ruach in you and you will live. I will place you in your own land. Then you will know that I, Adonai, have spoken and that I have done it.” It is a declaration of Adonai.
+37:15 The word of Adonai came to me saying:
+37:16 “You, son of man, take one stick and write on it, ‘For Judah’—for Bnei-Yisrael joined with him. Then take another stick and write on it, ‘For Joseph’—the stick of Ephraim and all the house of Israel joined with him.
 37:17 Join them one to another for yourself, as one stick, so they may become one in your hand.
 37:18 “When the children of your people speak to you saying, ‘Won’t you tell us what you mean by these?’
-37:19 say to them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+37:19 say to them, thus says Adonai Elohim: ‘Behold, I will take the stick of Joseph—which is in the hand of Ephraim and the tribes of Israel joined with him—and I will put them together with the stick of Judah, and make them one stick. They will be one in My hand.’
 37:20 The sticks that you write on will be in your hand before their eyes.
-37:21 “Then say to them, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+37:21 “Then say to them, thus says Adonai Elohim: ‘Behold, I will take Bnei-Yisrael from among the nations, where they have gone. I will gather them from every side and bring them into their own land.
 37:22 I will make them one nation in the land, on the mountains of Israel, and one king will be king to them all. They will no longer be two nations and never again be divided into two kingdoms.
 37:23 They will never again be defiled with their idols, their detestable things or with any of their transgressions. I will save them out of all their dwellings in which they sinned. I will purify them. Then they will be My people and I will be their God.
 37:24 My servant David will be king over them. They will all have One Shepherd. They will walk in My ordinances and observe My rulings and do them.
 37:25 They will live in the land that I gave to My servant Jacob, where your ancestors lived. They will live there—they, their children and their children’s children, forever, and My servant David will be their prince forever.
-37:26 I will cut a covenant of </span><span class="it"><span class="content">shalom
+37:26 I will cut a covenant of shalom with them—it will be an everlasting covenant with them. I will give to them and multiply them. I will set up My Sanctuary among them forever.
 37:27 My dwelling-place will be over them. I will be their God and they will be My people.
-37:28 Then the nations will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-38:1 The word of </span><span class="it"><span class="sc"><span class="content">Adonai
+37:28 Then the nations will know that I am Adonai who sanctifies Israel, when My Sanctuary is in their midst forever.’”
+38:1 The word of Adonai came to me saying:
 38:2 “Son of man, set your face toward Gog of the land of Magog, chief prince of Meshech and Tubal. Prophesy against him
-38:3 and say, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+38:3 and say, thus says Adonai Elohim: ‘Behold, I am against you, Gog, chief prince of Meshech and Tubal.
 38:4 I will turn you about and put hooks into your jaws. I will bring you out, with all your army, horses and horsemen—all of them splendidly dressed—a vast assembly with breastplate and shield, all of them wielding swords.
 38:5 With them will be Persia, Cush and Put, all of them with shield and helmet,
 38:6 Gomer and all his troops, the house of Togarmah from the extreme north and all his troops—many peoples with you.
 38:7 “‘Be prepared, prepare yourself, you and all your company gathered around you. Be a guard for them.
 38:8 After many days you will be summoned. In the latter years, you will come against the land that has been brought back from the sword and regathered from many peoples on the mountains of Israel, which had been a continual waste. But they were brought out from the peoples. When all of them are dwelling securely,
 38:9 you will come up, you will come like a storm, you will be like a cloud covering the land—you and all your troops and many peoples with you.’”
-38:10 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+38:10 Thus says Adonai Elohim: “It will come to pass in that day that things will come into your heart and you will devise an evil plan.
 38:11 You will say, ‘I will go up against the land of unwalled villages. I will fall upon the quiet people who live securely, all of them living without walls, having no bars or gates,
 38:12 in order to seize spoil and carry off plunder, to turn your hand against the waste places now inhabited and against the people gathered from the nations, who have been acquiring livestock and property, who live in the center of the world.’
 38:13 “Sheba, Dedan and the merchants of Tarshish with all its young lions will say to you: ‘Have you come to seize spoil? Have you assembled your company to plunder? To carry away silver and gold, to take away livestock and property, to make off with immense spoils?’
-38:14 “Therefore, son of man, prophesy, say to Gog, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+38:14 “Therefore, son of man, prophesy, say to Gog, thus says Adonai Elohim: ‘In that day when My people Israel dwell safely, will you not know?
 38:15 You will come from your place out of the extreme north—you and many peoples with you, all of them riding on horses, a great company and mighty army.
 38:16 You will come up against My people Israel like a cloud covering the land. It will happen in the last days. I will bring you against My land, so that the nations may know Me—when I am sanctified through you, Gog, before their eyes.’”
-38:17 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-38:18 In that day, when Gog comes against the land of Israel”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+38:17 Thus says Adonai Elohim: “Are you the one that I spoke about in former times through My servants the prophets of Israel, who prophesied in those days for many years that I would bring you against them?
+38:18 In that day, when Gog comes against the land of Israel”—it is a declaration of Adonai—“My fury will rise up in My nostrils.
 38:19 In My jealousy and the fire of My wrath I have spoken! Surely in that day there will be a great earthquake in the land of Israel.
 38:20 The fish of the sea, the birds of the heavens, the beasts of the field, all creeping things that creep upon the ground and all humans upon the face of the earth will shake at My presence. The mountains will be thrown down. The steep places will fall. Every wall will fall to the ground.
-38:21 I will call for a sword against him throughout all my mountains”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+38:21 I will call for a sword against him throughout all my mountains”—it is a declaration of Adonai—“every man’s sword will be against his brother.
 38:22 I will punish him with pestilence and blood. I will pour out rain on him, on his troops and on the many peoples with him, a torrential rain, with hailstones, fire and brimstone.
-38:23 So I will magnify and sanctify Myself. I will make Myself known in the eyes of many nations, and they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-39:1 “You, son of man, prophesy against Gog and say, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+38:23 So I will magnify and sanctify Myself. I will make Myself known in the eyes of many nations, and they will know that I am Adonai.”
+39:1 “You, son of man, prophesy against Gog and say, thus says Adonai Elohim: ‘Behold, I am against you, Gog, chief prince of Meshech and Tubal.
 39:2 I will turn you around, drive you along, and lead you up from the extreme north. I will bring you upon the mountains of Israel.
 39:3 Then I will strike your bow from your left hand and make your arrows drop from your right hand.
 39:4 You will fall on the mountains of Israel—you, all your troops and the people that are with you. I will give you as food to all kinds of birds of prey and to the beasts of the field.
-39:5 You will fall on an open field, for I have spoken.’” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-39:6 “I will send fire on Magog and on those who live securely in the islands. Then they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-39:7 So I will make My holy Name known among My people Israel. I will not let My holy Name be profaned anymore. The nations will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-39:8 Behold, it is coming. It will be done”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+39:5 You will fall on an open field, for I have spoken.’” It is a declaration of Adonai.
+39:6 “I will send fire on Magog and on those who live securely in the islands. Then they will know that I am Adonai.
+39:7 So I will make My holy Name known among My people Israel. I will not let My holy Name be profaned anymore. The nations will know that I am Adonai, the Holy One in Israel.
+39:8 Behold, it is coming. It will be done”—it is a declaration of Adonai—“this is the day that I have spoken about.
 39:9 “The inhabitants of Israel’s cities will go out and kindle fires with the weapons—shields and breastplates, bows and arrows, war clubs and spears. They will make fires with them for seven years.
-39:10 They will not take wood out of the field or cut anything from the forests, for they will make fire from the weapons. They will plunder those who plundered them and loot those who looted them.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+39:10 They will not take wood out of the field or cut anything from the forests, for they will make fire from the weapons. They will plunder those who plundered them and loot those who looted them.” It is a declaration of Adonai.
 39:11 “On that day, I will give Gog a burial place there in Israel, the valley of the travelers east of the sea. It will block those who travel through, since they will bury Gog and all his multitude there. Then they will call it the valley of Hamon-Gog.
 39:12 The house of Israel will bury them for seven months, in order to cleanse the land.
-39:13 All the people of the land will bury them. It will be memorable for them, a day when I am glorified.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+39:13 All the people of the land will bury them. It will be memorable for them, a day when I am glorified.” It is a declaration of Adonai.
 39:14 “Men will be continually set apart to travel through the land and bury the travelers remaining on the face of the land, in order to cleanse it. At the end of seven months, they will make their search.
 39:15 When they travel through the land, if any sees a man’s bone, he will set up a sign by it, until the buriers have buried it in the valley of Hamon-gog.
 39:16 Hamonah will also be the name of the city. So they will cleanse the land.
-39:17 “You, son of man”—thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+39:17 “You, son of man”—thus says Adonai Elohim—“say to every kind of bird and to every beast of the field: ‘Assemble and come! Gather from all around to My sacrificial feast that I have prepared for you, a great sacrifice on the mountains of Israel. You will eat flesh and drink blood.
 39:18 You will eat the flesh of mighty men and drink the blood of the princes of the earth—as rams, lambs, goats, bulls—all of them fatlings of Bashan.
 39:19 So you will eat fat until you are gorged and you will drink blood until you are drunk, from My sacrificial feast that I have prepared for you.
-39:20 You will be filled at My table with horses and horsemen, with mighty men and all the warriors.’” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+39:20 You will be filled at My table with horses and horsemen, with mighty men and all the warriors.’” It is a declaration of Adonai.
 39:21 “I will put My glory among the nations. All the nations will see My judgment that I will execute and My hand that I will lay on them.
-39:22 The house of Israel will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
+39:22 The house of Israel will know that I am Adonai their God, from that day onward.
 39:23 The nations will know that the house of Israel went into exile for their iniquity, because they broke faith with Me. So I hid My face from them and gave them into the hand of their enemies. All of them fell by the sword.
 39:24 I dealt with them according to their uncleanness and their transgressions. I hid My face from them.”
-39:25 Therefore thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+39:25 Therefore thus says Adonai Elohim: “Now I will restore Jacob from exile, when I have compassion on the whole house of Israel. I will be zealous for My holy Name.
 39:26 They will bear their shame and all their disloyalty by which they broke faith with Me, when they were living securely in their land, with no one making them afraid.
 39:27 When I have brought them back from the peoples and have gathered them out of their enemies’ lands, I will be sanctified in them in the eyes of many nations.
-39:28 Then they will know that I am </span><span class="it"><span class="sc"><span class="content">Adonai
-39:29 I will never again hide My face from them. For I have poured out My </span><span class="it"><span class="content">Ruach
-40:1 In the twenty-fifth year of our exile, in the beginning of the year, in the tenth day of the month—in the fourteenth year after the city was struck down, on that very day—the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
+39:28 Then they will know that I am Adonai their God, since it was I who caused them to go into exile among the nations and I who will gather them back to their own land. I will never again leave them there.
+39:29 I will never again hide My face from them. For I have poured out My Ruach upon the house of Israel.” It is a declaration of Adonai.
+40:1 In the twenty-fifth year of our exile, in the beginning of the year, in the tenth day of the month—in the fourteenth year after the city was struck down, on that very day—the hand of Adonai was on me, and He brought me there.
 40:2 In visions God brought me to the land of Israel and set me down upon a very high mountain. On it, toward the south, was something like the construction of a city.
 40:3 He brought me there, and behold, there was a man whose appearance was like bronze. He had a linen cord in his hand and a measuring rod. He was standing in the gateway.
 40:4 The man said to me, “Son of man, see with your eyes, hear with your ears, set your heart on all that I show you—for I brought you here in order to show you—and report all that you see to the house of Israel.”
@@ -1055,8 +1055,8 @@
 40:42 There were four tables of hewn stone for the burnt offering, a cubit and a half long, a cubit and a half wide, and a cubit high. The instruments for the slaughter of the burnt offering and the sacrifice were laid on them.
 40:43 Hooks, a handbreadth long, were fastened in the House all around. The flesh of the offering was to be placed upon the tables.
 40:44 Outside the inner gate in the inner court were chambers for the singers, one of which was at the side of the north gate, facing south. The one at the side of the east gate faced north.
-40:45 He said to me, “This chamber that faces toward the south is for the </span><span class="it"><span class="content">kohanim
-40:46 The chamber that faces toward the north is for the </span><span class="it"><span class="content">kohanim
+40:45 He said to me, “This chamber that faces toward the south is for the kohanim who keep charge of the House.
+40:46 The chamber that faces toward the north is for the kohanim who keep charge of the altar. These are the sons of Zadok, those from the sons of Levi who come near to Adonai to minister to Him.”
 40:47 Then he measured the court. It was 100 cubits long and 100 cubits wide, a square. The altar was in front of the House.
 40:48 He brought me to the porch of the House. He measured each pillar of the porch, five cubits on this side and five cubits on that side. The width of the gate was three cubits on this side and three cubits on that side.
 40:49 The length of the porch was 20 cubits and the width 11 cubits. It was ascended by way of steps, where pillars stood, one on each side.
@@ -1077,11 +1077,11 @@
 41:15 When he measured the length of the building facing the separate area behind it, with its galleries on each side, it was 100 cubits. Now the inner Sanctuary and the porches of the court—
 41:16 the thresholds, the shuttered windows, and the galleries all around in three stories opposite the thresholds—were paneled with wood all around, from the ground up to the windows (even the windows were covered),
 41:17 over the space above the door, as far as the inner House, and on all the wall outside all around inside and outside, by measurement.
-41:18 It was made with </span><span class="it"><span class="content">cheruvim
+41:18 It was made with cheruvim and palm trees. A palm tree was between cheruv and cheruv. Every cheruv had two faces:
 41:19 the face of a man toward the palm tree on one side and the face of a young lion toward the palm tree on the other side. Thus was it made on all the House all around.
-41:20 The </span><span class="it"><span class="content">cheruvim
+41:20 The cheruvim and palm trees were made from the ground up to above the door and on the wall of the Temple.
 41:21 The Temple’s doorposts were square. Now the front of the Sanctuary had something resembling
-41:22 an altar—three cubits high and two cubits long, made of wood. Its corners, its base and its sides were also of wood. He said to me, “This is the table of the Presence of </span><span class="it"><span class="sc"><span class="content">Adonai
+41:22 an altar—three cubits high and two cubits long, made of wood. Its corners, its base and its sides were also of wood. He said to me, “This is the table of the Presence of Adonai.”
 41:23 The Temple and the inner Sanctuary each had double doors.
 41:24 The doors each had two turning leaves—two leaves for one door and two leaves for the other.
 41:25 Cheruvim and palm trees were made on them, on the doors of the Temple, just like those made on the walls. There were thick beams of wood on the face of the porch outside.
@@ -1098,8 +1098,8 @@
 42:10 In the thickness of the wall of the courtyard toward the east, in front of the separate area and in front of the building, there were chambers.
 42:11 The passageway in front of them were similar to the chambers on the north, as long and wide as them, with all their exits and similar arrangements and doors.
 42:12 Corresponding to the doorways of the chambers on the south, there was a doorway at the head of the passageway—a way directly in front of the wall toward the east, as one enters them.
-42:13 Then he said to me, “The north chambers and the south chambers, which are before the separate area, they are the holy chambers, where the </span><span class="it"><span class="content">kohanim
-42:14 Once the </span><span class="it"><span class="content">kohanim
+42:13 Then he said to me, “The north chambers and the south chambers, which are before the separate area, they are the holy chambers, where the kohanim who are near to Adonai eat the most holy things. There they will put the most holy things—the grain offering, the sin offering and the guilt offering—for the place is holy.
+42:14 Once the kohanim enter, they are not to go out of the holy place into the outer court without leaving there their garments in which they minister—for they are holy. They will put on other garments and approach the area for the people.”
 42:15 When he had finished measuring the inner House, he brought me out by way of the gate facing east and measured all around.
 42:16 When he measured the east side with the measuring rod, it was 500 rods, with the measuring rod round about.
 42:17 When he measured the north side, it was 500 rods by the measuring rod.
@@ -1109,106 +1109,106 @@
 43:1 Then he led me to the gate, the gate looking east,
 43:2 and behold, the glory of the God of Israel was coming from the east. His voice was like the sound of many waters. The earth was radiant with His glory.
 43:3 The appearance of the vision that I saw was like the vision that I saw when I came to destroy the city. The visions were like the vision that I saw by the river Chebar. So I fell on my face.
-43:4 Then the glory of </span><span class="it"><span class="sc"><span class="content">Adonai
-43:5 The </span><span class="it"><span class="content">Ruach
+43:4 Then the glory of Adonai came into the House by way of the gate facing the east.
+43:5 The Ruach took me up and brought me into the inner court. Then behold, the glory of Adonai filled the House.
 43:6 Then I heard someone speaking to me from the House, while a man was standing beside me.
-43:7 He said to me, “Son of man, this is the place of My throne, the place of the soles of My feet, where I will dwell in the midst of </span><span class="it"><span class="content">Bnei-Yisrael
+43:7 He said to me, “Son of man, this is the place of My throne, the place of the soles of My feet, where I will dwell in the midst of Bnei-Yisrael forever. The house of Israel will no longer defile My holy Name—neither they nor their kings—by their prostitution or by the corpses of their kings in their high places.
 43:8 Whenever they set their threshold next to My threshold and their doorpost next to My doorpost, with only a wall between Me and them, they defiled My holy Name by their abominations that they committed. So I have finished them off in My fury.
 43:9 Now let them put away their prostitution and the corpses of their kings, far from Me. Then I will dwell among them forever.
 43:10 “You, son of man, describe the House to the house of Israel, so they will be ashamed of their iniquities. Let them measure accurately.
 43:11 If they are ashamed of all they have done, sketch out the House for them, its layout, its exits and its entrances, its complete design, with all its ordinances and all its laws. Write it down in their sight, so they may observe its complete design and all its ordinances and do them.
-43:12 This is the </span><span class="it"><span class="content">Torah
+43:12 This is the Torah of the House: the whole territory around it on top of the mountain will be most holy. Behold, this is the Torah of the House.
 43:13 “These are the measurements of the altar by cubits (a cubit being a normal cubit plus a handbreadth). Its gutter will be a cubit deep and a cubit wide. Its rim will be one span surrounding the edge. This will be the base of the altar.
 43:14 From the base on the ground to the lower ledge will be two cubits and the width one cubit. From the smaller ledge to the larger ledge will be four cubits and the width a cubit.
 43:15 The altar hearth will be four cubits high. Four horns will project upward from the hearth.
 43:16 The hearth will be 12 cubits long by 12 wide, with four sides square.
 43:17 The ledge will be 14 cubits long and 14 wide with four sides square. The border surrounding it will be half a cubit and its bottom will be a cubit all around. Its steps will face east.”
-43:18 Then he said to me, “Son of man, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-43:19 Give a young bull for a sin offering to the Levitical </span><span class="it"><span class="content">kohanim
+43:18 Then he said to me, “Son of man, thus says Adonai Elohim: ‘These are the statutes for the altar on the day when they will construct it, in order to offer burnt offerings on it and to sprinkle blood on it.
+43:19 Give a young bull for a sin offering to the Levitical kohanim who are from the offspring of Zadok, who come near to Me to minister to Me’”—it is a declaration of Adonai.
 43:20 “You are to take some of its blood and put it on its four horns, on the four corners of the ledge and on the border around it. So you will purify it and make atonement for it.
 43:21 Take the bull of the sin offering and burn it in the appointed place of the House, outside the Sanctuary.
 43:22 “On the second day, offer a male goat without blemish as a sin offering. They will purify the altar as they purified it with the bull.
 43:23 When you have finished purifying it, offer a young bull without blemish and a ram out of the flock without blemish.
-43:24 Present them before </span><span class="it"><span class="sc"><span class="content">Adonai
+43:24 Present them before Adonai. The kohanim will cast salt upon them. They will offer them up as a burnt offering to Adonai.
 43:25 Every day for seven days, prepare a goat as a sin offering. They will prepare a young bull and a ram out of the flock, without blemish.
 43:26 They will make atonement for the altar and cleanse it for seven days. This is how they will consecrate it.
-43:27 When they have completed the days, from the eighth day and onward the </span><span class="it"><span class="content">kohanim
+43:27 When they have completed the days, from the eighth day and onward the kohanim will make your burnt offerings upon the altar as well as your fellowship offerings. Then I will accept you”—it is a declaration of Adonai.
 44:1 Then he brought me back to the outer gate of the Sanctuary looking east. It was shut.
-44:2  God of Israel has entered through it. So it is to be kept shut.
-44:3 Only the prince, since he is a prince, will sit there to eat bread before </span><span class="it"><span class="sc"><span class="content">Adonai
-44:4 Then he brought me by way of the north gate to the front of the House. I looked, and behold, the glory of </span><span class="it"><span class="sc"><span class="content">Adonai
-44:5 ’s House and all its laws. Set your heart to the entrance of the House, with all exits of the Sanctuary.
-44:6 Say to the rebellious, to the house of Israel, thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+44:2 Adonai said to me: “This gate is to be shut. It must not be opened. No one may enter through it, for Adonai God of Israel has entered through it. So it is to be kept shut.
+44:3 Only the prince, since he is a prince, will sit there to eat bread before Adonai. He will enter by way of the porch of the gate and go out the same way.”
+44:4 Then he brought me by way of the north gate to the front of the House. I looked, and behold, the glory of Adonai filled the House of Adonai. So I fell upon my face.
+44:5 Adonai said to me, “Son of man, set your heart, behold with your eyes and hear with your ears all that I say to you concerning all the ordinances of Adonai’s House and all its laws. Set your heart to the entrance of the House, with all exits of the Sanctuary.
+44:6 Say to the rebellious, to the house of Israel, thus says Adonai Elohim: ‘Enough of your abominations, house of Israel!
 44:7 You brought in foreigners, uncircumcised in heart and uncircumcised in flesh, to be in My Sanctuary, to profane it—My House—when you offer My bread, the fat and the blood. They have broken My covenant, to add to all your abominations.
 44:8 You have not kept charge of My holy things, but you have set keepers of My service in My Sanctuary to please yourselves.’”
-44:9 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+44:9 Thus says Adonai Elohim: “No foreigner, uncircumcised in heart and uncircumcised in flesh, may enter My Sanctuary, not any foreigner who is among Bnei-Yisrael.
 44:10 For the Levites who went far from Me, when Israel went astray after their idols, will bear their iniquity.
 44:11 Yet they will be ministers in My Sanctuary, overseers of the gates of the House and ministering in the House. They will slaughter the burnt offering and the sacrifice for the people. They will stand before them to minister to them.
-44:12 Because they ministered to them before their idols, and became a stumbling block of iniquity to the house of Israel, therefore I have lifted up My hand against them”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-44:13 They will not come near to Me, to minister to Me as </span><span class="it"><span class="content">kohanim
+44:12 Because they ministered to them before their idols, and became a stumbling block of iniquity to the house of Israel, therefore I have lifted up My hand against them”—it is a declaration of Adonai. “They will bear their iniquity.
+44:13 They will not come near to Me, to minister to Me as kohanim, nor come near to any of My holy things, to the things that are most holy. They will bear their shame and their abominations, which they have committed.
 44:14 “Yet I will appoint them to keep charge of the House, for all its service and for all that will be done in it.
-44:15 So the Levitical </span><span class="it"><span class="content">kohanim
+44:15 So the Levitical kohanim, the sons of Zadok who kept charge of My Sanctuary when Bnei-Yisrael wandered from Me, will draw near to Me to minister to Me. They will stand before Me to offer Me the fat and the blood”—it is declaration of Adonai.
 44:16 “They are ones who will enter My Sanctuary and draw near to My table to minister to Me. They will keep My charge.
 44:17 It will be that when they enter in at the gates of the inner court, they will be clothed with linen garments. No wool will come on them, while they minister in the gates of the inner court, and within.
 44:18 They will have linen turbans upon their heads and linen underclothes upon their loins; they will not wear anything that causes sweat.
 44:19 Before they go out to the outer court—to the outer courtyard to the people—they must take off their garments in which they minister and leave them in the holy chambers. They will put on other garments, so they do not consecrate the people while in their garments.
 44:20 They must not shave their heads or let their locks grow long, but must carefully trim the hair of their heads.
-44:21 No </span><span class="it"><span class="content">kohen
-44:22 None may take a widow or a divorced woman as his wife, for they must take virgins of the offspring of the house of Israel or a widow who is the widow of a </span><span class="it"><span class="content">kohen
+44:21 No kohen may drink wine before entering the inner court.
+44:22 None may take a widow or a divorced woman as his wife, for they must take virgins of the offspring of the house of Israel or a widow who is the widow of a kohen.
 44:23 “They will teach My people the difference between the holy and the common and explain to them the difference between the unclean and the clean.
-44:24 In a lawsuit, they will stand to judge, and judge in accordance with My ordinances. They will keep My laws and My statutes in all My </span><span class="it"><span class="content">moadim
+44:24 In a lawsuit, they will stand to judge, and judge in accordance with My ordinances. They will keep My laws and My statutes in all My moadim and keep My Shabbatot holy.
 44:25 They must not come near a dead person to defile themselves—only for a father, mother, son, daughter, brother or sister who had no husband may they defile themselves.
 44:26 After he is cleansed, they will count seven days for him.
-44:27 On the day he goes into the Sanctuary, into the inner court to minister in the Sanctuary, he is to offer his sin offering.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+44:27 On the day he goes into the Sanctuary, into the inner court to minister in the Sanctuary, he is to offer his sin offering.” It is a declaration of Adonai.
 44:28 “It will be an inheritance for them. I am their inheritance. Do not give them any possession in Israel for I am their possession.
 44:29 They will eat the grain offering, the sin offering and the guilt offering. Every devoted thing in Israel will be theirs.
-44:30 The first of all the firstfruits of everything and every offering of every kind from all your offerings will belong to the ­</span><span class="it"><span class="content">kohanim
-44:31 The </span><span class="it"><span class="content">kohanim
-45:1 “When you allot the land for inheritance, set apart an offering to </span><span class="it"><span class="sc"><span class="content">Adonai
+44:30 The first of all the firstfruits of everything and every offering of every kind from all your offerings will belong to the ­kohanim. You will also give the kohen the first of your dough, to make a blessing to rest on your house.
+44:31 The kohanim may not eat any carcass, whether bird or beast, that dies of itself or is torn.”
+45:1 “When you allot the land for inheritance, set apart an offering to Adonai, a holy portion of the land. The length will be 25,000 and the width will be 10,000. It will be holy within all its surrounding borders.
 45:2 Out of this, there will be the Holy Place, 500 long by 500 wide, square all around, and 50 cubits for the open land surrounding it.
 45:3 From this area you are to measure a length of 25,000 and a width of 10,000, in which will be the Sanctuary, which is most holy.
-45:4 It is to be the holy portion of the land, for the </span><span class="it"><span class="content">kohanim
+45:4 It is to be the holy portion of the land, for the kohanim ministering in the Sanctuary, who draw near to serve Adonai. It will be a place for their houses as well as a place consecrated for the Sanctuary.
 45:5 An area 25,000 long by 10,000 wide will be for the Levites, the ministers of the House. It will be a possession for themselves—20 chambers.
 45:6 “You will give the city possession of an area 5,000 wide by 25,000 long, alongside the offering of the holy allotment. It will be for the whole house of Israel.
 45:7 “The prince will have a portion on either side of the holy allotment and the city’s property, adjacent to the holy offering and the city’s property, on the west side westward and on the east side eastward. Its length will correspond to one of the tribal portions, from the western boundary to the eastern boundary.
 45:8 It will be land for him as a possession in Israel. My princes will no longer oppress My people. They will give land to the house of Israel according to their tribes.”
-45:9 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+45:9 Thus says Adonai Elohim: “Let it be enough for you, princes of Israel. Get rid of violence and destruction, execute justice and righteousness, take away your oppression from My people”—it is a declaration of Adonai.
 45:10 “You are to have just balances, an honest dry measure and an honest liquid measure.
 45:11 The dry and liquid measure will be of a uniform measure: the bath will contain a tenth part of a homer, and the ephah a tenth part of a homer; the standard measure will be the homer.
 45:12 The shekel will be 20 gerahs; 20 plus 25 plus 15 shekels will be your mina.
 45:13 “This is the offering that you are to set apart: a sixth of an ephah out of a homer of wheat, a sixth of an ephah out of a homer of barley,
 45:14 along with the set portion of oil—a bath of oil—as the tithe of the bath for each kor, which is ten baths (or a homer, since ten baths are a homer),
-45:15 and one lamb of the flock out of 200, from the well-watered pastures of Israel. These are for the grain offering, burnt offering and fellowship offerings, to make atonement for them.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+45:15 and one lamb of the flock out of 200, from the well-watered pastures of Israel. These are for the grain offering, burnt offering and fellowship offerings, to make atonement for them.” It is a declaration of Adonai.
 45:16 “All the people of the land must give this contribution to the prince in Israel.
-45:17 It will be the prince’s role to give the burnt offerings, grain offerings and drink offerings at the feasts, New Moons and </span><span class="it"><span class="content">Shabbatot
-45:18 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-45:19 The </span><span class="it"><span class="content">kohen
+45:17 It will be the prince’s role to give the burnt offerings, grain offerings and drink offerings at the feasts, New Moons and Shabbatot, in all the moadim of the house of Israel. He will prepare the sin offering, the meal offering, the burnt offering and the fellowship offerings, to make atonement for the house of Israel.”
+45:18 Thus says Adonai Elohim: “In the first month, in the first day of the month, take a young bull without blemish and purify the Sanctuary.
+45:19 The kohen will take some of the blood of the sin offering and put it upon the doorposts of the House and upon the four corners of the ledge of the altar and upon the posts of the gate of the inner court.
 45:20 So you will do on the seventh day of the month for everyone who sins unintentionally or through ignorance. So you will make atonement for the House.
-45:21 “In the first month, on the fourteenth day of the month, you will have the Passover, a feast of seven days when </span><span class="it"><span class="content">matzah
+45:21 “In the first month, on the fourteenth day of the month, you will have the Passover, a feast of seven days when matzah will be eaten.
 45:22 On that day the prince will prepare a bull as a sin offering for himself and for all the people of the land.
-45:23 He will prepare a burnt offering to </span><span class="it"><span class="sc"><span class="content">Adonai
+45:23 He will prepare a burnt offering to Adonai for the seven days of the feast—seven bulls and seven rams without blemish daily for seven days and a male goat daily for a sin offering.
 45:24 He will prepare as a grain offering, an ephah for a bull, an ephah for a ram and a hin of oil for each ephah.
 45:25 He will do this in the seventh month, on the fifteenth day of the month, during the Feast, for seven days, for sin offering as well as burnt offering, grain offering as well as oil.”
-46:1 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-46:2 The prince will enter by way of the porch of the gate from outside, and stand by the post of the gate. Then the </span><span class="it"><span class="content">kohanim
-46:3 The people of the land will worship at the door of that gate before </span><span class="it"><span class="sc"><span class="content">Adonai
-46:4 “The burnt offering that the prince offers to </span><span class="it"><span class="sc"><span class="content">Adonai
+46:1 Thus says Adonai Elohim: “The gate of the inner court that faces the east will be shut for the six working days. On Yom Shabbat it will be opened and in the day of the New Moon it will be opened.
+46:2 The prince will enter by way of the porch of the gate from outside, and stand by the post of the gate. Then the kohanim will prepare his burnt offering and his fellowship offerings. He will worship at the threshold of the gate, and then go out. The gate will not be shut until the evening.
+46:3 The people of the land will worship at the door of that gate before Adonai on Shabbatot and New Moons.
+46:4 “The burnt offering that the prince offers to Adonai on Yom Shabbat will be six lambs without blemish and a ram without blemish.
 46:5 The grain offering will be an ephah for the ram. The grain offering for the lambs will be a gift of his hand and a hin of oil for an ephah.
 46:6 On the day of the New Moon it will be a young bull without blemish, six lambs and a ram—they must be without blemish.
 46:7 He will prepare a grain offering, an ephah for the bull and an ephah for the ram, for the lambs whatever his hand may reach and a hin of oil for an ephah.
 46:8 When the prince enters, he will enter by way of the porch of the gate and he will also exit by that way.
-46:9 When the people of the land come before </span><span class="it"><span class="sc"><span class="content">Adonai
+46:9 When the people of the land come before Adonai at the moadim, whoever enters by way of the north gate to worship will exit by way of the south gate. Whoever enters by way of the south gate must exit by way of north gate. He should not return by the way of the gate where he came in, since he must exit straight ahead.
 46:10 When they enter, the prince will come in among them. When they go out, they will go out together.
-46:11 “At the feasts and the </span><span class="it"><span class="content">moadim
-46:12 Now if the prince prepares a freewill offering, burnt offering or fellowship offerings as a freewill offering to </span><span class="it"><span class="sc"><span class="content">Adonai
-46:13 “You are to prepare a lamb of the first year, without blemish, for a burnt offering to </span><span class="it"><span class="sc"><span class="content">Adonai
-46:14 Also you will prepare a grain offering with it morning by morning, a sixth of an ephah and a third of a hin of oil, to moisten the fine flour—a grain offering to </span><span class="it"><span class="sc"><span class="content">Adonai
+46:11 “At the feasts and the moadim, the grain offering will be an ephah for a bull and an ephah for a ram, and for the lambs a gift of his hand and a hin of oil for an ephah.
+46:12 Now if the prince prepares a freewill offering, burnt offering or fellowship offerings as a freewill offering to Adonai, the gate for him facing east must be opened for him. Then he will prepare his burnt offering and his fellowship offerings as he does on Yom Shabbat. Then he will go out. After he exits, the gate should be shut.
+46:13 “You are to prepare a lamb of the first year, without blemish, for a burnt offering to Adonai daily—morning by morning you are to prepare it.
+46:14 Also you will prepare a grain offering with it morning by morning, a sixth of an ephah and a third of a hin of oil, to moisten the fine flour—a grain offering to Adonai continually. It is perpetual statute.
 46:15 They will prepare the lamb, the grain offering and the oil, morning by morning, for a continual burnt offering.”
-46:16 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+46:16 Thus says Adonai Elohim: “If the prince gives a gift to any of his sons as his inheritance, it will belong to his sons. It will be their possession by inheritance.
 46:17 But if he gives of his inheritance as a gift to one of his servants, it will be his until the year of liberty, when it will revert to the prince. His inheritance will belong to his sons.
 46:18 The prince must not take from the people’s inheritance, evicting them wrongfully out of their property. He must give inheritance to his sons out of his own property, so that My people will not be displaced, anyone from his own property.”
-46:19 Then he brought me through the entrance that was at the side of the gate, into the holy chambers for the </span><span class="it"><span class="content">kohanim
-46:20 He said to me, “This is the place where the </span><span class="it"><span class="content">kohanim
+46:19 Then he brought me through the entrance that was at the side of the gate, into the holy chambers for the kohanim, looking north. Behold, there was a place at the far western end.
+46:20 He said to me, “This is the place where the kohanim will boil the guilt offering and the sin offering, where they will bake the grain offering, so they do not bring them into the outer court, to consecrate the people.”
 46:21 Then he brought me out to the outer courtyard and led me past the four corners of the courtyard. Behold, in every corner of the courtyard there was another courtyard.
 46:22 In the four corners of the courtyard there were enclosed courts, 40 cubits long by 30 wide—these four in the corners had the same size.
 46:23 There was a row of masonry surrounding them, surrounding the four. Boiling places were built under the surrounding rows.
@@ -1225,7 +1225,7 @@
 47:10 Fishermen will stand by it; from En-gedi to En-eglaim, it will be a place for spreading of nets. Their fish will be of many different kinds—like the fish of the Great Sea, a huge quantity.
 47:11 Its swamps and marshes will not become fresh; they will be set aside for salt.
 47:12 On the river, on its bank, on this side and that side, will grow every kind of tree for food. Its leaf will not wither; its fruit will not fail; it will bear new fruit every month, because its water flows out from the Sanctuary. Its fruit will be for food and its leaf will be for healing.”
-47:13 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+47:13 Thus says Adonai Elohim, “This will be the border, by which you will divide the land for inheritance according to the twelve tribes of Israel, Joseph receiving two portions.
 47:14 You will inherit it, each one like another, as I lifted My hand to give to your fathers. So this land will fall to you as an inheritance.
 47:15 “This will be the boundary of the land: on the north side, from the Great Sea, by way of Hethlon, to the entrance of Zedad—
 47:16 Hamath, Berothah, Sibraim, which is between the border of Damascus and the border of Hamath, as far as Hazer-hatticon, which is on the border of Hauran.
@@ -1234,8 +1234,8 @@
 47:19 The south side southward will be from Tamar as far as the waters of Meriboth-kadesh, to the Wadi of Egypt and to the Great Sea. This will be the southern side toward the south.
 47:20 The west side will be the Great Sea, from the southern border as far as the front of the entrance of Hamath. This will be the western side.
 47:21 You are to divide this land for yourselves to the tribes of Israel.
-47:22 So you are to divide it by lot for an inheritance for you and for the outsiders who dwell among you, whoever bears children among you. They will be to you like the native-born of </span><span class="it"><span class="content">Bnei-Yisrael
-47:23 In whatever tribe the outsider lives, there you will give him his inheritance.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+47:22 So you are to divide it by lot for an inheritance for you and for the outsiders who dwell among you, whoever bears children among you. They will be to you like the native-born of Bnei-Yisrael; they will be allotted an inheritance along with you among the tribes of Israel.
+47:23 In whatever tribe the outsider lives, there you will give him his inheritance.” It is a declaration of Adonai.
 48:1 “Now these are the names of the tribes: Dan’s portion will be from the northern frontier, beside the way of Hethlon to the entrance of Hamath, Hazar-enan at the northern border of Damascus, beside Hamath, and from eastern side to the sea.
 48:2 Next to the territory of Dan, from the east side to the west will be Asher’s one,
 48:3 Next to the territory of Asher, from the east side to the west will be Naphtali’s one.
@@ -1244,12 +1244,12 @@
 48:6 Next to the territory of Ephraim, from the east side to the west, will be Reuben’s one.
 48:7 Next to the territory of Reuben, from the east side to the west, will be Judah’s one.
 48:8 By Judah’s border, from the east side to the west, will be the contribution which you will set aside, 25,000 cubits in width and in length like one of the portions, from the east side to the west. The Sanctuary will be in the midst of it.
-48:9 The allotment that you will set apart to </span><span class="it"><span class="sc"><span class="content">Adonai
-48:10 The holy allotment will be apportioned for these—for the </span><span class="it"><span class="content">kohanim
-48:11 The sanctified portion will be for the </span><span class="it"><span class="content">kohanim
+48:9 The allotment that you will set apart to Adonai will be 25,000 in length and 10,000 in width.
+48:10 The holy allotment will be apportioned for these—for the kohanim. Toward the north it will be 25,000 cubits and toward the west 10,000 in width, toward the east 10,000 in width and toward the south 25,000 in length. Adonai’s Sanctuary will be in the midst of it.
+48:11 The sanctified portion will be for the kohanim of the sons of Zadok, who kept My charge and did not go astray as the Levites went astray when Bnei-Yisrael went astray.
 48:12 It will be for them a portion set apart from the offering of the land, most holy, by the border of the Levites.
-48:13 Alongside the border of the </span><span class="it"><span class="content">kohanim
-48:14 They must not sell or exchange any of it or transfer the choice portion of the land, for it is holy to </span><span class="it"><span class="sc"><span class="content">Adonai
+48:13 Alongside the border of the kohanim, the Levites will have 25,000 in length and 10,000 in width. The entire length will be 25,000 and the width 10,000.
+48:14 They must not sell or exchange any of it or transfer the choice portion of the land, for it is holy to Adonai.
 48:15 The 5,000 that remain in the width, in front of the 25,000 thousand, will be for common use, for the city, for living and for pastureland. “The city will be in the midst of it,
 48:16 and will have these measurements: the north side; 4,500; the south side 4,500; the east side, 4,500; and the west side, 4,500.
 48:17 The city will have open land: toward the north 250, toward the south 250, toward the east 250, and toward the west 250.
@@ -1264,10 +1264,10 @@
 48:26 Next to the territory of Issachar, from the east side to the west, will be Zebulon’s one.
 48:27 Next to the territory of Zebulun, from the east side to the west, will be Gad’s one.
 48:28 Next to the territory of Gad, at the south side southward, the border will be from Tamar to the waters of Meribath-kadesh, to the Wadi, to the Great Sea.
-48:29 This is the land that you will divide by lot to the tribes of Israel as an inheritance, and these are their portions.” It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+48:29 This is the land that you will divide by lot to the tribes of Israel as an inheritance, and these are their portions.” It is a declaration of Adonai.
 48:30 “These are the exits of the city: on the north side, 4,500 by measure,
 48:31 will be the gates of the city named after of the tribes of Israel—three gates northward—the Reuben Gate, one; the Judah Gate, one; the Levi Gate, one.
 48:32 At the east side, 4,500, will be three gates: the Joseph Gate, one; the Benjamin Gate, one; Dan Gate, one.
 48:33 At the south side, 4,500 by measure, will be three gates: the Simeon Gate, one; the Issachar Gate, one; the Zebulun Gate, one.
 48:34 At the west side, 4,500, with their three gates: the Gad Gate, one; the Asher Gate, one; the Naphtali Gate, one.
-48:35 It will be 18,000 cubits all around. “From that day on, the name of the city will be: ‘</span><span class="it"><span class="sc"><span class="content">Adonai
+48:35 It will be 18,000 cubits all around. “From that day on, the name of the city will be: ‘Adonai Is There.’”
