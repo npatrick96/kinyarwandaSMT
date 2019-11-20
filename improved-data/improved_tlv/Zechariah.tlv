@@ -42,25 +42,24 @@
 3:8 Listen well, Joshua kohen gadol , both you and your companions seated before you, because they are men who are a sign—behold, I will bring forth My servant the Branch.
 3:9 For behold! The stone I have laid before Joshua is one stone with seven facets. On it I will engrave an inscription,” declares Adonai-Tzva’ot, “that I will remove the iniquity of this land in one day.
 3:10 In that day,” declares Adonai-Tzva’ot, “every man will invite his neighbor to sit under the vine and under the fig tree.’”
-3:10 In that day,” declares </span><span class="it"><span class="sc"><span class="content">Adonai
 4:1 Then the angel who had been speaking with me returned and woke me—like a man who is wakened from his sleep.
-4:2 He asked me, ‘What do you see?’ I replied, ‘Behold, I see a solid gold </span><span class="it"><span class="content">menorah
+4:2 He asked me, ‘What do you see?’ I replied, ‘Behold, I see a solid gold menorah with its bowl at the top of it, and its seven lamps on it with seven pipes for the lamps that are on the top of it.
 4:3 Also two olive trees are by it, one on the right side of the bowl and the other on the left side of it.’
 4:4 Then I responded by saying to the angel speaking with me, ‘What are these, my lord?’
 4:5 The angel who spoke with me responded by asking me, ‘You do not know what these are?’ I replied, ‘No, my lord.’
-4:6 Then he responded to me by saying, ‘This is the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+4:6 Then he responded to me by saying, ‘This is the word of Adonai to Zerubbabel saying: “Not by might, nor by power, but by My Ruach!” says Adonai-Tzva’ot.
 4:7 “What are you, great mountain? Before Zerubbabel you will become a plain. He will bring out the capstone with shouts of “Grace, grace” to it.’”
-4:8 Again the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-4:9 “The hands of Zerubbabel have laid the foundation of this House. His hands will also finish it. Then you will know that </span><span class="it"><span class="sc"><span class="content">Adonai
-4:10 For who despises the day of small things? These seven—which are the eyes of </span><span class="it"><span class="sc"><span class="content">Adonai
-4:11 Then I responded by asking him, “What are these two olive trees, on the right and on the left of the </span><span class="it"><span class="content">menorah
+4:8 Again the word of Adonai came to me saying:
+4:9 “The hands of Zerubbabel have laid the foundation of this House. His hands will also finish it. Then you will know that Adonai-Tzva’ot has sent me to you.
+4:10 For who despises the day of small things? These seven—which are the eyes of Adonai that run back and forth throughout the whole earth—will rejoice when they see the plumb line in Zerubbabel’s hand.”
+4:11 Then I responded by asking him, “What are these two olive trees, on the right and on the left of the menorah?”
 4:12 Again I asked him, “What are these two olive branches beside the two golden pipes that empty the golden oil out of them?”
 4:13 He said to me, “You do not know what these are?” I said, “No, my lord.”
 4:14 So he said, “These are the two anointed ones, who are standing by the Lord of the whole earth.”
 5:1 Once again I lifted up my eyes and behold, I saw a flying scroll!
 5:2 Then the angel asked me, “What do you see?” I replied, “I see a flying scroll twenty cubits long and ten cubits wide.”
 5:3 He said to me: “This is the curse that goes out over the face of the whole land: everyone who steals will be swept away from here according to it, and everyone who swears will be swept away from here according to it.”
-5:4 “I will send it out”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+5:4 “I will send it out”—it is a declaration of Adonai-Tzva’ot—“and it will enter into the house of the thief and into the house of the one who swears falsely by My Name and will reside inside his house destroying it, both its wood and its stones.”
 5:5 Then the angel speaking with me came forward, and said to me, “Now lift up your eyes and see what is appearing.”
 5:6 I asked, “What is it?” He replied, “This is the measuring basket that goes out.” He continued, “This is their eye in all the land.”
 5:7 Then behold, a lead cover was lifted and a woman was sitting in the middle of the measuring basket.
@@ -75,52 +74,52 @@
 6:5 The angel answered me saying, “These are the four winds of heaven that go forth from the presence of the Lord of all the earth.
 6:6 The chariot with the black horses is going to the land of the north and the white ones have gone out after them, but the dappled ones have gone out to the land of the south.”
 6:7 When the strong ones went out, they requested to go to walk throughout the earth. He said, “Go! Walk throughout the earth.” So they walked throughout the earth.”
-6:8 Then he called and spoke to me saying, ‘Look! Those going toward the land of the north have given rest to My </span><span class="it"><span class="content">Ruach
-6:9 And the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+6:8 Then he called and spoke to me saying, ‘Look! Those going toward the land of the north have given rest to My Ruach in the north country.’
+6:9 And the word of Adonai came to me saying:
 6:10 ‘Take from the exiles, from Heldai, Tobijah, and Jedaiah who have come from Babylon, and go the same day, go to the house of Josiah son of Zephaniah!
-6:11 Take silver and gold, make crowns and set on the head of Joshua son of Johozadak, the </span><span class="it"><span class="content">kohen gadol
-6:12 Then speak to him saying, “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-6:13 He will build the Temple of </span><span class="it"><span class="sc"><span class="content">Adonai
-6:14 The crowns will be in the Temple of </span><span class="it"><span class="sc"><span class="content">Adonai
-6:15 Those who are far off will come and build in the Temple of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:1 In the fourth year of King Darius, the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:2 Now Bethel sent Sarezer and Regem-melech together with his men to seek the favor of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:3 and to speak to the </span><span class="it"><span class="content">kohanim
-7:4 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:5 “Speak to all the people of the land and to the </span><span class="it"><span class="content">kohanim
+6:11 Take silver and gold, make crowns and set on the head of Joshua son of Johozadak, the kohen gadol .
+6:12 Then speak to him saying, “Thus says Adonai-Tzva’ot: Behold, a man whose Name is the Branch will branch out from his place and build the Temple of Adonai.
+6:13 He will build the Temple of Adonai. He will bear splendor and sit and rule on His throne. Thus He will be a kohen on His throne. So a counsel of shalom will be between them both.
+6:14 The crowns will be in the Temple of Adonai as a memorial to Helem, Tobijah and Jedaiah, and to Chen son of Zephaniah.
+6:15 Those who are far off will come and build in the Temple of Adonai.” Then you will know that Adonai-Tzva’ot has sent me to you. It will come to pass if you diligently obey the voice of Adonai your God.”
+7:1 In the fourth year of King Darius, the word of Adonai came to Zechariah on the fourth day of the ninth month, in Kislev.
+7:2 Now Bethel sent Sarezer and Regem-melech together with his men to seek the favor of Adonai,
+7:3 and to speak to the kohanim of the House of Adonai-Tzva’ot and to the prophets saying, “Should I mourn and consecrate myself in the fifth month as I have done for so many years?”
+7:4 Then the word of Adonai-Tzva’ot came to me saying:
+7:5 “Speak to all the people of the land and to the kohanim saying, ‘When you fasted and mourned in the fifth and in the seventh months for the past seventy years, did you really fast for Me?
 7:6 When you eat and drink, are you not eating and drinking for yourself?
-7:7 Are not these the words that </span><span class="it"><span class="sc"><span class="content">Adonai
-7:8 Again the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-7:9 “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+7:7 Are not these the words that Adonai proclaimed through the former prophets when Jerusalem with its surrounding cities were inhabited and prosperous, when the Negev and the lowland were inhabited?’”
+7:8 Again the word of Adonai came to Zechariah saying,
+7:9 “Thus says Adonai-Tzva’ot: ‘Administer true judgment and practice mercy and compassion each to his brother.
 7:10 Do not oppress the widow or the orphan, the outsider or the poor. Furthermore, do not let any of you devise evil against one another in your heart.’
 7:11 “But they refused to pay attention. They stubbornly turned their backs and stopped their ears from hearing.
-7:12 Indeed, they made their hearts as hard as flint preventing them from hearing the </span><span class="it"><span class="content">Torah
-7:13 It came about that just as He called and they did not listen, so they would call and I would not listen,” says </span><span class="it"><span class="sc"><span class="content">Adonai
+7:12 Indeed, they made their hearts as hard as flint preventing them from hearing the Torah or the words that Adonai-Tzva’ot sent by His Ruach through the former prophets. Consequently, great wrath came from Adonai-Tzva’ot.
+7:13 It came about that just as He called and they did not listen, so they would call and I would not listen,” says Adonai-Tzva’ot.
 7:14 ‘I scattered them with a whirlwind among all the nations they have not known. Thus the land was left so desolate behind them that no one passed through or returned, for they made the pleasant land desolate.’”
-8:1 Then the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-8:2 “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-8:3 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-8:4 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+8:1 Then the word of Adonai-Tzva’ot came saying:
+8:2 “Thus says Adonai-Tzva’ot, “I am exceedingly zealous for Zion, I am burning with jealousy for her.”
+8:3 Thus says Adonai, “I will return to Zion and dwell in the midst of Jerusalem. Then Jerusalem will be called the City of Truth and the mountain of Adonai-Tzva’ot will be called the Holy Mountain.”
+8:4 Thus says Adonai-Tzva’ot, “Once again old men and old women will sit in the streets of Jerusalem, each with his staff in his hand because of his age.
 8:5 The streets of the city will be full of boys and girls playing in its streets.”
-8:6 “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-8:7 “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+8:6 “Thus says Adonai-Tzva’ot, ‘It may seem difficult in the eyes of the remnant of this people in those days, but will it also be difficult in My eyes?’—it is a declaration of Adonai-Tzva’ot.
+8:7 “Thus says Adonai-Tzva’ot, ‘Behold, I will save My people from the land of the east and from the land of the west.
 8:8 I will bring them back and they will live in the midst of Jerusalem. They will be My people and I will be their God, in truth and righteousness.’
-8:9 “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-8:10 Before those days there were no wages for man or animal, nor was there any </span><span class="it"><span class="content">shalom
-8:11 But now I will not treat the remnant of this people as in the former days”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-8:12 “For there will be a sowing of </span><span class="it"><span class="content">shalom
+8:9 “Thus says Adonai-Tzva’ot, ‘Let your hands be strong—you who hear these words spoken by the prophets who were there the day the foundation of the House of Adonai-Tzva’ot was laid—so that the Temple may be rebuilt.
+8:10 Before those days there were no wages for man or animal, nor was there any shalom from adversity for those who came or went because I set every one against his neighbor.
+8:11 But now I will not treat the remnant of this people as in the former days”—it is a declaration of Adonai-Tzva’ot.
+8:12 “For there will be a sowing of shalom: the vine will yield its fruit, the ground will produce its increase, and the heavens will give their dew. I will cause the remnant of this people to inherit all these things.
 8:13 It will happen that just as you were a curse among the nations, house of Judah and house of Israel, so will I save you and you will be a blessing. Fear not! Let your hands be strong!’
-8:14 For thus says </span><span class="it"><span class="sc"><span class="content">Adonai
+8:14 For thus says Adonai-Tzva’ot, “Just as I determined to harm you when your fathers provoked Me to anger,” says Adonai-Tzva’ot, ‘and I did not relent,
 8:15 so I have again determined in these days to do good to Jerusalem and to the house of Judah. Fear not!
-8:16 These are the things that you are to do: speak the truth one to another; administer the judgment of truth and </span><span class="it"><span class="content">shalom
-8:17 do not let any of you devise evil in your hearts against your neighbor; and do not love false oaths, for I hate all these things,”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-8:18 Again the word of </span><span class="it"><span class="sc"><span class="content">Adonai
-8:19  “Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-8:20 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-8:21 The inhabitants of one city will go to another saying ‘Let us go to entreat the favor of </span><span class="it"><span class="sc"><span class="content">Adonai
-8:22 Indeed, many peoples and powerful nations will come to seek </span><span class="it"><span class="sc"><span class="content">Adonai
-8:23 Thus says </span><span class="it"><span class="sc"><span class="content">Adonai
-9:1 The burden of the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+8:16 These are the things that you are to do: speak the truth one to another; administer the judgment of truth and shalom in your gates;
+8:17 do not let any of you devise evil in your hearts against your neighbor; and do not love false oaths, for I hate all these things,”—it is a declaration of Adonai.
+8:18 Again the word of Adonai-Tzva’ot came saying:
+8:19  “Thus says Adonai-Tzva’ot, “The fast of the fourth, the fast of the fifth, the fast of the seventh and the fast of the tenth month will become joy, gladness and cheerful moadim. Therefore, love truth and shalom!’
+8:20 Thus says Adonai-Tzva’ot, “Peoples and the inhabitants of many cities will again come.
+8:21 The inhabitants of one city will go to another saying ‘Let us go to entreat the favor of Adonai and to seek Adonai-Tzva’ot. I also am going.’
+8:22 Indeed, many peoples and powerful nations will come to seek Adonai-Tzva’ot in Jerusalem, and to entreat the favor of Adonai.”
+8:23 Thus says Adonai-Tzva’ot, “In those days it will come to pass that ten men from every language of the nations will grasp the corner of the garment of a Jew saying, ‘Let us go with you, for we have heard that God is with you.’”
+9:1 The burden of the word of Adonai is against the land of Hadrach and will rest upon Damascus. For the eyes of men and all the tribes of Israel are toward Adonai—
 9:2 and also upon Hamath bordering it, and upon Tyre and Sidon, though they are very shrewd.
 9:3 Tyre built herself a fortress and heaped up silver like dust and fine gold like dirt in the streets.
 9:4 Behold, the Lord will impoverish her and destroy her power on the sea, while she will be devoured by fire.
@@ -129,26 +128,26 @@
 9:7 I will remove the blood from his mouth, forbidden food from between his teeth. Whoever is left will be a remnant for our God. He will be like a leader in Judah, and Ekron will be like a Jebusite.
 9:8 But I will camp around My House against marauding forces. No oppressor will overrun them again— for now I watch with My own eyes.
 9:9 Rejoice greatly, daughter of Zion! Shout, daughter of Jerusalem! Behold, your king is coming to you, a righteous one bringing salvation. He is lowly, riding on a donkey— on a colt, the foal of a donkey.
-9:10 I will banish chariots from Ephraim and horses from Jerusalem, and the war bow will be broken. He will speak </span><span class="it"><span class="content">shalom
+9:10 I will banish chariots from Ephraim and horses from Jerusalem, and the war bow will be broken. He will speak shalom to the nations. His rule will extend from sea to sea, from the River to the ends of the earth.
 9:11 As for you also, by the blood of your covenant, I will release your prisoners from the waterless Pit.
 9:12 Return to the stronghold, you prisoners of hope! Today I declare that I will restore twice as much to you.
 9:13 I will bend Judah as my bow and fill it with Ephraim. I will rouse your sons, O Zion against your sons, O Greece. I will wield you like a warrior’s sword.
-9:14 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-9:15  will defend them. They will consume and conquer with sling stones. They will drink and roar as with wine and be filled like a bowl, like the corners of the altar.
-9:16  their God will save them on that day as the flock of His people. They will be like gems of a crown sparkling over His land.
+9:14 Then Adonai will be seen over them as His arrow flashes like lightning. Adonai Elohim will blow the shofar and march in whirlwinds of the south.
+9:15 Adonai-Tzva’ot will defend them. They will consume and conquer with sling stones. They will drink and roar as with wine and be filled like a bowl, like the corners of the altar.
+9:16 Adonai their God will save them on that day as the flock of His people. They will be like gems of a crown sparkling over His land.
 9:17 How good and beautiful it will be! Grain will make the young men thrive and new wine the virgin women.”
-10:1 Ask </span><span class="it"><span class="sc"><span class="content">Adonai
+10:1 Ask Adonai for rain in spring! Adonai makes the storm clouds and will give rain showers and plants of the field to everyone.
 10:2 The idols utter deceit and diviners see lies. They relate false dreams and comfort in vain. Therefore the people wander like sheep, afflicted because there is no shepherd.
-10:3 My anger burns against the shepherds and I will punish the leaders. </span><span class="it"><span class="sc"><span class="content">Adonai
+10:3 My anger burns against the shepherds and I will punish the leaders. Adonai-Tzva’ot cares for His flock, the house of Judah. He will make them His valiant steed in battle.
 10:4 From Judah will come the cornerstone, from him the tent peg, from him the battle bow and from him every leader together.
-10:5 They will be like mighty men treading down muddy streets in war. They will fight, because </span><span class="it"><span class="sc"><span class="content">Adonai
-10:6 I will strengthen the house of Judah and save the house of Joseph. I will bring them back, for I have compassion on them. They will be as though I had never spurned them, for I am </span><span class="it"><span class="sc"><span class="content">Adonai
-10:7 The Ephraimites will be like a warrior. Their hearts will be glad as with wine. Their children will see and be glad. Their hearts will rejoice in </span><span class="it"><span class="sc"><span class="content">Adonai
+10:5 They will be like mighty men treading down muddy streets in war. They will fight, because Adonai is with them and will put horsemen to shame.
+10:6 I will strengthen the house of Judah and save the house of Joseph. I will bring them back, for I have compassion on them. They will be as though I had never spurned them, for I am Adonai their God and I will answer them!
+10:7 The Ephraimites will be like a warrior. Their hearts will be glad as with wine. Their children will see and be glad. Their hearts will rejoice in Adonai.
 10:8 I will signal for them and gather them. Surely I will redeem them and they will be as numerous as before.
 10:9 Though I scatter them among the peoples, they will remember Me in distant places. They and their children will survive and return.
 10:10 I will restore from the land of Egypt and gather them from Assyria. I will bring them into the land of Gilead and Lebanon till there is no room for them.
 10:11 He will cross the turbulent sea and calm its raging waves. All the depths of the Nile will dry up, the pride of Assyria brought down, the scepter of Egypt removed.
-10:12 So I will strengthen them in </span><span class="it"><span class="sc"><span class="content">Adonai
+10:12 So I will strengthen them in Adonai and they will walk in His Name. It is a declaration of Adonai.
 11:1 Open your gates, Lebanon— fire will devour your cedars!
 11:2 Wail, cypress tree! For the cedar has fallen. Those majestic ones are devastated. Wail, oaks of Bashan! For the thick forest is cut down!
 11:3 Listen to the wailing of the shepherds, for their glory is destroyed! Listen to the roaring of young lions, for Jordan’s thickets are ruined!
