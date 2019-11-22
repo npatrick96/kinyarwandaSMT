@@ -151,28 +151,28 @@
 11:1 Open your gates, Lebanon— fire will devour your cedars!
 11:2 Wail, cypress tree! For the cedar has fallen. Those majestic ones are devastated. Wail, oaks of Bashan! For the thick forest is cut down!
 11:3 Listen to the wailing of the shepherds, for their glory is destroyed! Listen to the roaring of young lions, for Jordan’s thickets are ruined!
-11:4 Thus said </span><span class="it"><span class="sc"><span class="content">Adonai
-11:5 Their buyers slay them and go unpunished. Those who sell them say, ‘Blessed be </span><span class="it"><span class="sc"><span class="content">Adonai
-11:6 I will no longer have compassion on the inhabitants of the land”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
+11:4 Thus said Adonai my God: “Shepherd the flock marked for slaughter!
+11:5 Their buyers slay them and go unpunished. Those who sell them say, ‘Blessed be Adonai, for I am rich!’ Their own shepherds do not spare them.
+11:6 I will no longer have compassion on the inhabitants of the land”—it is a declaration of Adonai. “Behold, I will hand everyone over to his neighbor and his king. They will devastate the land, and I will not deliver them from their hand.”
 11:7 So I pastured the flock for the slaughter, especially the afflicted of the flock. Then I took two staffs—one I called Favor and the other I called Union—and I pastured the flock.
 11:8 Next I disposed of the three shepherds in one month—for my soul was impatient with them and their soul also detested me.
 11:9 Then I said, “I will not shepherd you! Let the dying die, let the perishing perish, and let those who are left eat one another’s flesh!”
 11:10 So I took my staff called Favor and broke it to pieces, in order to break my covenant that I made with all people.
-11:11 It was broken on that day. The afflicted of the flock that were watching me knew that this was the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+11:11 It was broken on that day. The afflicted of the flock that were watching me knew that this was the word of Adonai.”
 11:12 Then I said to them, “If it seems good to you, pay me my wages, but if not, don’t bother!” So they weighed out my wages—30 pieces of silver.
-11:13 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+11:13 Then Adonai said to me, “Throw it to the potter—that exorbitant price at which they valued Me!” So I took the 30 pieces of silver and threw them into the House of Adonai, to the potter.
 11:14 Then I broke my second staff called Union, in order to break the brotherhood between Judah and Israel.
-11:15 Again </span><span class="it"><span class="sc"><span class="content">Adonai
+11:15 Again Adonai said to me, “Once more take up the equipment of a foolish shepherd!
 11:16 For behold, I am going to raise up a shepherd in the land who will not care for the dying, seek out the young or heal the injured or nourish the healthy. Instead he will eat the meat of the choice sheep, even tearing off their hoofs.”
 11:17 Woe to the worthless shepherd who deserts the flock! May a sword fell his arm and his right eye! May his arm be all withered and his right eye totally blinded!”
-12:1 The burden of the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+12:1 The burden of the word of Adonai concerning Israel. A declaration of Adonai, who stretched out the heavens, laid the foundation of the earth and formed the spirit of man within him:
 12:2 “Behold, I will make Jerusalem a cup of reeling to all the surrounding peoples when they besiege Jerusalem as well as Judah.
 12:3 Moreover, in that day I will make Jerusalem a massive stone for all the people. All who try to lift it will be cut to pieces. Nevertheless, all the nations of the earth will be gathered together against her.
-12:4 In that day”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-12:5 Then the leaders of Judah will say in their heart, ‘The inhabitants of Jerusalem are my strength through </span><span class="it"><span class="sc"><span class="content">Adonai
+12:4 In that day”—it is a declaration of Adonai—“I will strike every horse with confusion and its rider with madness. I will keep My eyes on the house of Judah but will blind every horse of the peoples.
+12:5 Then the leaders of Judah will say in their heart, ‘The inhabitants of Jerusalem are my strength through Adonai-Tzva’ot their God.”
 12:6 “In that day I will make the leaders of Judah like a firepot in a woodpile, like a burning torch among sheaves. They will devour on the right and on the left all the surrounding peoples, yet Jerusalem will remain in her place, in Jerusalem.
-12:7  also will save the tents of Judah first, so that the honor of the house of David and the honor of the inhabitants of Jerusalem will not exceed that of Judah.
-12:8 In that day </span><span class="it"><span class="sc"><span class="content">Adonai
+12:7 Adonai also will save the tents of Judah first, so that the honor of the house of David and the honor of the inhabitants of Jerusalem will not exceed that of Judah.
+12:8 In that day Adonai will defend the inhabitants of Jerusalem so that the weakest among them that day will be like David and the house of David will be like God—like the angel of Adonai before them.
 12:9 It will happen in that day that I will seek to destroy all the nations that come against Jerusalem.
 12:10 “Then I will pour out on the house of David and the inhabitants of Jerusalem a spirit of grace and supplication, when they will look toward Me whom they pierced. They will mourn for him as one mourns for an only son and grieve bitterly for him, as one grieves for a firstborn.
 12:11 In that day there will be a great mourning in Jerusalem, mourning like Hadad-rimmon in the valley of Megiddo.
@@ -180,32 +180,32 @@
 12:13 the clan of the house of Levi by itself and their wives by themselves, the clan of the Shimeites by itself and their wives by themselves.
 12:14 Each of the remaining clans will mourn by itself and their wives by themselves.”
 13:1 “In that day a spring will be opened to the house of David and to the inhabitants of Jerusalem to cleanse them from sin and impurity.
-13:2 It will happen in that day”—it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-13:3 If anyone still prophesies his father and his mother to whom he was born will say to him, ‘You cannot live because you tell lies in the Name of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:2 It will happen in that day”—it is a declaration of Adonai-Tzva’ot—“that I will erase the names of the idols from the land and they will no longer be remembered. Furthermore, I will remove the prophets and the unclean spirit from the land.
+13:3 If anyone still prophesies his father and his mother to whom he was born will say to him, ‘You cannot live because you tell lies in the Name of Adonai.’ When he prophesies, his own father and mother, the ones who bore him, will pierce him through.
 13:4 Therefore in that day each ‘prophet’ will be ashamed of his vision when he prophesies. He will no longer wear a hairy mantle in order to deceive
 13:5 but will say, ‘I am not a prophet. I am a farmer—I have been a bondservant from my youth.’
 13:6 Then someone will ask him, “What are these wounds between your hands?”—and he will answer, “Those that I received in the house of my friends.”
-13:7 Awake, O sword, against My shepherd, against the man who is My companion! It is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-13:8 Then it will happen —it is a declaration of </span><span class="it"><span class="sc"><span class="content">Adonai
-13:9 This third I will bring through the fire. I will refine them as silver is refined, and will test them as gold is tested. They will call on My Name and I will answer them. I will say, ‘They are My people,’ and they will answer, ‘</span><span class="it"><span class="sc"><span class="content">Adonai
-14:1 Behold, a day of </span><span class="it"><span class="sc"><span class="content">Adonai
+13:7 Awake, O sword, against My shepherd, against the man who is My companion! It is a declaration of Adonai-Tzva’ot. Strike the shepherd and the sheep will be scattered! I will turn My hand against the little ones.
+13:8 Then it will happen —it is a declaration of Adonai— that in the entire land two-thirds will be cut off and die, but a third will be left in it.
+13:9 This third I will bring through the fire. I will refine them as silver is refined, and will test them as gold is tested. They will call on My Name and I will answer them. I will say, ‘They are My people,’ and they will answer, ‘Adonai is my God.’
+14:1 Behold, a day of Adonai is coming when your plunder will be divided in your midst.
 14:2 I will gather all the nations against Jerusalem to wage war. The city shall be captured, the houses ransacked and the women ravished. Half of the city will be exiled but the remainder of the people will not be cut off from the city.
-14:3 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+14:3 Then Adonai will go forth and fight against those nations as He fights in a day of battle.
 14:4 In that day His feet will stand on the Mount of Olives which lies to the east of Jerusalem, and the Mount of Olives will be split in two from east to west, forming a huge valley. Half of the mountain will move toward the north and half of it toward the south.
-14:5 Then you will flee through My mountain valley because the mountain valley will reach to Azel. Yes, you will flee like you fled from the earthquake in the days of King Uzziah of Judah. Then </span><span class="it"><span class="sc"><span class="content">Adonai
+14:5 Then you will flee through My mountain valley because the mountain valley will reach to Azel. Yes, you will flee like you fled from the earthquake in the days of King Uzziah of Judah. Then Adonai my God will come and all the kedoshim with Him.
 14:6 In that day there will be no light, cold or frost.
-14:7 It will be a day known only to </span><span class="it"><span class="sc"><span class="content">Adonai
+14:7 It will be a day known only to Adonai, neither day nor night—even in the evening time there will be light.
 14:8 Moreover, in that day living waters will flow from Jerusalem, half toward the eastern sea and half toward the western sea, both in the summer and in the winter.
-14:9  will be Echad and His Name Echad.
+14:9 Adonai will then be King over all the earth. In that day Adonai will be Echad and His Name Echad.
 14:10 The whole land, from Geba to Rimmon south of Jerusalem, will become like the Arabah. Jerusalem will be raised up and occupy her place, from the Benjamin Gate to the place of the First Gate, to the Corner Gate, and from the Tower of Hananel to the king’s winepresses.
 14:11 People will dwell in her, and no longer will there be a ban of destruction—Jerusalem will live in security.
-14:12 Now this is the plague with which </span><span class="it"><span class="sc"><span class="content">Adonai
-14:13 It will happen in that day that a great panic from </span><span class="it"><span class="sc"><span class="content">Adonai
+14:12 Now this is the plague with which Adonai will strike all the peoples that wage war against Jerusalem: their flesh will rot while they are standing on their feet; their eyes will rot in their sockets; and their tongues will rot in their mouths.
+14:13 It will happen in that day that a great panic from Adonai will be among them. Each person will seize the hand of his neighbor and they will attack each other.
 14:14 Even Judah will fight at Jerusalem. The wealth of all the surrounding peoples will be gathered together—an abundance of gold, silver and apparel.
 14:15 A similar plague will strike the horse, the mule, the camel, the donkey and all the animals in that camp.
-14:16 Then all the survivors from all the nations that attacked Jerusalem will go up from year to year to worship the King, </span><span class="it"><span class="sc"><span class="content">Adonai
-14:17 Furthermore, if any of the nations on earth do not go up to Jerusalem to worship the King, </span><span class="it"><span class="sc"><span class="content">Adonai
-14:18 If the Egyptians do not go up and celebrate, they will have no rain. Instead, there will be the plague that </span><span class="it"><span class="sc"><span class="content">Adonai
-14:19 This will be the punishment of Egypt and the punishment of all the nations that do not go up to celebrate </span><span class="it"><span class="content">Sukkot
-14:20 In that day “Holy to </span><span class="it"><span class="sc"><span class="content">Adonai
-14:21 In fact every pot in Jerusalem and in Judah will be Holy to </span><span class="it"><span class="sc"><span class="content">Adonai
+14:16 Then all the survivors from all the nations that attacked Jerusalem will go up from year to year to worship the King, Adonai-Tzva’ot, and to celebrate Sukkot.
+14:17 Furthermore, if any of the nations on earth do not go up to Jerusalem to worship the King, Adonai-Tzva’ot, they will have no rain.
+14:18 If the Egyptians do not go up and celebrate, they will have no rain. Instead, there will be the plague that Adonai will inflict on the nations that do not go up to celebrate Sukkot.
+14:19 This will be the punishment of Egypt and the punishment of all the nations that do not go up to celebrate Sukkot.
+14:20 In that day “Holy to Adonai” will be inscribed on the bells of the horses and the pots in House of Adonai will be like the sacred bowls in front of the altar.
+14:21 In fact every pot in Jerusalem and in Judah will be Holy to Adonai-Tzva’ot, so that everyone who comes to sacrifice will take them, and cook in them. In that day there will no longer be a Canaanite in the House of Adonai-Tzva’ot.
