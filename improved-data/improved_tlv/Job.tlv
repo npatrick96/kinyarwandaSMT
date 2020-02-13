@@ -103,14 +103,14 @@
 5:21 You will be hidden from the lash of the tongue, and not fear when violence comes.
 5:22 You will laugh at violence and famine, and will not fear the beasts of the earth.
 5:23 For you will have a covenant with the stones of the field, and the beasts of the field will be at peace with you.
-5:24 You will know </span><span class="it"><span class="content">shalom
+5:24 You will know shalom in your tent, and you will take stock of your home and find nothing missing.
 5:25 “You will know that your descendants will be numerous your offspring like the grass of the earth.
 5:26 You will come to the grave in vigor, like sheaves of grain in its season.
 5:27 Behold, we have investigated this— it is true. Hear it, and apply it to yourself!”
 6:1 Job responded and said:
 6:2 “If only my grief could be weighed and my calamity placed on the scales.
 6:3 For it outweighs the sands of the sea; that is why my words have been rash.
-6:4 For the arrows of </span><span class="it"><span class="content">Shaddai
+6:4 For the arrows of Shaddai are in me, my spirit drinks in their poison; God’s terrors line up against me.
 6:5 Does a wild donkey bray over fresh grass or an ox bellow over his fodder?
 6:6 Is something bland eaten without salt, is there taste in the white of an egg?
 6:7 My soul refuses to touch them; they are like sickening food to me.
@@ -145,7 +145,7 @@
 7:6 My days fly faster than a weaver’s shuttle and come to an end without hope.
 7:7 Remember, my life is but a breath; my eyes will not see goodness again!
 7:8 The eye that sees me now will see me no more; your eyes will be on me, but I will be no more.
-7:9 As a cloud vanishes and is gone, so one descending into </span><span class="it"><span class="content">Sheol
+7:9 As a cloud vanishes and is gone, so one descending into Sheol does not come up;
 7:10 he will never return to his house, his place does not know him.
 7:11 “So I will not keep silent; I will speak in the distress of my spirit, I will complain in bitterness of soul.
 7:12 Am I a sea, or a monster of the deep that You have set a watch over me?
@@ -160,7 +160,7 @@
 7:21 Why do You not pardon my transgression, and take away my iniquity? For now I will lie down in the dust, and You will search for me, but I will be gone.”
 8:1 Then Bildad the Shuhite answered and said:
 8:2 “How long will you say these things? The words of your mouth are like a mighty wind.
-8:3 Does God pervert justice? Does </span><span class="it"><span class="content">Shaddai
+8:3 Does God pervert justice? Does Shaddai pervert justice?
 8:4 If your children sinned against Him, He handed them over to their rebellion.
 8:5 If you would seek God and plead with Shaddai,
 8:6 if you are pure and upright, even now He will awaken for you and restore your righteous abode.
@@ -244,7 +244,7 @@
 11:5 But if only God would speak and open His lips against you,
 11:6 and show you the secrets of wisdom— for sound wisdom has two sides. Know that God has forgotten some of your iniquity.
 11:7 “Can you discover the mysteries of God? Can you find the limits of Shaddai?
-11:8 They are higher than the heavens —what can you do? They are deeper than </span><span class="it"><span class="content">Sheol
+11:8 They are higher than the heavens —what can you do? They are deeper than Sheol —what can you know?
 11:9 Its measure is longer than the earth and wider than the sea.
 11:10 “If He comes by and imprisons, or convenes a court, who can prevent Him?
 11:11 For He knows deceitful men; when He sees wickedness, does he not consider it?
@@ -265,7 +265,7 @@
 12:6 The tents of marauders prosper, and there is security for those who provoke God— for those whom God brings in His hand.
 12:7 But now ask the animals and they will teach you, or the birds of the sky and they will tell you,
 12:8 or speak to the earth and it will teach you, or the fish of the sea and they will inform you.
-12:9 Which of these does not know that the hand of </span><span class="it"><span class="sc"><span class="content">Adonai
+12:9 Which of these does not know that the hand of Adonai has done this?
 12:10 In His hand is the life of every creature, and the breath of all the human race.
 12:11 Does not the ear test words as the palate tastes food?
 12:12 Is not wisdom with the aged and understanding bring long life?
@@ -284,7 +284,7 @@
 12:25 They grope in darkness with no light; He makes them stagger like a drunkard.
 13:1 “Indeed, my eye has seen it all, my ears have heard and understood it.
 13:2 What you know, I also know; I am not inferior to you.
-13:3 Still, I desire to speak to </span><span class="it"><span class="content">Shaddai
+13:3 Still, I desire to speak to Shaddai and to argue my case with God.
 13:4 You, however, smear me with lies; you are worthless doctors—all of you!
 13:5 If only you would keep completely silent! For you, that would be wisdom.
 13:6 Hear now my argument; listen to the contentions of my lips.
@@ -322,7 +322,7 @@
 14:10 But man dies and is powerless. Man expires—and where is he?
 14:11 As water evaporates from the sea and a river drains away and dries up,
 14:12 so a person lies down and does not rise; until the heavens are no more, people will not awake, or be roused from their sleep.
-14:13 “Oh that You would hide me in </span><span class="it"><span class="content">Sheol
+14:13 “Oh that You would hide me in Sheol, and conceal me until Your wrath has passed! Oh that You would set a time for me and then remember me!
 14:14 If a man dies, will he live again? All the days of my hard labor I will wait until my relief comes.
 14:15 You will call and I—I will answer You; You will long for the work of Your hands.
 14:16 For then You will number my steps; You will not keep track of my sin;
@@ -401,10 +401,10 @@
 17:10 “But turn, all of you, come now! I will not find a wise man among you.
 17:11 My days have passed, my plans are torn apart. Yet the desires of my heart
 17:12  turn night into day; in the face of darkness light is near.
-17:13 If I hope for </span><span class="it"><span class="content">Sheol
+17:13 If I hope for Sheol as my home, if I make my bed in darkness,
 17:14 if I say to the pit, ‘You are my father,’ and to the worm, ‘My mother,’ or ‘My sister,’
 17:15 where then is my hope? And my hope, who sees it?
-17:16 Will it go down to the gates of </span><span class="it"><span class="content">Sheol
+17:16 Will it go down to the gates of Sheol? Will we descend together into the dust?”
 18:1 Then, Bildad the Shuhite replied, saying:
 18:2 “How long until you end these words? Consider, and then we will talk.
 18:3 Why are we regarded as beasts, and stupid in your eyes?
@@ -496,9 +496,9 @@
 21:10 His bull breeds without fail; his cow calves and do not miscarry.
 21:11 They send out their little ones like a flock and their children dance.
 21:12 They sing to the tambourine and harp and rejoice at the sound of the flute.
-21:13 They spend their days in prosperity, and in a moment go down to </span><span class="it"><span class="content">Sheol
+21:13 They spend their days in prosperity, and in a moment go down to Sheol.
 21:14 Yet they say to God, ‘Leave us alone! We have no desire to know Your ways.
-21:15 Who is </span><span class="it"><span class="content">Shaddai
+21:15 Who is Shaddai that we should serve Him? What would we gain if we pray to Him?’
 21:16 Look, their prosperity is not in their own hands; the counsel of the wicked is far from me.
 21:17 “How often is the lamp of the wicked snuffed out or calamity fallen on them? How often does He allot pain in His anger?
 21:18 How often are they like straw before the wind; like chaff swept away by a storm?
@@ -520,7 +520,7 @@
 21:34 “So how will your futility comfort me, for your answers remain nothing but falsehood?”
 22:1 Then Eliphaz the Temanite responded saying:
 22:2 “Can a man be useful to God? Can even a wise man benefit Him?
-22:3 What pleasure is it to </span><span class="it"><span class="content">Shaddai
+22:3 What pleasure is it to Shaddai if you are righteous? Or what gain if your ways are blameless?
 22:4 Is it because of your reverence that He corrects you and He brings judgment against you?
 22:5 Is not your wickedness great, and is there no end to your iniquity?
 22:6 For you took pledges from your brothers for no reason; you stripped the naked of their clothing.
@@ -534,16 +534,16 @@
 22:14 Thick clouds veil Him so He does not see, as He walks in the vault of heaven.’
 22:15 Will you keep to the old way that wicked men have trod?
 22:16 They were snatched away before their time, their foundations washed away by a river.
-22:17 They said to God, ‘Leave us alone! What can </span><span class="it"><span class="content">Shaddai
+22:17 They said to God, ‘Leave us alone! What can Shaddai do to us?’
 22:18 Yet He filled their houses with good things— but the counsel of the wicked is far from me!
 22:19 The righteous see and rejoice; the innocent mock them, saying,
 22:20 ‘Surely our foes are cut off, and fire consumes their abundance.’
-22:21 “Reconcile now with Him and have </span><span class="it"><span class="content">shalom
+22:21 “Reconcile now with Him and have shalom— in this way prosperity will come to you.
 22:22 Accept instruction from His mouth and store up His words in your heart.
 22:23 If you return to Shaddai, you will be restored; if you remove iniquity far from your tent
 22:24 and throw your gold in the dust, and the gold of Ophir to the rocks in the wadis,
-22:25 then </span><span class="it"><span class="content">Shaddai
-22:26 Surely then </span><span class="it"><span class="content">Shaddai
+22:25 then Shaddai will be your gold and your precious silver.
+22:26 Surely then Shaddai will be your delight and you will lift up your face to God.
 22:27 You will pray to Him and He will hear you, and you will fulfill your vows.
 22:28 What you decide will be done, and light will shine on your ways.
 22:29 When people are brought low, and you say, ‘Lift them up!’ then He will save the downcast.
@@ -563,7 +563,7 @@
 23:13 He is unchangeable, and who can change Him? Whatever His soul desires, He does.
 23:14 For He fulfills the decree against me, and many such things are with Him.
 23:15 That is why I am terrified at His presence; when I consider this, I fear Him.
-23:16 God has made my heart faint; </span><span class="it"><span class="content">Shaddai
+23:16 God has made my heart faint; Shaddai has terrified me.
 23:17 Yet I am not silenced because of the darkness, nor by the thick darkness that covers my face.”
 24:1 “Why are times not stored up by Shaddai? And why do those who know Him not see His days?
 24:2 Some remove the boundary-stones; they steal flocks and pasture them.
@@ -583,7 +583,7 @@
 24:16 When it is dark, they break into houses, but by day, they shut themselves in; they do not know the light.
 24:17 For to all of them, morning is as thick darkness; they are familiar with the terrors of thick darkness.
 24:18 “He is foam on the surface of water; their portion of the land is cursed; no one turns toward their vineyards.
-24:19 As heat and drought snatch away the melted snow, so </span><span class="it"><span class="content">Sheol
+24:19 As heat and drought snatch away the melted snow, so Sheol, takes away those who have sinned.
 24:20 The womb forgets him, the worm feasts on him, no longer will he be remembered. But like a tree, wickedness is broken.
 24:21 He feeds on the barren and childless woman, and shows no kindness to the widow.
 24:22 But He drags off the mighty by His power; He raises up, yet no one has assurance of life.
@@ -591,7 +591,7 @@
 24:24 They are exalted for a little while and then they are gone; they are brought low and gathered up like all others, they are like heads of grain they wither.
 24:25 Now if it is not so, who can prove me a liar, and reduce my speech to nothing?”
 25:1 Then Bildad the Shuhite answered:
-25:2 “Dominion and awe are with Him; He establishes </span><span class="it"><span class="content">shalom
+25:2 “Dominion and awe are with Him; He establishes shalom in His heights.
 25:3 Can His armies be counted? On whom does His light not rise?
 25:4 How then can a man be righteous with God? How can one born of a woman be pure?
 25:5 If even the moon is not bright and the stars are not pure in His eyes,
@@ -601,18 +601,18 @@
 26:3 How you have counseled the one without wisdom and revealed your abundant insights!
 26:4 To whom have you uttered words? Whose spirit has come from your mouth?
 26:5 “The dead tremble— those beneath the water and all that live in them.
-26:6  is naked before Him; Abaddon has no covering.
+26:6 Sheol is naked before Him; Abaddon has no covering.
 26:7 He stretches out the north over the void; He suspends the earth over nothing.
 26:8 He wraps up the waters in His clouds, yet the clouds do not burst under them.
 26:9 He covers the face of the full moon, spreading His clouds over it.
 26:10 He marks out the horizon on the face of the waters, for a boundary between light and dark.
 26:11 The pillars of heaven tremble, astounded at His rebuke!
 26:12 By His power He churns up the sea; by His understanding He smashed Rahab.
-26:13 By His </span><span class="it"><span class="content">Ruach
+26:13 By His Ruach the heavens are clear; His hand pierced the fleeing serpent.
 26:14 Indeed, these are but glimpses of His ways; how faint the whisper, we hear of Him! Who then can understand the thunder of His might?”
 27:1 And Job took up his discourse again, saying:
-27:2 “As God lives, who has deprived me of justice, </span><span class="it"><span class="content">Shaddai
-27:3 as long as my breath is still in me, the </span><span class="it"><span class="content">Ruach
+27:2 “As God lives, who has deprived me of justice, Shaddai who has made my soul bitter,
+27:3 as long as my breath is still in me, the Ruach of God in my nostrils,
 27:4 my lips will speak no injustice, nor will my tongue mutter deceit.
 27:5 Far be it from me to say that you are just; until I die, I will not set aside my integrity!
 27:6 I will maintain my righteousness, and not let it go; my conscience will not reproach me for any of my days.
@@ -665,7 +665,7 @@
 29:2 “O that I could be as in the months gone by, as in the days when God watched over me,
 29:3 when His lamp shone above my head, when by His light I walked through darkness;
 29:4 as I was in the days of my prime, when God’s intimate friendship was upon my tent,
-29:5 when </span><span class="it"><span class="content">Shaddai
+29:5 when Shaddai was still with me, and my children surrounded me;
 29:6 when my steps were bathed with butter, and the rock poured out for me streams of oil.
 29:7 When I went out to the city gate, and secured my seat in the public square,
 29:8 young men would see me and hide, old men would rise and stand;
