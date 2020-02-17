@@ -718,7 +718,7 @@
 30:30 My skin has turned black on me; my bones burn with heat.
 30:31 My harp is for mourning and my flute for the sound of weeping.
 31:1 “I made a covenant with my eyes not to pay attention to a virgin.
-31:2 For what is one’s lot from God above, one’s heritage from </span><span class="it"><span class="content">Shaddai
+31:2 For what is one’s lot from God above, one’s heritage from Shaddai on high?
 31:3 Is it not calamity for the unjust, and disaster for workers of iniquity?
 31:4 Does He not see my ways and count all my steps?
 31:5 “If I have walked in falsehood or my foot has hurried to deceit,
@@ -751,7 +751,7 @@
 31:32 —but no stranger had to spend the night outside for my door was open to the traveler—
 31:33 if I have I covered my transgressions like Adam, by hiding my guilt in my bosom
 31:34 because I feared a great multitude, and the contempt of clans terrified me, so that I kept silent and would not go outside.
-31:35 O, that I had someone to hear me! Look, here is my signature, let </span><span class="it"><span class="content">Shaddai
+31:35 O, that I had someone to hear me! Look, here is my signature, let Shaddai answer me, let the accuser write the indictment!
 31:36 Surely I would carry it on my shoulder; I would bind it on me as a crown.
 31:37 I would give Him an account of my steps; like a prince I would approach Him.
 31:38 “If my land cries out against me, and its furrows weep together,
@@ -764,7 +764,7 @@
 32:5 When Elihu saw that there was no answer in the mouth of these three men, his anger was aroused.
 32:6 Then Elihu son of Barachel the Buzite responded and said: “I am young in days and you are old; that is why I was timid and dared not to tell what I know.
 32:7 I thought, ‘Let days speak, and many years teach wisdom.’
-32:8 But there is a spirit in people, the breath of </span><span class="it"><span class="content">Shaddai
+32:8 But there is a spirit in people, the breath of Shaddai that gives them understanding.
 32:9 It is not only the aged who are wise or old men who understand justice.
 32:10 “Therefore I say, ‘Listen to me! I, even I, will explain what I know.’
 32:11 Look, I waited for your words, I listened to your reasoning; while you were searching for words
@@ -782,7 +782,7 @@
 33:1 “But now, Job, listen to my words and give ear to everything I say.
 33:2 See now, I open my mouth; my tongue in my mouth speaks.
 33:3 My words are from my upright heart; my lips speak sincerely what they know.
-33:4 “The </span><span class="it"><span class="content">Ruach
+33:4 “The Ruach of God has made me; the breath of Shaddai gives me life.
 33:5 Answer me, if you can; array yourselves before me; take your stand!
 33:6 Look, I am the same as you before God; I too am formed from clay.
 33:7 See, no fear of me should terrify you, nor should my pressure be heavy on you.
@@ -821,11 +821,11 @@
 34:7 What man is like Job, who drinks mockery like water,
 34:8 who keeps company with evildoers, and walks with wicked men?
 34:9 For he says, ‘It does not profit a man when he makes his delight with God.’
-34:10 “Therefore, listen to me, you men of understanding: Wickedness is far from God, injustice from </span><span class="it"><span class="content">Shaddai
+34:10 “Therefore, listen to me, you men of understanding: Wickedness is far from God, injustice from Shaddai
 34:11 For He repays a person for what he has done, and brings on the person what he deserves.
-34:12 “Truly God does not act wickedly, and </span><span class="it"><span class="content">Shaddai
+34:12 “Truly God does not act wickedly, and Shaddai does not pervert justice.
 34:13 Who appointed Him over the earth? Who put Him over the whole world?
-34:14 “If He were to set His heart on it, and gather to Himself His </span><span class="it"><span class="content">Ruach
+34:14 “If He were to set His heart on it, and gather to Himself His Ruach and breath,
 34:15 all flesh would perish together and mankind would return to dust.
 34:16 “Now if you have understanding, hear this; give ear to the sound of my words.
 34:17 Can someone who hates justice govern? Will you condemn the mighty, righteous One?
@@ -861,7 +861,7 @@
 35:10 But no one says, ‘Where is God my Maker, who gives songs in the night,
 35:11 who teaches us more than the animals of the earth, who makes us wiser than the birds of the sky?’
 35:12 There they cry out, but He does not answer, because of the pride of the wicked.
-35:13 Indeed God does not hear an empty cry; </span><span class="it"><span class="content">Shaddai
+35:13 Indeed God does not hear an empty cry; Shaddai pays no attention to it.
 35:14 How much less when you say that you do not perceive Him that the case is before Him and you must wait for Him.
 35:15 And further, that His anger does not punish and that He does not know transgression?
 35:16 So Job opens his mouth with nonsense, without knowledge he multiplies words.”
@@ -922,7 +922,7 @@
 37:22 Out of the north comes in golden splendor; around God is awesome majesty.
 37:23 Shaddai, we cannot find Him! He is great in power and justice, and abundant righteousness He does not oppress.
 37:24 Therefore people fear Him; He does not regard all the wise of heart.”
-38:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+38:1 Then Adonai answered Job out of the whirlwind. He said:
 38:2 “Who is this, who darkens counsel with words without knowledge?
 38:3 Now gird up your loins like a man; I will question you, and you will inform Me!
 38:4 “Where were you when I laid the foundations of earth? Tell Me, if you have understanding.
@@ -986,19 +986,19 @@
 39:21 He paws in the valley and exalting in his strength he charges into the fray.
 39:22 He laughs at fear and is not dismayed; he does not recoil from the sword.
 39:23 On him the quiver rattles; the spear and javelin flash.
-39:24 With quaking and excitement, he swallows up the ground. He cannot stand still when the </span><span class="it"><span class="content">shofar
-39:25 At the blast of the </span><span class="it"><span class="content">shofar
+39:24 With quaking and excitement, he swallows up the ground. He cannot stand still when the shofar sounds.
+39:25 At the blast of the shofar, he says, ‘Aha!’ From a distance he smells battle, the shout of the captains and the battle cry.
 39:26 “Is it by your wisdom that the hawk soars, spreading its wings toward the south?
 39:27 Is it by your command that an eagle soars and builds its nest high?
 39:28 It dwells on a cliff and spends the night there, on a rocky crag and stronghold.
 39:29 From there it searches for food; its eyes detect it from afar.
 39:30 Its young ones suck up blood, and where the slain are, there it is.”
-40:1 Then </span><span class="it"><span class="sc"><span class="content">Adonai
-40:2 “Will the one who contends with </span><span class="it"><span class="content">Shaddai
-40:3 Then Job answered </span><span class="it"><span class="sc"><span class="content">Adonai
+40:1 Then Adonai answered Job, saying:
+40:2 “Will the one who contends with Shaddai correct him? Let him who accuses God answer!”
+40:3 Then Job answered Adonai. He said:
 40:4 “Indeed, I am unworthy— what can I reply to You? I put my hand over my mouth.
 40:5 I spoke once, but I have no answer— twice, but I will say no more.”
-40:6 Then </span><span class="it"><span class="sc"><span class="content">Adonai
+40:6 Then Adonai answered Job from the whirlwind:
 40:7 “Brace yourself like a man; I will question you, and you will inform Me!
 40:8 “Would you really annul My judgment? Would you condemn Me to justify yourself?
 40:9 Do you have an arm like God’s and can you thunder with a voice like His?
@@ -1017,6 +1017,14 @@
 40:22 The lotuses conceal him in their shade; the willows of the brook surround him.
 40:23 If the river rages, he is not alarmed. He is secure, even though the Jordan surges against his mouth.
 40:24 Can anyone capture it by its eyes, or pierce his nose with hooks?
+40:25 “Can you pull in Leviathan with a hook, or tie down his tongue with a cord?
+40:26 Can you put a reed rope in his nose or pierce his jaw with a hook?
+40:27 Will he make many supplications to you, or speak softly to you?
+40:28 Will he make a covenant with you, so you can take him as a slave forever?
+40:29 Can you play with him like a bird, or put him on a leash for your girls?
+40:30 Will traders barter for him? Will they divide him among the merchants?
+40:31 Can you fill his hide with harpoons or his head with fishing spears?
+40:32 If you lay your hands on him— you will remember the battle and never do it again!
 41:1 “See, his hope is wrong, he is laid low, even the sight of him.
 41:2 Is he not fierce when he is roused? Who then is able to stand before Me?
 41:3 Who has confronted Me that I should repay? Everything under heaven belongs to Me.
@@ -1043,26 +1051,18 @@
 41:24 He leaves a shining wake behind him; one would think the deep had white hair.
 41:25 Nothing on dry land is his equal— a creature without fear.
 41:26 He sees every haughty thing; he is king over all who are proud.”
-41:27
-41:28
-41:29
-41:30
-41:31
-41:32
-41:33
-41:34
-42:1 Job answered </span><span class="it"><span class="sc"><span class="content">Adonai
+42:1 Job answered Adonai and said:
 42:2 “I know You can do all things; no purpose of Yours can be thwarted.
 42:3 You ask, ‘Who is this, who darkens counsel without knowledge?’ Surely I spoke without understanding, things too wonderful for me which I did not know.
 42:4 You said, ‘Hear now, and I will speak; I will question you, and you will inform Me.’
 42:5 I had heard of You by the hearing of the ear; but now my eye has seen You.
 42:6 Therefore I despise myself, and repent on dust and ashes.”
-42:7 After </span><span class="it"><span class="sc"><span class="content">Adonai
+42:7 After Adonai had spoken these words to Job, Adonai said to Eliphaz the Temanite, “My anger is kindled against you and against your two friends, because you have not spoken about Me what is right, like My servant Job has.
 42:8 So now, take for yourselves seven young bulls and seven rams and go to My servant Job and offer a burnt offering for yourselves. My servant Job will pray for you, for I will accept Job’s prayer and not deal with you according to your folly because you have not spoken correctly about Me, like My servant Job.”
-42:9 So Eliphaz the Temanite, Bildad the Shuhite, and Zophar the Naamathite went and did what </span><span class="it"><span class="sc"><span class="content">Adonai
-42:10 So </span><span class="it"><span class="sc"><span class="content">Adonai
-42:11 Then all his brothers, all his sisters and everyone who had known him before, came to him and ate bread with him in his house. They consoled him and comforted him for all the calamity that </span><span class="it"><span class="sc"><span class="content">Adonai
-42:12 So </span><span class="it"><span class="sc"><span class="content">Adonai
+42:9 So Eliphaz the Temanite, Bildad the Shuhite, and Zophar the Naamathite went and did what Adonai told them; and Adonai accepted Job’s prayer.
+42:10 So Adonai restored what Job had lost, after he prayed for his friends and Adonai doubled everything that Job had before.
+42:11 Then all his brothers, all his sisters and everyone who had known him before, came to him and ate bread with him in his house. They consoled him and comforted him for all the calamity that Adonai had brought upon him. Each of them gave him a piece of money and a gold ring.
+42:12 So Adonai blessed Job’s latter days more than at his beginning. He had 14,000 sheep, 6,000 camels, 1,000 yoke of oxen and 1,000 female donkeys.
 42:13 He also had seven sons and three daughters.
 42:14 He called the name of the first Jemimah, the name of the second Keziah, and the name of the third Keren-happuch.
 42:15 Nowhere in the land were there found women as beautiful as the daughters of Job. Their father gave them an inheritance along with their brothers.
