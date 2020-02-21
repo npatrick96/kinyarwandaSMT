@@ -80,6 +80,7 @@
 4:14 For he came out of prison to become king—though he was born poor in his kingdom.
 4:15 I considered all the living that walk under the sun as well as the next youth who stands in his place.
 4:16 There is no end to all the people—to all who were before him. Also those who will come later will not rejoice in him. Surely this too is meaningless and striving after the wind.
+4:17 Watch your feet when you go to the House of God. Draw near to listen, rather than to offer the sacrifice of fools, for they do not know that they are doing wrong.
 5:1 Do not be quick with your mouth nor hasty in your heart to utter a word in God’s presence. For God is in heaven, and you are on the earth— therefore, let your words be few.
 5:2 As a dream comes with excessive burdens so a fool’s voice with too many words.
 5:3 When you swear a vow to God, don’t delay in fulfilling it. For He takes no delight in fools. Pay what you vow!
@@ -99,7 +100,6 @@
 5:17 Behold, this is what I myself have seen. It is beneficial and good for one to eat and drink, and to enjoy all of his toil that he labors under the sun during the few days of his life that God has given him—for this is his reward.
 5:18 Additionally, everyone to whom God has given riches and wealth, and empowers him to eat from it, to receive his share, and to rejoice in his labor—this is a gift of God.
 5:19 For he will not often consider the days of his life, since God keeps him occupied with the joy of his heart.
-5:20
 6:1 There is a misery that I have seen under the sun, and it is heavy upon humanity.
 6:2 God gives a man riches, wealth and honor, so that he lacks nothing that his heart desires, yet God does not enable him to eat from it—instead a foreigner will eat it. This is fruitless—an agonizing illness.
 6:3 Even if a man should father a hundred children and live many years, however many the days of his years may be, yet his soul is never satisfied with his prosperity and he does not have a proper burial, then I say that it is better for the stillborn than him.
