@@ -58,16 +58,16 @@
 3:14 I have become a laughing stock to all my people, their song all day long.
 3:15 He has filled me with bitterness and made me drink wormwood.
 3:16 He broke my teeth with gravel. He made me wallow in ashes.
-3:17 My soul has been deprived of </span><span class="it"><span class="content">shalom
-3:18 So I said, “My endurance has perished, and my hope from </span><span class="it"><span class="sc"><span class="content">Adonai
+3:17 My soul has been deprived of shalom, I have forgotten goodness.
+3:18 So I said, “My endurance has perished, and my hope from Adonai.”
 3:19 Remember my affliction my homelessness, bitterness and gall.
 3:20 Whenever I remember, my soul is downcast within me.
 3:21 This I recall to my heart— therefore I have hope:
-3:22 Because of the mercies of </span><span class="it"><span class="sc"><span class="content">Adonai
+3:22 Because of the mercies of Adonai we will not be consumed, for His compassions never fail.
 3:23 They are new every morning! Great is Your faithfulness.
-3:24 “</span><span class="it"><span class="sc"><span class="content">Adonai
-3:25  is good to those who wait for Him, to the soul that seeks Him.
-3:26 It is good to wait quietly for the salvation of </span><span class="it"><span class="sc"><span class="content">Adonai
+3:24 “Adonai is my portion,” says my soul, “therefore I will hope in Him.”
+3:25 Adonai is good to those who wait for Him, to the soul that seeks Him.
+3:26 It is good to wait quietly for the salvation of Adonai.
 3:27 It is good for a man to bear the yoke in his youth.
 3:28 Let him sit alone and be silent, since He has laid it upon him.
 3:29 Let him put his mouth in the dust— there may yet be hope.
@@ -81,7 +81,7 @@
 3:37 Who speaks and it comes to pass unless the Lord has decreed it?
 3:38 Is it not from the mouth of Elyon that both calamities and good things proceed?
 3:39 Why should any living person complain when punished for his sins?
-3:40 Let us examine and test our ways, and let us return to </span><span class="it"><span class="sc"><span class="content">Adonai
+3:40 Let us examine and test our ways, and let us return to Adonai.
 3:41 Let us lift up our heart and hands to God in heaven.
 3:42 We have transgressed and rebelled— You have not pardoned.
 3:43 You covered Yourself with anger and pursued us. You have slain without pity.
@@ -91,23 +91,23 @@
 3:47 Panic and pitfall have befallen us, devastation and destruction.
 3:48 Streams of tears run down my eyes because of the destruction of the daughter of my people.
 3:49 My eye flows unceasingly, without stopping,
-3:50 until </span><span class="it"><span class="sc"><span class="content">Adonai
+3:50 until Adonai looks down from heaven and sees.
 3:51 My eye torments my soul because of all the daughters of my city.
 3:52 For no reason, my enemies hunted me down like a bird.
 3:53 They cut off my life in the Pit, and cast stones upon me.
 3:54 Waters flowed over my head. I said, “I have been cut off!”
-3:55 I called on Your Name, </span><span class="it"><span class="sc"><span class="content">Adonai
+3:55 I called on Your Name, Adonai, from the depths of the Pit.
 3:56 You heard my voice, “Do not close Your ears to my cry for relief.”
 3:57 You drew near on the day I called to You. You said, “Do not fear!”
 3:58 Lord, You pled my soul’s case, You redeemed my life.
-3:59 , You saw the wrong done to me; judge my cause!
+3:59 Adonai, You saw the wrong done to me; judge my cause!
 3:60 You have seen all their vengefulness, all their schemes against me.
-3:61 You heard their taunt, </span><span class="it"><span class="sc"><span class="content">Adonai
+3:61 You heard their taunt, Adonai, all their plots against me.
 3:62 The lips of my assailants and their whispering are against me all day long.
 3:63 Look at them, sitting or standing, they mock me in their song.
-3:64 Pay them back what they deserve, </span><span class="it"><span class="sc"><span class="content">Adonai
+3:64 Pay them back what they deserve, Adonai, according to the work of their hands.
 3:65 Give them a distraught heart. May Your curse be on them.
-3:66 Pursue them in anger and destroy them from under the heavens of </span><span class="it"><span class="sc"><span class="content">Adonai
+3:66 Pursue them in anger and destroy them from under the heavens of Adonai.
 4:1 How dulled is the gold, how tarnished the fine gold. The sacred gems are poured out at the corner of every street.
 4:2 The precious sons of Zion, once worth their weight in gold— alas! now they are treated like clay jars, the work of a potter’s hands!
 4:3 Even jackals offer their breast to nurse their young. The daughter of my people has become cruel, like ostriches in the desert.
@@ -118,19 +118,19 @@
 4:8 Their form has become darker than soot! They are not recognized in the street. Their skin has shriveled on their bones, withered like a tree.
 4:9 Better are those slain by the sword than those struck down by famine— they waste away, racked with pain, for lack of fruits of the field.
 4:10 The hands of compassionate women boiled their own children. They became their food when the daughter of my people were destroyed.
-4:11  has vented His fury. He has poured out His burning anger. Yes, He kindled a fire in Zion that devoured her foundations.
+4:11 Adonai has vented His fury. He has poured out His burning anger. Yes, He kindled a fire in Zion that devoured her foundations.
 4:12 The kings of the earth did not believe, nor did the inhabitations of the world, that enemy and foe would enter the gates of Jerusalem.
-4:13 Yet it happened because of the sins of her prophets, and the iniquities of her </span><span class="it"><span class="content">kohanim
+4:13 Yet it happened because of the sins of her prophets, and the iniquities of her kohanim, who shed in her midst the blood of the tzadikim .
 4:14 They wander in the streets, like blind men. They are so defiled with blood, no one can touch their garments.
 4:15 “Turn away! Unclean!” They cry to them. “Turn away, turn away! Don’t touch!” So they fled and wandered about. People among the nations say, “They can stay here no longer.”
-4:16 . They did not favor the elders.
+4:16 Adonai Himself has scattered them. He will look on them no more. They did not respect the kohanim. They did not favor the elders.
 4:17 Even now our eyes waste away looking in vain for our help. From our towers we watched for a nation that could not save us.
 4:18 They hunted our steps, so we could not walk in our streets. Our end was near. Our days were numbered, for our end had come.
 4:19 Our pursuers were swifter than eagles of the sky; they pursued us over the mountains; they ambushed us in the wilderness.
-4:20 The anointed of </span><span class="it"><span class="sc"><span class="content">Adonai
+4:20 The anointed of Adonai, the breath of our nostrils, was captured in their pits, of whom we have said, “Under His shadow we will live among the nations.”
 4:21 Rejoice and be glad, O daughter of Edom, you who dwell in the land of Uz. To you also will the cup be passed. You will be drunk and stripped naked.
 4:22 O daughter of Zion, your punishment is accomplished; He will exile you no longer. But, O daughter of Edom, He will punish your iniquity and uncover your sins.
-5:1 Remember, </span><span class="it"><span class="sc"><span class="content">Adonai
+5:1 Remember, Adonai, what has come upon us. Look, and see our disgrace!
 5:2 Our inheritance is turned over to strangers, our homes to foreigners.
 5:3 We have become orphans, fatherless, our mothers are like widows.
 5:4 We pay silver for the water we drink; our wood comes at a price.
@@ -145,10 +145,10 @@
 5:13 Young men toil at the millstone. Boys stagger under loads of wood.
 5:14 Elders are gone from the gate, young men from their music.
 5:15 Joy has ceased in our hearts. Our dance has turned into mourning.
-5:16 The crown has fallen from our head. </span><span class="it"><span class="content">Oy
+5:16 The crown has fallen from our head. Oy to us, for we have sinned!
 5:17 Because of this our heart is faint, for these things our eyes are dim,
 5:18 for Mount Zion, which lies desolate, as jackals prowl over it.
-5:19 You, </span><span class="it"><span class="sc"><span class="content">Adonai
+5:19 You, Adonai, are enthroned forever; Your throne endures from generation to generation.
 5:20 Why do You always forget us and forsake us for so long?
-5:21 Bring us back to You, </span><span class="it"><span class="sc"><span class="content">Adonai
+5:21 Bring us back to You, Adonai, and we will return. Renew our days as of old—
 5:22 unless You have utterly rejected us and are exceedingly angry with us.
