@@ -159,7 +159,7 @@
 9:27 the Jews established and took upon themselves, upon their descendants, and upon all who joined with them, that they would commemorate these two days in the way prescribed and at the appointed time every year.
 9:28 These days should be remembered and observed in every generation by every family and in every province and every city. These days of Purim should not fail from among the Jews, nor their remembrance perish from their descendants.
 9:29 Then Queen Esther the daughter of Abihail, and also Mordecai the Jew, wrote with full authority to confirm this second letter of Purim.
-9:30 He sent letters to all the Jews in the 127 provinces of the kingdom of Ahasuerus, with words of </span><span class="it"><span class="content">shalom
+9:30 He sent letters to all the Jews in the 127 provinces of the kingdom of Ahasuerus, with words of shalom and truth,
 9:31 to establish these days of Purim at their designated times, just as Mordecai the Jew and Queen Esther had decreed for them and just as they had established for themselves and their descendants, matters regarding their times of fasting and lamentations.
 9:32 Esther’s command confirmed these regulations about Purim and it was written into the records.
 10:1 Now King Ahasuerus imposed a tribute upon the entire land, even to the coastlands of the sea.
