@@ -193,6 +193,7 @@
 6:26 Then King Darius wrote to all the peoples, nations, and languages dwelling in all the earth: “May your peace be abundant!
 6:27 I issue a decree that in all the dominion of my kingdom people are to tremble with fear before the God of Daniel. “For He is the living God, enduring forever! His kingdom will never be destroyed, His dominion will never end.
 6:28 He delivers and rescues. He performs signs and wonders in the heavens and on earth. He has delivered Daniel from the power of the lions!”
+6:29 So Daniel prospered during the reign of Darius and the reign of Cyrus the Persian.
 7:1 In the first year of King Belshazzar of Babylon, Daniel had a dream, and visions passed through his mind as he was on his bed. He wrote down a summary of the dream.
 7:2 Daniel said: “I was looking in my vision at night, and behold, the four winds of heaven were churning up the great sea.
 7:3 Four huge beasts came up from the sea, each different from the others.
@@ -210,16 +211,16 @@
 7:15 “As for me, Daniel, my spirit was disturbed within me, and the visions of my head alarmed me.
 7:16 I approached one of those standing nearby and asked him the true meaning of all this. So he spoke with me and revealed the interpretation of these things:
 7:17 ‘These large beasts, four in number, are four kings that will rise from the earth.
-7:18 But the </span><span class="it"><span class="content">kedoshim
+7:18 But the kedoshim of the Most High will receive the kingdom and possess the kingdom forever—yes, forever and ever.’
 7:19 “Then I wanted to know the true meaning of the fourth beast that was different from all the others, exceedingly terrifying with iron teeth and bronze claws, which broke in pieces and devoured and then stomped with its feet anything that remained.
 7:20 Of the ten horns on its head, the other horn that sprang up before which three others fell—that horn eyes and a mouth speaking arrogant things, and its appearance was more imposing than its companions.
-7:21 As I was watching, that horn was waging war against the </span><span class="it"><span class="content">kedoshim
-7:22 until the Ancient of Days came and judgment was rendered in favor of the </span><span class="it"><span class="content">kedoshim
+7:21 As I was watching, that horn was waging war against the kedoshim and overpowering them,
+7:22 until the Ancient of Days came and judgment was rendered in favor of the kedoshim of the Most High—when the time came and the kedoshim possessed the kingdom.
 7:23 “Thus he explained: ‘The fourth beast will be a fourth kingdom on earth that will be different from all the other kingdoms. It will devour the whole earth, and trample it and crush it.
 7:24 As for the ten horns, out of this kingdom ten kings will arise. Another will arise after them, but he will be different from the previous ones; he will subdue three kings.
-7:25 He will speak words against the Most High, and will continually harass the </span><span class="it"><span class="content">kedoshim
+7:25 He will speak words against the Most High, and will continually harass the kedoshim of the Most High, and will try to change the appointed times and law. The kedoshim will be handed over to him for a time, times and half a time.
 7:26 But the court will sit and he will be stripped of his power to be destroyed and abolished for all time.
-7:27 Then the kingdom, power, and greatness of the kingdoms under all heaven will be given to the people of the </span><span class="it"><span class="content">kedoshim
+7:27 Then the kingdom, power, and greatness of the kingdoms under all heaven will be given to the people of the kedoshim of the Most High. Their kingdom is an everlasting kingdom, and all dominions will serve and obey him.’
 7:28 This is the conclusion of the matter. As for me, Daniel, my thoughts greatly troubled me and the color drained from my face. But I kept the matter in my heart.”
 8:1 “In the third year of the reign of King Belshazzar, a vision appeared to me, Daniel, after the one that had appeared to me earlier.
 8:2 In the vision I saw myself in the citadel of Shushan , which is in the province of Elam. In the vision I saw that I was beside the Ulai Canal.
@@ -249,31 +250,31 @@
 8:26 “‘Now the vision of the evenings and mornings that has been told to you is true, but seal up the vision for it concerns many days from now.’
 8:27 “Then I, Daniel, was stricken and languished for days. Then I got up and went about the king’s business, but I was astounded at the vision and no one could explain it.
 9:1 “In the first year of Darius the son of Ahasuerus, of Median descent, who was made king over the realm of the Chaldeans,
-9:2 in the first year of his reign—I, Daniel, understood from the books that according to the word of </span><span class="it"><span class="sc"><span class="content">Adonai
+9:2 in the first year of his reign—I, Daniel, understood from the books that according to the word of Adonai to Jeremiah the prophet, the number of the years for the fulfilling of the desolation of Jerusalem would be 70 years.
 9:3 So I set my face to the Lord God to seek Him by prayer and supplications, with fasting, sackcloth and ashes.
-9:4 “I prayed to </span><span class="it"><span class="sc"><span class="content">Adonai
-9:5 we have sinned; we have committed iniquity; we have acted wickedly; we have rebelled; we have turned away from Your </span><span class="it"><span class="content">mitzvot
+9:4 “I prayed to Adonai my God and confessed, saying: ‘O Lord, the great and awesome God, who keeps covenant and mercy with those who love Him and keep His mitzvot,
+9:5 we have sinned; we have committed iniquity; we have acted wickedly; we have rebelled; we have turned away from Your mitzvot and from Your rulings.
 9:6 We have not listened to Your servants the prophets, who spoke in Your name to our kings, our leaders and our fathers, and to all the people of the land.
 9:7 “‘You Lord are righteousness, but shame covers our face to this day—the people of Judah and the inhabitants of Jerusalem, and all Israel, near and far, in all the countries where you have banished them—because they behaved unfaithfully toward you.
-9:8 , shame covers our face—our kings, our leaders, our fathers—because we have sinned against you.
+9:8 Adonai, shame covers our face—our kings, our leaders, our fathers—because we have sinned against you.
 9:9 The Lord our God is compassionate and forgiving, even though we have rebelled against Him.
-9:10 We have not obeyed the voice of </span><span class="it"><span class="sc"><span class="content">Adonai
-9:11 Yes, all Israel has transgressed Your </span><span class="it"><span class="content">Torah
+9:10 We have not obeyed the voice of Adonai Eloheinu by walking in His Torah that He set before us through His servants the prophets.
+9:11 Yes, all Israel has transgressed Your Torah and has turned away—not obeying Your voice. “‘Therefore the curse and sworn judgment written in the Torah of Moses the servant of God has been poured out upon us, for we have sinned against Him.
 9:12 So He has confirmed His words that he spoke against us and against our rulers who ruled over us by bringing on us a great calamity. Under the whole heaven nothing like this has ever been done to Jerusalem!
-9:13 As it is written in the </span><span class="it"><span class="content">Torah
-9:14 So </span><span class="it"><span class="sc"><span class="content">Adonai
-9:15 “‘So now, </span><span class="it"><span class="sc"><span class="content">Adonai
+9:13 As it is written in the Torah of Moses, all this calamity came on us, yet we have not sought the favor of Adonai Eloheinu by turning away from our iniquities and paying attention to Your truth.
+9:14 So Adonai was intent on bringing the calamity upon us, for Adonai Eloheinu is righteous in all His deeds that He has done—while we have not paid attention to His voice.
+9:15 “‘So now, Adonai Eloheinu, who brought Your people out of the land of Egypt with a mighty hand and made for Yourself a Name to this day—we have sinned, we have acted wickedly.
 9:16 Lord, in keeping with all Your righteous acts, let Your anger and Your fury turn away, please, from Jerusalem, Your city, Your holy mountain. Because of our sins and the iniquities of our fathers, Jerusalem and Your people have become an object of scorn to all those around us.
 9:17 ‘So now, our God, listen to the prayers and petitions of Your servant, and cause Your face to shine upon Your devastated Sanctuary, for the sake of my Lord.
 9:18 Give ear, my God, and hear! Open Your eyes and see our desolation and the city called by Your name. We do not present our supplications before You because of our own righteousness, but because of Your great compassions.
 9:19 Lord, hear! Lord, forgive! Lord, listen and act! For Your own sake, O my God, do not delay! For Your city and Your people are called by Your name.’
-9:20 “While I was still speaking and praying, confessing my sin and the sin of my people Israel, and presenting my supplication before </span><span class="it"><span class="sc"><span class="content">Adonai
+9:20 “While I was still speaking and praying, confessing my sin and the sin of my people Israel, and presenting my supplication before Adonai my God on behalf of the holy mountain of my God—
 9:21 yes, while I was praying, Gabriel, the one I had seen in the earlier vision, came to me swiftly about the time of the evening offering.
 9:22 “He instructed me and said to me: ‘Daniel, I have come now to give you insight and understanding.
 9:23 At the beginning of your requests, a message went out, and I have come to declare it to you, for you are greatly esteemed. Therefore consider the message and understand the vision:
 9:24 “Seventy weeks are decreed concerning your people and your holy city, to put an end to transgression to bring sin to an end, to atone for iniquity, to bring in everlasting righteousness, to seal up vision and prophecy, and to anoint the Holy of Holies.
-9:25 So know and understand: From the issuing of the decree to restore and to build Jerusalem until the time </span><span class="it"><span class="content">Mashiach
-9:26 Then after the 62 weeks </span><span class="it"><span class="content">Mashiach
+9:25 So know and understand: From the issuing of the decree to restore and to build Jerusalem until the time Mashiach, the Prince, there shall be seven weeks and 62 weeks. It will be rebuilt, with plaza and moat, but it will be in times of distress.
+9:26 Then after the 62 weeks Mashiach will be cut off and have nothing. Then the people of a prince who is to come will destroy the city and the sanctuary. But his end will come like a flood. Until the end of the war that is decreed there will be destruction.
 9:27 Then he will make a firm covenant with many for one week, but in the middle of the week he will put an end to sacrifice and offering. And on a wing of abominations will come one who destroys, until the decreed annihilation is poured out on the one who destroys.’”
 10:1 In the third year of King Cyrus of Persia a message was revealed to Daniel, whose name was called Belteshazzar. The oracle was true and concerns a great war. He understood the message and gained insight through a vision.
 10:2 “In those days, I, Daniel was mourning for three whole weeks.
@@ -293,7 +294,7 @@
 10:16 Then behold, one who resembled a human touched my lips. I opened my mouth and spoke, and said to him that stood before me, ‘O my Lord because of the vision, anguish has overcome me and I have no strength.
 10:17 For how can this servant of my Lord speak with my Lord since no strength remains in me and no spirit is left in me?’
 10:18 “Again the one who looked like a man touched me and strengthened me.
-10:19 Then he said: ‘Highly valued man, do not fear! </span><span class="it"><span class="content">Shalom
+10:19 Then he said: ‘Highly valued man, do not fear! Shalom to you. Be strong, now! Chazak!’ “Even as he spoke to me, I was strengthened and said, ‘Let my lord speak, for you have strengthened me.’
 10:20 “Then he said: ‘Do you understand why I have come to you? Now I must return to fight against the prince of Persia! When I go, behold, the prince of Greece will come.
 10:21 But first, I will tell you what is recorded in the writing of truth.’ (No one strengthened me against these, except Michael your prince.
 11:1 “And in the first year of Darius the Mede, I took my stand to support and protect him).
